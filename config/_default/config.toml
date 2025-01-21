@@ -1,5 +1,5 @@
 # Change baseurl before deploy
-baseurl = "https://demo.stack.jimmycai.com"
+baseurl = "https://ale-jrd.github.io/Trads/"
 languageCode = "en-us"
 title = "Al-Trads"
 
