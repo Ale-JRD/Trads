@@ -2925,3 +2925,668 @@ And so, Gio said:
 Leaving the frozen Ars behind, we exited the room.
 
 ---
+
+**405 - Sacred Eye Defense Battle**
+
+**-Yasu Tomohiro POV-**
+
+I stared into the distance at the approaching Sacraments.
+
+My heart was pounding heavily.
+
+—Yeah, I’m scared.
+
+Before the battle at the Anti-Demon White Castle, I didn’t feel this way.
+
+If anything, I was more excited back then.
+
+And… I wasn’t able to see anything clearly.
+
+Now, I’m stronger than I was then.
+
+But for some reason, I’m so much more terrified now.
+
+It was the same when I fought those giant apes.
+
+[…]
+
+The soldiers lined up on the ramparts caught my eye.
+
+Are they not scared?
+
+They all look so calm.
+
+Maybe it’s because they’re trained.
+
+As I wondered, I overheard a conversation nearby.
+
+[…Before I left home, my kid said something.]
+
+[Hm?]
+
+[He said, “I’m not scared”.]
+
+[Hehh, gutsy kid you’ve got there.]
+
+[No, that’s not it… That’s not it.]
+
+[What did he say?]
+
+[He said, “It’s okay because Dad’s going to protect us”.]
+
+[…I see.]
+
+[Ever since surviving that last battle against the Demon Emperor’s Army… the way my kid looks at me has changed. He looks at me with admiration now, like he looks up to me…]
+
+[Same here… My wife, I mean.]
+
+[The one who’s always nagging you?]
+
+[Yeah… But ever since that last fight, she’s been a little kinder, you could say…]
+
+[…Well, I guess we’ve both gotta survive this one too, huh?]
+
+[Yeah.]
+
+[…]
+
+The soldier talking about his kid suddenly lowered his face.
+
+He leaned on his spear as though using it to support himself.
+
+It looked like he might collapse if he let go even a little.
+
+He was sobbing.
+
+[—Fghh… Guh… I don’t want to die… I’m scared… I’m so scared…]
+
+[O- Oi… I get it, but, y’know… You gotta think of the morale…]
+
+The other soldier looked around nervously.
+
+Thereupon…
+
+[It’s fine.]
+
+Another soldier who had been listening placed a hand on the sobbing soldier’s shoulder.
+
+[…We’re all the same. Everyone’s scared. I’m scared too. But we still fight— right?]
+
+[Sniff… Yeah… If we lose here, my kid will die, right…? So… I’ll do it… Sniff… I’ll fight…]
+
+The other soldiers reacted in various ways.
+
+Some gave wry, yet gentle smiles.
+
+Some were moved to tears.
+
+Some kept their expressions stoic but seemed to have steeled their resolve…
+
+[…]
+
+So that’s how it is.
+
+Everyone is scared.
+
+It’s not just me who feels this way…
+
+That’s right.
+
+It’s not strange to feel fear.
+
+Something like this— would scare anyone.
+
+For as long as I can remember, I’ve been gripped by a certain feeling.
+
+When compared to others, am I the most worthless person in the world?
+
+Sometimes, such a thought strikes me out of nowhere.
+
+Even now, it hits me, like an attack.
+
+It feels like everyone else is living their lives better than I am.
+
+Like I’m the only one in this world with such flawed feelings.
+
+Like I’m the only one doing something fundamentally wrong with how I live.
+
+Somehow— just barely scraping by.
+
+Even when I find people who seem like kindred spirits, they always seem to manage.
+
+Even though we’re in the same country—
+
+It felt as though everyone else was from another nation entirely.
+
+And so—
+
+“Am I the only one truly feeling fear here?”
+
+That thought crept into my mind.
+
+(But… That might not be the case.)
+
+I lowered my gaze to my hands.
+
+Then I looked again at the soldiers.
+
+I could see it.
+
+Now— more than before.
+
+I could see the “faces” of the others around me.
+
+Thinking I was the only one—
+
+That was probably because I couldn’t see anything but myself.
+
+[Fear’s not all bad.]
+
+At that moment, Rinji spoke up.
+
+[Feeling scared means you’re facing it, without running away.]
+
+[Facing it…]
+
+For instance, with horror movies.
+
+“I wasn’t scared.”
+
+“I don’t get what was supposed to be scary.”
+
+I used to think people who felt that way were stronger at heart.
+
+Even after being summoned to this world.
+
+Coming to a different world— gaining extraordinary powers.
+
+I thought the ones who faced battles without fear were the true “heroes”.
+
+Rinji continued.
+
+[You’re scared because you’re confronting it head-on.]
+
+[—]
+
+“That’s why…”, Rinji continued.
+
+[Having the courage not to run from that fear— that’s what real bravery is.]
+
+…Ahh, I see.
+
+That, too, is another form of “hero”.
+
+Even when they held resolve and determination— the feeling of “fear” remains, lingering somewhere deep inside.
+
+It was the same when I fought those golden-eyed apes.
+
+(But…)
+
+I wonder why?
+
+A soft smile unconsciously spread across my face.
+
+(Even if I’m scared, it’s okay.)
+
+I can fight with this “fear” in my heart.
+
+I tightened my expression once more.
+
+[…This battle.]
+
+I firmly locked my gaze onto the approaching Sacraments.
+
+[To protect everyone— I’ll throw everything I have.]
+
+---
+
+The Sacraments began to reveal their individual forms from the white mass.
+
+Their ranks spread out sideways.
+
+Far behind the formation, a vast army continued.
+
+At the very least, it could be estimated that there were no fewer than 20,000 to 30,000 soldiers.
+
+As Rinji said, that’s something quite clear even when looking from here.
+
+On the walls, the magical artillery and archers were preparing to intercept.
+
+Even the bowguns, configured for placement, were being cranked up.
+
+Rinji narrowed his eyes.
+
+[They’ve prepared… a trebuchet huh.]
+
+[Not just a trebuchet.]
+
+[Lili.]
+
+Before I knew it, Lili of the Drunken Sword Party had joined us.
+
+She motioned toward the Sacraments, which was raising a cloud of dust.
+
+[They’ve brought siege towers too. They probably didn’t bring them directly from Alion; they likely assembled them on the move as they got closer to the Capital.]
+
+[That… rather large cart over there?]
+
+[It might be tough for regular humans… but they’ve got tireless Sacraments over there, and they even have some Sacraments that are many times larger than humans. Carrying and assembling the parts doesn’t work the same way as it would for us.]
+
+Siege towers— also called siege turrets, as their name suggests, are siege weapons.
+
+Normally, soldiers climb the wall with ladders.
+
+But with a siege tower, it’s easier to send soldiers to the top of high walls.
+
+Back in my original world, I had seen movies and manga make use of such weapons.
+
+Rinji scratched his head.
+
+[I don’t want to think about it… but the thought of that massive army crowding onto this wall…]
+
+[It’s not just siege towers… They might have brought weapons and horses from the fortresses and strongholds like Magnar along the way.]
+
+There were half-horse Sacraments, but there are also Sacraments riding regular horses.
+
+Of course, they were armed.
+
+Lili spoke.
+
+[These Sacraments… They seem smarter than when we were commanding them. They’ve probably gained more abilities.]
+
+“They were once limited to simpler orders.”, she added.
+
+At that moment,
+
+[PREPARE FOR ATTAAAAAACK—!]
+
+The command was given, and the war horn sounded.
+
+The vibrations, almost like a small tremor, reached us.
+
+The battle was truly drawing near.
+
+[According to the Queen and the Saintess’ plan, it seems we’re not going to strike out, but instead, we’re focusing on defense and observing the enemy’s movements. The gates are also sealed with rocks from the inside, so for now, the battering rams shouldn’t be able to break through but—]
+
+[…! Here they come!]
+
+Suddenly, the activity on the walls grew frantic.
+
+The Sacraments hadn’t yet reached the range for Attack Magic or arrows, but we, too, saw “it”.
+
+Before we knew it,
+
+Everyone was looking up at the sky.
+
+And above the walls, something square like a box easily passed over.
+
+Everyone was looking up.
+
+Lili’s eyes widened.
+
+[—What the hell is that?!]
+
+The use of trebuchets had been anticipated.
+
+The walls were strong enough to withstand all kinds of destruction.
+
+It had also been expected that the enemy might try making use of projectiles that “cross over the wall” like stones.
+
+But what was thrown, landing inside the First Guardian Wall, was a box made of what appeared to be metal.
+
+Its size was roughly equivalent to a medium-sized room.
+
+We moved and peered inside the First Guardian Wall.
+
+Bam!
+
+With a loud sound, one side of the box opened.
+
+From inside…
+
+[Are those… Sacraments inside…?!]
+
+Yes, Sacraments were packed inside the box.
+
+However, it seemed that quite a few of them had been crushed to death by the impact when they fell.
+
+But not all of them.
+
+Lili gritted her teeth.
+
+[Guh… A plan forcibly made because they’re Sacraments huh.]
+
+If it had been humans, it would have been nearly impossible to execute.
+
+A normal soldier would have been crushed into a mess inside the box.
+
+Or perhaps those were Sacraments specially adjusted for this purpose.
+
+Still, the number of Sacraments inside wasn’t that many.
+
+It seemed many had died from the impact when they landed.
+
+Our forces near the Second Guardian Wall could easily wipe them out.
+
+However, this situation— being attacked from behind, was enough to disrupt concentration.
+
+“We’ve been breached.”
+
+Somehow, it makes it so that feeling creeps inside our mind.
+
+It spread like panic among the soldiers on the walls, lingering there.
+
+Then…
+
+[One box at a time is bad enough… but if they keep throwing them in like this, we’re in trouble.]
+
+It didn’t matter if the Sacraments inside were crushed to death.
+
+The enemy could keep doing this.
+
+In fact,
+
+[H- Here they come again—!]
+
+One of the soldiers shouted.
+
+The boxes containing Sacraments were being thrown one after another.
+
+Some of them,
+
+Fwoosh!
+
+Were intercepted by the Sacred Eye in mid-air because they were too high up.
+
+But the enemy didn’t care. They kept throwing them.
+
+And in addition, large rocks were being hurled in as well.
+
+This kind of regular stone-throwing had been anticipated in advance.
+
+That was why there were few people inside the First Guardian Wall’s position right now.
+
+So, the damage from the stones was minimal.
+
+[Even so… Psychologically, it feels like we’re being overwhelmed. And… if those rocks hit the soldiers on the walls, they’ll be crushed.]
+
+“We can’t move, yet we’re being attacked from a distance without retaliation.”
+
+Indeed, it was mentally exhausting.
+
+The regular stones were a nasty element, too.
+
+Our forces near the Second Guardian Wall were slow to react.
+
+Yes…
+
+If they tried to eliminate the Sacraments inside the wall, they risked being crushed by falling rocks.
+
+It was no surprise that it was difficult to advance psychologically.
+
+And then—
+
+Boom!
+
+The soldiers’ eyes widened.
+
+[W- What is that…?! An explosion?!]
+
+It must have been a magic tool.
+
+Or perhaps something that used gunpowder, if such a thing existed here.
+
+One of the wooden boxes that had been thrown collided with a building and exploded.
+
+Rinji clicked his tongue.
+
+[That makes it even harder for our forces near the Second Guardian Wall to move out…]
+
+The knight commanding the area near the wall where we were stationed turned toward the enemy army.
+
+He muttered with frustration,
+
+[Guh… our trebuchet can’t reach that distance…]
+
+There were trebuchets set up inside the First Guardian Wall and along the top of the wall.
+
+However, the range of our trebuchets didn’t match that of the enemy’s.
+
+As could be seen from the box, the enemy could hurl larger rocks.
+
+Then…
+
+[Ah!]
+
+A soldier on the opposite side, facing the outside of the First Guardian Wall, pointed and shouted.
+
+We turned our attention toward it.
+
+Massive Sacraments, one after another, began carrying shallow baskets on their shoulders.
+
+Inside the baskets— once again, Sacraments were packed in.
+
+[I see… before using their siege tower or ladders to send them up the wall, they intend to have those huge Sacraments cling to the wall and clear a “path” on top of the walls.]
+
+Rinji’s words caused Lili to frown in frustration.
+
+[If that’s the case, they can skip the process of climbing the wall… And if they secure the top of the wall and create a “path”, it’ll make it easier to send the follow-up forces through the siege towers and ladders.]
+
+Moreover, we would have to split our forces to deal with the Sacraments that breached earlier, which meant diverting some of our wall forces.
+
+[So they’re trying to shut down our defensive tactics… where we attempt to reduce the number of enemies climbing the wall as much as possible.]
+
+Looking around, I could see that the soldiers on the wall were starting to get anxious.
+
+The commanding knights tried to calm them down, shouting orders to maintain their composure.
+
+During the previous grand invasion of the Great Demon Emperor, many of the elite soldiers from all the nations had fallen.
+
+Well-trained soldiers had died in large numbers.
+
+“The ones left here… their training is probably lower than that of the troops from the grand invasion.”
+
+I recalled hearing such a thing.
+
+Some of them were even civilian militia, poorly trained for battle.
+
+The troops on the eastern wall had relatively high numbers of well-trained Magnar soldiers.
+
+But even then, our numbers were simply not enough.
+
+And to make up for the lack of numbers, a significant number of poorly trained soldiers had been added.
+
+It wasn’t surprising, then, that some of them were starting to lose their composure.
+
+Even so, they were still here.
+
+They still gathered here.
+
+To protect what was important.
+
+No one could blame them.
+
+As for me personally, I felt nothing but gratitude towards them—
+
+“I don’t want to die…”
+
+I remembered the man I had heard sobbing earlier on the wall.
+
+Because the Sacraments had stopped moving while attacking from a distance, the Sacrament army was currently halted.
+
+As I watched the enemy’s long, horizontally aligned formation, I turned to Rinji and spoke.
+
+[If they get closer, I might be able to handle those huge Sacraments and siege weapons with my flames.]
+
+[Your flames are powerful after all… I’ll leave them to you, Tomohiro.]
+
+“However…”, I added.
+
+[The number I can handle is limited.]
+
+Rinji looked at me in confusion.
+
+[Huh?]
+
+The enemy’s army was spread out horizontally.
+
+If they clung to the wall, how much could I move around on top of it?
+
+How long would it take for me to move?
+
+How much area could I cover?
+
+In that case… —
+
+[…]
+
+As a thought crossed my mind, I gulped.
+
+Then, I spoke.
+
+[Could you… get confirmation on whether I’m allowed to leave through the gate and charge at them?]
+
+---
+
+---
+
+# **Someday Will I Be The Greatest Alchemist? - 571 - Parent-Child Ice Breaker**
+
+Inside the Sylphide territory, Dante was preparing to immigrate to the Sanctuary, and Darphy had to succeed the family.
+
+「…to think that succeeding as the head of the family was this simple.」  
+「You fool. It’s because it’s the House Sylphide that it’s simple. If it had been a higher rank, it would have been much more troublesome, you know?」  
+「…Father, that is not something to boast about.」
+
+In actuality, though it was called a succession of heads, Dante was handing over the role onto Darphy, and he knew the amount of paperwork that would follow.  
+The amount of paperwork in a Chevalier’s territory at the border was far less in comparison to the documents that Darphy must process in the Chivalric Order.  
+Even the paperwork that accumulated over the two months in Dante’s absence when he was at the Sanctuary was still easier than the documents Darphy had to process daily.
+
+With that in mind, one would think that it was a nice and easy as a lord, but that was a rural village in the Sylphide territory. There was no easy path for an insignificant Chevalier.
+
+As was the case with Dante and Freesia, they naturally had to cultivate and do farm work themselves. Other miscellaneous tasks in the territory were also Dante and Freesia’s jobs.
+
+Compared to the time when he was in the Order, there was definitely a lot less paperwork, but a life of part-time farmer despite being called a Lord was waiting for Darphy.
+
+「I can probably get daily necessities there, but I will need to bring clothes and underwear.」  
+「What of Mother?」
+
+Watching Dante pack clothes into a bag, Darphy asked what he would do with his mother Freesia’s clothing.
+
+According to what he heard from the servants of the mansion, she did not bring that much luggage. He didn’t hear about the Sanctuary having a store that sells clothing.
+
+「…Ahh, you have nothing to worry about if it’s Freesia.」  
+「Umm, that…」
+
+Darphy grew anxious as Dante stared into the distance for some reason. Freesia must have made some sort of mess.  
+Darphy knew. She looked like a kind and gentle mother, but she was actually very strong. That was exactly why she had Dante under her thumb, and was secretly the shadow Lord of the House Sylphide.
+
+In House Sylphide, the women were strong. His sister Sophia, and his mother Freesia.
+
+As such, in a way, Darphy acknowledged a certain man named Iruma from that despicable Human race.  
+When he met that man when he came to the Sylphide territory, and at the marriage proposal in the Sanctuary, his sister who was incompetent in any other way than fighting looked completely feminine.  
+Darphy did not personally know about how his sister was when she was still active as a knight, but when he had become a knight himself, he had heard of her incessantly from his bosses and colleagues.  
+Back then, contrary to her beauty, she did not seek for the attention of any man, and if anyone tried to talk to her frivolously, they would become a tattered rag in an alley in the Royal Kingdom.
+
+Darphy and Dante both knew that his sister Sophia was actually very similar to his mother Freesia.
+
+「At Iruma-kun’s place, I remember there’s a Unique Arachne known as Kaede-kun living there.」  
+「I see, that’s an S Rank Calamity Class monster. That makes me want to question that man’s sanity.」
+
+Even if they couldn’t see it, there was a calamity class monster always by that man’s side. Even during the wedding, its shadow had already frightened him.
+
+「So, you must be aware of how rare and luxurious Kaede-kun’s threads are.」  
+「I-impossible, are they using arachne threads for their clothing?」  
+「It’s exactly that. Iruma-kun and Sophia obviously, but even the mansion servants made everyday wear from cloth made of Kaede-kun’s threads.」  
+「Wha!? Not even His Majesty wears such clothing!」
+
+Not even the threads of a Killer Spider circulated the markets, much less a cloth weaved from the threads of a legendary monster arachne existed in the treasure room of Yggurle Kingdom.
+
+「I-is mother…」  
+「Precisely. That Freesia asked Kaede-kun so casually.」  
+「…a-ah, I see, the Sanctuary has no clothing store so, it must have been inevitable.」  
+「There are stores that sell clothing and general items even in the Sanctuary. Besides, Iruma-kun apparently has a store in the Royal Capital. If she felt like it, she could buy as much clothes as she wanted.」  
+「…how very much like Mother.」  
+「Yeah, in a positive sense, Freesia has no reservations with family.」  
+「No, wouldn’t you consider call that predatory?」  
+「No more of that, Darphy. What would you do if Freesia hears of this from the Wind Spirits?」  
+「Ah!」
+
+When told so, Darphy’s face paled as he looked around nervously.  
+Darphy was still unable to hear the voice of the Spirits, but he was still able to see where they were.
+
+「Fuu, that was dangerous.」  
+「No, we might already be too late. You can only see mid and high level Spirits, can’t you?」  
+「Ah! Oi! Don’t tattle to mother!」
+
+Darphy’s shouting was likely already too late.
+
+「Father, I will help you pack your luggage, please do something about Mother…」  
+「Yeah, I’m already troubling you with the succession, after all. I’ll do what I can about Freesia’s temper.」  
+「Thank you very much, Father.」
+
+Dante and Darphy, who couldn’t be considered close in these recent decades, had come to understand each other’s feelings. The reason for this was pitiful though.
+
+---
+
+# **Chapter 572 - Grandchild, Gramps has returned**
+
+Darphy, who grew twisted by his rivarly towards Sophia, and Dante, who couldn’t be honest with his feelings, quickly packed up the luggage and finished preparing for the journey to the Sanctuary.
+
+「I’ll leave the territory to you then, Darphy.」  
+「…I can’t say to expect much, but I shall try to do my best.」  
+「Okay, good luck, Darphy. Stay well.」
+
+Darphy looked unconvinced a s Dante looked extremely pleased. After the father and son who were of conflicting feelings parted ways at the front of the mansion, the carriage Dante rode began its journey to the Sanctuary.
+
+The process of changing heads was handled swiftly, and it did not take long for Dante to depart once more for the Sanctuary.
+
+While waiting for the process to finish, Dante was busy preparing for the travel.
+
+The carriage driver was the same as the previous time, and the guards escorting were adventurers again.  
+House Sylphide also had a few knights, but they were so few in number that it was difficult for them to leave the territory. As such, while he had hired adventurers the last time, Dante was even more reluctant to employ their knights because he was no longer the head of the family.
+
+Adventurers were hired by way of the Adventurers Guild to deliver the succession paperwork to the Royal Capital.
+
+Incidentally, at the Adventurer Guild Royal Capital branch of Yggurle Kingdom, escort requests to the Sanctuary were extremely popular. The requests that would stay in the Lodge at the annexed area were especially wanted even if the commission reward was low.
+
+「Still~ We highly appreciate that you hired us yet again, Boss.」  
+「Seriously. Boss’ request lets us get inside, after all.」  
+「Not at all, familiar faces means I won’t have to worry.」
+
+The escorting adventurers today were the same two Elven adventurers from the previous time.  
+The Elven adventurers were mainly active within Yggurle Kingdom, but ever since Wedgefort City was established as well as when the Trination Alliance built Valor, the fortress city near the Sanctuary, there was an explosive increase in escort requests from Yggurle Kingdom.  
+If it had been the old Savage Lands to the south of Yggurle Kingdom, a duo escort would have been difficult, but perhaps influenced by the Sanctuary, or if it was the large scale monster subjugation by adventurers and knights, the rate of monster encounters had vastly decreased.
+
+「Master, thank you for taking me along with you.」  
+「Volt, you’re okay with this? Immigrating with me.」  
+「Yes. As we are married couple without children, it is our long-cherished ambition to be of service to you, Master, and Madam.」  
+「Indeed so, Master.」  
+「Thanks Vault[[1]](https://www.euricette.com/greatest-alchemist-chapter-572/#GA-G1) , Luna.」
+
+There was only one change to the members in Dante’s carriage. It was that the carriage driver was not the only servant on this trip, he and his wife had also decided to immigrate to the Sanctuary.
+
+Dante had absolutely no intention of freeloading in Takumi and Sophia’s house.  
+He wasn’t going to say that he didn’t consider accepting being taken care of, but it was far too much for Dante to live in the same house as his son-in-law and keep freeloading.
+
+And so he proposed taking Vault and Luna to take care of their needs as a reason to live close to Takumi’s house.  
+Luckily, Vault and Luna gladly agreed to accompany him, and after many years of serving the family in the motherland, they were going to follow them into the Sanctuary. Dante was nothing but grateful. As to why, Freesia helped with the farming, but she was devastatingly horrible at housework. Sophia’s lack of skill with things that weren’t fighting were rooted from this.
+
+In the first place, Vault was aware of how delicious the food was and how nice the bath felt in the Sanctuary Lodge, then feeling the vast difference in quality of life upon returning to his daily life in the Sylphide Territory, he began feeling bitter about it. So, when Dante’s immigration to the Sanctuary came up, he was willing to do anything and everything to accompany him.
+
+Well, the Sanctuary where the Great Spirits had manifested was undoubtedly a special place to the Elves, and they truly did want to live there.
+
+There was no need to hurry, but the carriage boarded by Dante and the others ran on a strict schedule and finally arrived at the gate to the Sanctuary.
+
+Naturally, the Demon Horse exhausted. And so, while the two adventurers were supposed to return to Yggurle Kingdom with the carriage, they had to rest for a while before doing so.
+
+Passing through the barrier, the carriage stopped in front of the Lodge at the dejima area, and there, Takumi came to meet them. Without even noticing the perplexed look on his face, Dante came leaping out of the carriage and yelled in a loud voice.
+
+「Etoile! Etoile! It’s Gramps!」  
+「D-dante-san Etoile is waiting for you at home! She didn’t come here!」
+
+The impression that Takumi had of Dante was smashed to pieces by none other than Dante himself.
+
+---
+
+---
