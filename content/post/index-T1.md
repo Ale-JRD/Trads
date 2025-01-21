@@ -908,19 +908,19 @@ At the same time, Ars launched a counterattack at Gio during his retreat.
 
 Parrying it with his other katana, Gio leaped toward me.
 
-[So, it’s you.]
+「So, it’s you.」
 
-[Seems you’re still in one piece.]
+「Seems you’re still in one piece.」
 
 Even as he responded to me, Gio’s gaze was fixed on Ars’s equipment.
 
 The gear belonged to Armia, his comrade also belonging to the Faraway Country.
 
-[As stated in the information beforehand, communication through dialogue with this Divine Servant seems difficult. Therefore… her safety isn’t something I’m not certain about.]
+「As stated in the information beforehand, communication through dialogue with this Divine Servant seems difficult. Therefore… her safety isn’t something I’m not certain about.」
 
 At my words, Gio just responded curtly.
 
-[—I see.]
+「—I see.」
 
 The twin-bladed swordsman, crouched like a black leopard, seemed calm.
 
@@ -940,13 +940,13 @@ I recalled Touka’s words:
 
 (Even Touka acknowledged him as one of the skilled warriors…)
 
-[Perhaps it’s fortunate that I’ve met up with you here.]
+「Perhaps it’s fortunate that I’ve met up with you here.」
 
-[Same here.]
+「Same here.」
 
 Gio replied, continuing to observe Ars.
 
-[I can’t let someone who survived the outside world die in a place like this. That’s why I picked a position close to yours.]
+「I can’t let someone who survived the outside world die in a place like this. That’s why I picked a position close to yours.」
 
 I let out a soft laugh.
 
@@ -958,7 +958,7 @@ The blood he had spilled seemed to flow back into his white body.
 
 The torn flesh had also closed up.
 
-[The heart isn’t the “core” then.]
+「The heart isn’t the “core” then.」
 
 Gio noted with a keen eye.
 
@@ -972,21 +972,21 @@ When Gio attacked, Ars had instinctively protected certain areas—
 
 This likely meant that one of those areas could be Ars’ critical weak point.
 
-[So, what should we do, black leopard twin swordsman? Should we retreat from here and try to regroup with the others?]
+「So, what should we do, black leopard twin swordsman? Should we retreat from here and try to regroup with the others?」
 
 Gio stood up from his crouched stance.
 
 He adjusted his grip on his katana, careful not to apply too much force.
 
-[That depends on whether that guy would even let us escape.]
+「That depends on whether that guy would even let us escape.」
 
 (Fumu… He’s level-headed enough to consider retreat as an option…)
 
 “However…” Gio continued.
 
-[Still, I’d rather avoid making the mistake of focusing too much on retreating and getting killed because of it.]
+「Still, I’d rather avoid making the mistake of focusing too much on retreating and getting killed because of it.」
 
-[Umu.]
+「Umu.」
 
 Sometimes, attack is the best form of defense.
 
@@ -994,19 +994,19 @@ By engaging in combat, one can minimize the opportunities for the enemy to explo
 
 Sometimes, taking on a fight could even save lives, allowing time to wait for allies.
 
-[Besides—]
+「Besides—」
 
 Gio glanced at his hand.
 
-[From what I felt… He didn’t seem like something completely out of our league.]
+「From what I felt… He didn’t seem like something completely out of our league.」
 
 I shifted my stance, keeping my eyes on Ars.
 
-[—Shall we?]
+「—Shall we?」
 
 With a slight shift in his katana’s angle, Gio replied,
 
-[…Let’s give it a shot.]
+「…Let’s give it a shot.」
 
 Fighting might create an opportunity to retreat.
 
@@ -1038,7 +1038,7 @@ Ars opened his arms and assumed a stance.
 
 The blade-whips on his shoulders danced.
 
-[ ” Becoming stronger is fun… What’s wrong with that? Vysis… You sure don’t understand anything. ” ]
+「 ” Becoming stronger is fun… What’s wrong with that? Vysis… You sure don’t understand anything. ” 」
 
 Ars charged forward.
 
@@ -1074,7 +1074,7 @@ Now that I think about it, we did something like this back then.
 
 At that moment…
 
-[ ! ]
+「 ! 」
 
 A flash.
 
@@ -1082,7 +1082,7 @@ Gio’s strike cleaved through Ars’ shoulder, armor and all.
 
 The whip blade, along with the flesh from his shoulder, was sent flying through the air.
 
-[ ” Guwaaaaahhhh—!? ” ]
+「 ” Guwaaaaahhhh—!? ” 」
 
 (I see, an attack aimed at reducing the number of blade whips huh.)
 
@@ -1108,7 +1108,7 @@ They’re moving like a living creature.
 
 In the midst of the offensive and defensive exchange, Gio was about crush the separated flesh—
 
-[—]
+「—」
 
 But Gio instantly stopped his foot.
 
@@ -1118,7 +1118,7 @@ Had he stepped on it, his foot would have been exposed to the attack of the whip
 
 Glaring at the enemy, Gio spoke.
 
-[He can control even the severed parts of your body huh.]
+「He can control even the severed parts of your body huh.」
 
 (As expected, unless the “core” part is destroyed, it will continue to regenerate…?)
 
@@ -1132,7 +1132,7 @@ However— he didn’t sever it completely.
 
 It seems he was attempting to cut off the arm this time.
 
-[ ” Hahh… Hahh… Blood… Kuh… S- So strong— this guy, he’s strong…!! But I won’t lose… Like I would lose… HAAAAAHHHHH!!! ” ]
+「 ” Hahh… Hahh… Blood… Kuh… S- So strong— this guy, he’s strong…!! But I won’t lose… Like I would lose… HAAAAAHHHHH!!! ” 」
 
 His words and voice carried a fierce spirit.
 
@@ -1186,7 +1186,7 @@ Even the flesh fragments on the ground, autonomously writhing and swinging their
 
 (Gio certainly seemed to be at an advantage… but he hasn’t delivered the finishing blow yet… As expected, to decide it, it has to be a strike to the neck or torso. Ars is clearly wary of those two spots… —Hmm?)
 
-[ ” D*mn it… Shion… Even though I have to defeat the Root of All Evil and save the world— it’s just so fun… fighting is so fun! The exchange of life is fun! I’m enjoying it! Kuh… What should I do? I— as someone summoned to save this world… is this the right thing to do? Is feeling like this wrong? Answer me… Shion… Hey, Shion… say something… ” ]
+「 ” D*mn it… Shion… Even though I have to defeat the Root of All Evil and save the world— it’s just so fun… fighting is so fun! The exchange of life is fun! I’m enjoying it! Kuh… What should I do? I— as someone summoned to save this world… is this the right thing to do? Is feeling like this wrong? Answer me… Shion… Hey, Shion… say something… ” 」
 
 Ars is speaking.
 
@@ -1194,7 +1194,7 @@ Could these be the same words he spoke back when he was fighting against that ti
 
 From the context, it’s clear that he was once a Hero from Another World.
 
-[—Tch, what a creepy bastard… just listening to his words, it doesn’t even feel like we’re “fighting”…]
+「—Tch, what a creepy bastard… just listening to his words, it doesn’t even feel like we’re “fighting”…」
 
 Although Gio had inflicted numerous injuries on Ars, the battle was still in a stalemate.
 
@@ -1216,7 +1216,7 @@ Even so, I searched for a ray of hope in my own way.
 
 At that moment…
 
-[ ! ]
+「 ! 」
 
 Two more whip blades grew from Ars.
 
@@ -1230,7 +1230,7 @@ I also continued the fight.
 
 I focused my eyes.
 
-[…Gio! Could you pull back for a moment!?]
+「…Gio! Could you pull back for a moment!?」
 
 Without a word, Gio immediately jumped back.
 
@@ -1238,7 +1238,7 @@ I retreated in the opposite direction.
 
 For a brief moment, Ars hesitated, unsure of what to do.
 
-[—…I see.]
+「—…I see.」
 
 It seemed Gio understood as well.
 
@@ -1258,19 +1258,19 @@ It seems that he tried to counter by increasing his number of strikes.
 
 In a way— this could be seen as him switching to a defensive approach.
 
-[…Gio.]
+「…Gio.」
 
-[Ou.]
+「Ou.」
 
-[While facing this guy, I’m strangely feeling like there’s something out of place.]
+「While facing this guy, I’m strangely feeling like there’s something out of place.」
 
-[Something’s out of place?]
+「Something’s out of place?」
 
-[I don’t know what the cause is yet though… It’s possible I’m just guessing wrongly.]
+「I don’t know what the cause is yet though… It’s possible I’m just guessing wrongly.」
 
 Gio snorted.
 
-[Intuition’s important. Especially… when it’s the intuition of a skilled warrior.]
+「Intuition’s important. Especially… when it’s the intuition of a skilled warrior.」
 
 (Fumu…)
 
@@ -1280,17 +1280,17 @@ It seemed like Gio recognized me as one.
 
 Gio skillfully twirled his katana in his hand and said.
 
-[That out-of-place feeling you’ve got might be the key to figuring him out.]
+「That out-of-place feeling you’ve got might be the key to figuring him out.」
 
-[It’s just intuition without basis, I’m not sure it’s a good idea to take such a gamble.]
+「It’s just intuition without basis, I’m not sure it’s a good idea to take such a gamble.」
 
-[No… it’s because we’re fighting this guy that it’s worth trying.]
+「No… it’s because we’re fighting this guy that it’s worth trying.」
 
 With that, Gio leaned forward.
 
 Taking a stance that resembled a beast, he was about to pounce on its prey.
 
-[To grasp that out-of-place feeling— I’ll buy us a little more time.]
+「To grasp that out-of-place feeling— I’ll buy us a little more time.」
 
 —Fwoosh!—
 
@@ -1316,7 +1316,7 @@ We’re holding our ground.
 
 (That said, we still can’t press the attack… I also can’t figure out the source of that out-of-place feeling… Maybe it really is just my imagination—)
 
-[ ! ]
+「 ! 」
 
 In an instant, Gio’s movements changed.
 
@@ -1338,7 +1338,7 @@ The shield shook violently, and I could tell Ars gripped it even tighter.
 
 Gio feigned a strike at Ars’ torso, then drove one of his katanas into Ars’ thigh.
 
-[ ” Uooooooohhhhh—! ” ]
+「 ” Uooooooohhhhh—! ” 」
 
 Ars roared in agony. Gio, unaffected by the sound, gripped the hilt of his remaining katana firmly with both hands.
 
@@ -1350,13 +1350,13 @@ Gio’s target was clear.
 
 He’s— aiming to sever Ars’ torso.
 
-[ ” Like hell I’ll let you do that—! ” ]
+「 ” Like hell I’ll let you do that—! ” 」
 
 Ars roared again.
 
 In that moment— my world went silent.
 
-[—]
+「—」
 
 The sea of my thoughts, clearer and more transparent than ever.
 
@@ -1424,7 +1424,7 @@ Thus—
 
 (With this one strike—)
 
-[ ” You lot, not bad— ” ]
+「 ” You lot, not bad— ” 」
 
 — Swoosh! —
 
@@ -1444,29 +1444,29 @@ After exchanging a word with them, I waited for my turn.
 
 Then, Gio Shadowblade spoke to me.
 
-[You can manipulate magic power, can’t you?]
+「You can manipulate magic power, can’t you?」
 
-[Umu.]
+「Umu.」
 
 When I answered, Gio handed me two swords.
 
-[Take these.]
+「Take these.」
 
 Rather startled when the swords were almost thrust into my hands. I examined them.
 
-[Katanas huh…They seem quite old.]
+「Katanas huh…They seem quite old.」
 
-[They came from a Sealed Treasury in our Faraway Country. Apparently, they’re Ancient Magic Weapons. Just a little magic power makes them lighter and sharper.]
+「They came from a Sealed Treasury in our Faraway Country. Apparently, they’re Ancient Magic Weapons. Just a little magic power makes them lighter and sharper.」
 
-[You’re giving these to me?]
+「You’re giving these to me?」
 
-[I’ve got these.]
+「I’ve got these.」
 
 Gio motioned toward the two black sheathed swords strapped in a cross behind his waist.
 
-[I don’t need four swords. Besides, your sword looks kinda fragile.]
+「I don’t need four swords. Besides, your sword looks kinda fragile.」
 
-[This sword of mine is not without its merits. But I’ll accept your gift gratefully.”
+「This sword of mine is not without its merits. But I’ll accept your gift gratefully.”
 
 I drew the katana and tested its grip.
 
@@ -1474,15 +1474,15 @@ As I infused a slight amount of magic power into it, the blade glowed faintly.
 
 After a few swings to familiarize myself with its feel, I returned it to its sheath.
 
-[What fine weapons.]
+「What fine weapons.」
 
-[You figured it out after just a few swings? Well, I guess that reaction proves you’ve got the knack for it.]
+「You figured it out after just a few swings? Well, I guess that reaction proves you’ve got the knack for it.」
 
-[And your ability to tell that shows you’re no ordinary swordsman.]
+「And your ability to tell that shows you’re no ordinary swordsman.」
 
 Gio shifted the topic.
 
-[This labyrinth entry… I heard only those ready to die were chosen for it.]
+「This labyrinth entry… I heard only those ready to die were chosen for it.」
 
 Volunteers from various nations.
 
@@ -1506,29 +1506,29 @@ When my turn came, I began walking toward the entrance.
 
 Gio joined me, walking at my side.
 
-[However… I have no intention of dying. The most important woman in my life is about to give birth to my child. Until I see that kid’s face, there’s no way I’m dying. So even if I have to die, I won’t.]
+「However… I have no intention of dying. The most important woman in my life is about to give birth to my child. Until I see that kid’s face, there’s no way I’m dying. So even if I have to die, I won’t.」
 
-[And yet, you’re still joining this battle.]
+「And yet, you’re still joining this battle.」
 
-[Of course I am. I’m doing this to protect the future of my unborn child… and the woman who’s bringing them into this world.]
+「Of course I am. I’m doing this to protect the future of my unborn child… and the woman who’s bringing them into this world.」
 
 “You already knew that, didn’t you?”, Gio grumbled.
 
 I smiled.
 
-[I feel the same way.]
+「I feel the same way.」
 
 I turned to look at the familiar who was watching me from Nyaki’s shoulder.
 
-[I’m not going to die.]
+「I’m not going to die.」
 
 I said.
 
-[We’re going to save our future.]
+「We’re going to save our future.」
 
 ---
 
-[—, …]
+「—, …」
 
 Landing on the ground, I felt a sharp pain.
 
@@ -1564,13 +1564,13 @@ But then—
 
 —Fwoosh!
 
-[ ! ]
+「 ! 」
 
 Without hesitation, Gio severed the split part of his left arm with the katana in his right hand.
 
 And then—
 
-[Can you… buy me just a little time?]
+「Can you… buy me just a little time?」
 
 Clenching a cord between his teeth, Gio used it to tie off his arm near the base, stopping the bleeding.
 
@@ -1580,9 +1580,9 @@ I deflected the incoming whip blade with my katana and slid in front of Gio as a
 
 After quickly finishing his makeshift first aid, Gio clicked his tongue.
 
-[I was covering my leg, so I let my guard down on my arm… D*mn it, this Divine Servant’s speed and strength exceeded expectations. Maybe he was hiding his true power until now, and this sense of urgency brought it out.]
+「I was covering my leg, so I let my guard down on my arm… D*mn it, this Divine Servant’s speed and strength exceeded expectations. Maybe he was hiding his true power until now, and this sense of urgency brought it out.」
 
-[…That might be the case.]
+「…That might be the case.」
 
 Ars’ severed head lay on the ground.
 
@@ -1600,7 +1600,7 @@ Ideally, I wanted to completely destroy that head.
 
 But Ars’s body— now headless yet more menacing and with fewer openings, wouldn’t allow it.
 
-[ ” Amazing, this is amazing… Human, monster, demon, it doesn’t matter. Fighting strong opponents makes me happy! I’ll defeat you all— and grow even stronger! ” ]
+「 ” Amazing, this is amazing… Human, monster, demon, it doesn’t matter. Fighting strong opponents makes me happy! I’ll defeat you all— and grow even stronger! ” 」
 
 (Even severing the neck and splitting the head in two isn’t enough to stop him… Does that mean the true weak point is in the torso?)
 
@@ -1638,13 +1638,13 @@ If that’s the case, even if I were to sever the remaining torso, it might not 
 
 Perhaps having arrived at the same conclusion, Gio spoke.
 
-[There’s a chance its regeneration has limits… If that’s true, we’d have to keep hitting it with fatal-level attacks nonstop…]
+「There’s a chance its regeneration has limits… If that’s true, we’d have to keep hitting it with fatal-level attacks nonstop…」
 
 Narrowing his eyes, Gio stared at Ars with frustration etched on his face.
 
 I could understand his feelings.
 
-[ ” What’s the matter!? Come on! I stopped in this village because I wanted to fight you! Right now, I’m not the hero trying to save the world— I’m just the warrior, Ars! Not enough… I’m not done yet! You’re not saying that is it, right!? ” ]
+「 ” What’s the matter!? Come on! I stopped in this village because I wanted to fight you! Right now, I’m not the hero trying to save the world— I’m just the warrior, Ars! Not enough… I’m not done yet! You’re not saying that is it, right!? ” 」
 
 Ars’ combat ability had undoubtedly improved since our first encounter.
 
@@ -1656,9 +1656,9 @@ The severed head and the fragments of flesh cut from the shoulder area.
 
 They were already starting to reattach.
 
-[ ” Vysis… I may have grown too strong. But I still want to feel that razor-thin edge between life and death again… Like when I first became a hero… I want that thrilling battle. And— I want to fight and win against someone like that. ” ]
+「 ” Vysis… I may have grown too strong. But I still want to feel that razor-thin edge between life and death again… Like when I first became a hero… I want that thrilling battle. And— I want to fight and win against someone like that. ” 」
 
-[…]
+「…」
 
 A strange unease lingered within me.
 
@@ -1758,7 +1758,7 @@ It’s only when warriors fight to the death with everything they have that it�
 
 In any case— this means Ars is probably not holding back.
 
-[—]
+「—」
 
 At that moment, I suddenly realized something.
 
@@ -1768,11 +1768,11 @@ An image materialized in my mind.
 
 (There’s only one way this could be possible. But if that’s the case… for anyone fighting Ars, it could be seen as a “trap”—)
 
-[…Gio.]
+「…Gio.」
 
-[Did you figure it out?]
+「Did you figure it out?」
 
-[Probably, but this Divine Servant…]
+「Probably, but this Divine Servant…」
 
 Ars is waiting now.
 
@@ -1780,11 +1780,11 @@ He’s waiting for our next move.
 
 I spoke.
 
-[Could it be that this Divine Servant has a tendency to match— or perhaps, just “slightly surpass”, the fighting abilities of his opponents?]
+「Could it be that this Divine Servant has a tendency to match— or perhaps, just “slightly surpass”, the fighting abilities of his opponents?」
 
-[—, …The heck is that supposed to mean?]
+「—, …The heck is that supposed to mean?」
 
-[Umu… I’m not fully sure of what I’m saying either. But, if I were to put it into words, that’s the best I can come up with.]
+「Umu… I’m not fully sure of what I’m saying either. But, if I were to put it into words, that’s the best I can come up with.」
 
 “I want to fight and win against someone like that.”
 
@@ -1798,9 +1798,9 @@ If that’s Ars’ desire, then the conclusion I’m coming to is the same as my
 
 And if I’m right, the issue with this trait is—
 
-[So, you’re saying… the stronger the opponent, the stronger this Divine Servant becomes?]
+「So, you’re saying… the stronger the opponent, the stronger this Divine Servant becomes?」
 
-[Umu… He’d just be a little stronger than the opponent.]
+「Umu… He’d just be a little stronger than the opponent.」
 
 That is why—
 
@@ -1814,9 +1814,9 @@ He’s lowering his combat ability just enough to make it seem like we’re in a
 
 And most likely, Ars is doing this unconsciously.
 
-[You mean to say I came in stronger, so Ars turned into an even more troublesome opponent?]
+「You mean to say I came in stronger, so Ars turned into an even more troublesome opponent?」
 
-[—That’s what I think. The stronger the opponent, the more he evolves… it could be phrased like that.]
+「—That’s what I think. The stronger the opponent, the more he evolves… it could be phrased like that.」
 
 Strength.
 
@@ -1830,21 +1830,21 @@ Regeneration speed.
 
 Everything.
 
-[However… if we use tactics like we did earlier, we might manage a temporary “win”. But… unless we can completely destroy whatever critical part of Ars exists, that win would just be nullified by his regeneration. And even as he regenerates… he’ll continue fighting.]
+「However… if we use tactics like we did earlier, we might manage a temporary “win”. But… unless we can completely destroy whatever critical part of Ars exists, that win would just be nullified by his regeneration. And even as he regenerates… he’ll continue fighting.」
 
 Even if he’s reduced to just chunks of flesh— He’ll keep moving.
 
 Evolving.
 
-[…What a headache.]
+「…What a headache.」
 
-[Yeah.]
+「Yeah.」
 
 We can’t find any way to deal with him.
 
-[The true core being in the remaining torso, there’s such a possibility but…]
+「The true core being in the remaining torso, there’s such a possibility but…」
 
-[…Hmm.]
+「…Hmm.」
 
 I weakly agree with Gio, but there’s no argument from him.
 
@@ -1862,7 +1862,7 @@ The katana he was holding in the severed arm now lies on the ground.
 
 Noticing my gaze, Gio speaks up.
 
-[Anyway, that blade over there got a crack in it from the earlier fight. And it feels like that b*stard’s body is even harder now…]
+「Anyway, that blade over there got a crack in it from the earlier fight. And it feels like that b*stard’s body is even harder now…」
 
 Though not as badly as Gio’s, my own arm is injured too.
 
@@ -1870,7 +1870,7 @@ It’s hard to keep delivering fatal blows in our current state.
 
 And most importantly— there’s no guarantee we could take him down even if we did.
 
-[Guh…]
+「Guh…」
 
 A stronger opponent, continuing to regenerate.
 
@@ -1898,17 +1898,17 @@ And then, I think.
 
 (…Liz)
 
-[I’m sorry, Gio. We have to retreat.]
+「I’m sorry, Gio. We have to retreat.」
 
-[Ou.]
+「Ou.」
 
-[Hm, this is unexpected… You listened surprisingly well.]
+「Hm, this is unexpected… You listened surprisingly well.」
 
-[You got that guy’s seal of approval. When it comes to fighting, I trust your judgment.]
+「You got that guy’s seal of approval. When it comes to fighting, I trust your judgment.」
 
-[Can you still run?]
+「Can you still run?」
 
-[You can see it for yourself— my legs are still working.]
+「You can see it for yourself— my legs are still working.」
 
 I look for the opportunity to flee—
 
@@ -1928,7 +1928,7 @@ From behind us.
 
 I feel like— I heard his voice.
 
-[                     — I will kill you. —                     ]
+「                     — I will kill you. —                     」
 
 A distorted voice.
 
@@ -1960,11 +1960,11 @@ Right now, Ars was about 30 reters behind, chasing us.
 
 We had tried to get ahead a few times, but after a brief defense, we changed direction and somehow managed to escape.
 
-[Are you alright, Gio!?]
+「Are you alright, Gio!?」
 
-[Hahh… hahh… Looks like you’d be faster than me in a race…]
+「Hahh… hahh… Looks like you’d be faster than me in a race…」
 
-[You’ve taken a serious wound… In situations like this, I should buy us some time.]
+「You’ve taken a serious wound… In situations like this, I should buy us some time.」
 
 I focused on listening carefully. I could faintly hear Ars’ footsteps.
 
@@ -1986,23 +1986,23 @@ If that’s the case…
 
 Gio, still catching his breath…
 
-[I don’t know how exactly you’re feeling responsible, but don’t even think about staying behind and buying time, got it?]
+「I don’t know how exactly you’re feeling responsible, but don’t even think about staying behind and buying time, got it?」
 
-[But… if my guess is right, that would be the best way to buy time.]
+「But… if my guess is right, that would be the best way to buy time.」
 
-[Even with one arm, I’m stronger than you.]
+「Even with one arm, I’m stronger than you.」
 
-[This isn’t about that.]
+「This isn’t about that.」
 
-[Hahh… hahh… Your face right now… it looks like you’re about to face death.]
+「Hahh… hahh… Your face right now… it looks like you’re about to face death.」
 
-[—]
+「—」
 
-[There’s someone waiting for you to come back alive… right!?]
+「There’s someone waiting for you to come back alive… right!?」
 
 From behind, I heard Ars’ voice.
 
-[ ” Don’t run away—! If you escape now, you’ll probably run for the rest of your life! If you don’t stand your ground now, when will you?! You ran from the Golden Eyes before… you lost someone important, right?! Are you going to lose someone again by running away?! Leaving behind the child, the memento of the person you lost?! I mean… What about that monster with the human face and Golden Eyes… What’s the big deal? If I kill it, I can! That Golden Eyes with human face is going down! I’ll kill it! I swear I will… So, I leave my comrades and the other Golden Eyes to you! I’ll kill that one! I’ll kill it— kill it, kill it, kill it! I’ll kill it! ” ]
+「 ” Don’t run away—! If you escape now, you’ll probably run for the rest of your life! If you don’t stand your ground now, when will you?! You ran from the Golden Eyes before… you lost someone important, right?! Are you going to lose someone again by running away?! Leaving behind the child, the memento of the person you lost?! I mean… What about that monster with the human face and Golden Eyes… What’s the big deal? If I kill it, I can! That Golden Eyes with human face is going down! I’ll kill it! I swear I will… So, I leave my comrades and the other Golden Eyes to you! I’ll kill that one! I’ll kill it— kill it, kill it, kill it! I’ll kill it! ” 」
 
 His words sounded full of desperate resolve.
 
@@ -2010,31 +2010,31 @@ Perhaps those were words Ars had said when he fought a Human-Faced back when he 
 
 Gio glanced behind to gauge the distance between us and Ars.
 
-[We’re still fine…]
+「We’re still fine…」
 
-[ ? ]
+「 ? 」
 
-[When it comes to this kind of thing, the ones waiting are the ones who suffer more.]
+「When it comes to this kind of thing, the ones waiting are the ones who suffer more.」
 
-[…!]
+「…!」
 
-[So, don’t say anything stupid for the sake of the ones waiting for you!]
+「So, don’t say anything stupid for the sake of the ones waiting for you!」
 
-[…Sorry.]
+「…Sorry.」
 
-[Well— having a strong sense of responsibility isn’t a bad thing.]
+「Well— having a strong sense of responsibility isn’t a bad thing.」
 
 I smiled softly.
 
-[What’s with that?]
+「What’s with that?」
 
-[Well… I think I heard something similar from Touka before.]
+「Well… I think I heard something similar from Touka before.」
 
-[Yeah, he’d say that.]
+「Yeah, he’d say that.」
 
-[…?]
+「…?」
 
-[I can totally see him saying that.]
+「I can totally see him saying that.」
 
 I see.
 
@@ -2062,21 +2062,21 @@ If that wasn’t the case…
 
 It would be better for both of us if I hold onto the lighter Magic Sword I had…
 
-[Divine Servant… I didn’t realize they could be this troublesome.]
+「Divine Servant… I didn’t realize they could be this troublesome.」
 
 Gio muttered irritably.
 
-[But, the information we gathered in our fight with Ars might be invaluable. If we happen to meet an ally capable of defeating that Divine Servant, at least they wouldn’t have to go through the same close-quarters battle we did— And… maybe, our information will be the key to victory.]
+「But, the information we gathered in our fight with Ars might be invaluable. If we happen to meet an ally capable of defeating that Divine Servant, at least they wouldn’t have to go through the same close-quarters battle we did— And… maybe, our information will be the key to victory.」
 
 I turned forward and continued.
 
-[It’s definitely worth passing on.]
+「It’s definitely worth passing on.」
 
 Gio tried to speak again.
 
 But I raised a finger to my lips, signaling for silence.
 
-[—There’s someone ahead.]
+「—There’s someone ahead.」
 
 And then, those figures appeared.
 
@@ -2084,17 +2084,17 @@ There were five medium-sized Sacraments.
 
 Gio asked.
 
-[Can you handle them?]
+「Can you handle them?」
 
-[We have no choice but to.]
+「We have no choice but to.」
 
 Without stopping, the two of us took an attacking stance.
 
-[Listen, don’t stop running… just focus on charging through— any that you miss will just be dragged along.]
+「Listen, don’t stop running… just focus on charging through— any that you miss will just be dragged along.」
 
-[Understood.]
+「Understood.」
 
-[—Let’s go.]
+「—Let’s go.」
 
 Without losing any momentum, the two of us swung our blades as we charged through.
 
@@ -2112,7 +2112,7 @@ Then, when I turned to check on Ars, what I saw was—
 
 The two Sacraments we had missed, their torn bodies fluttering through the air.
 
-[ ” It doesn’t matter if you’re enemy or ally! Don’t get in the way of my fight! Uwooooohhhhh—! ” ]
+「 ” It doesn’t matter if you’re enemy or ally! Don’t get in the way of my fight! Uwooooohhhhh—! ” 」
 
 The gap with Ars was closing even more.
 
@@ -2124,23 +2124,23 @@ I gritted my teeth and faced forward.
 
 Somehow…
 
-[—, …Gio, listen carefully!]
+「—, …Gio, listen carefully!」
 
 I shouted, pushing my voice out as much as I could.
 
-[I recognize this path! I’m sure it splits ahead, left and right! We’ll split into two and escape! Got it!?]
+「I recognize this path! I’m sure it splits ahead, left and right! We’ll split into two and escape! Got it!?」
 
-[Huh!?]
+「Huh!?」
 
-[It’s all or nothing! We have to join up with allies who can fight that monster with the seemingly endless regeneration! Of those of us with information on him— one of us has to tell them! The distance to that Divine Servant is already under 20 reters! He’ll be close enough to strike with his whip-blades soon! If things keep going like this— he’ll catch up! Then, even if we split up… one of us must pass on the information we got from fighting Ars! We must hold on!]
+「It’s all or nothing! We have to join up with allies who can fight that monster with the seemingly endless regeneration! Of those of us with information on him— one of us has to tell them! The distance to that Divine Servant is already under 20 reters! He’ll be close enough to strike with his whip-blades soon! If things keep going like this— he’ll catch up! Then, even if we split up… one of us must pass on the information we got from fighting Ars! We must hold on!」
 
-[You… what are you—]
+「You… what are you—」
 
-[First— we’ll keep charging straight ahead, drawing Ars with us! Let’s go!]
+「First— we’ll keep charging straight ahead, drawing Ars with us! Let’s go!」
 
-[—Tch, fine! I told you! I trust your judgment! I won’t go back on the words I said earlier!]
+「—Tch, fine! I told you! I trust your judgment! I won’t go back on the words I said earlier!」
 
-[You have my gratitude!]
+「You have my gratitude!」
 
 We passed through the corridor and emerged into a wider space.
 
@@ -2152,7 +2152,7 @@ Gio and I, having entered the room, aimed for the path directly across from us.
 
 A bit delayed, Ars also leaped into the room and started following us.
 
-[ ” WAAAAAAAAIT—! WAIT A D*MN MINUUUUUUUTE—! ” ]
+「 ” WAAAAAAAAIT—! WAIT A D*MN MINUUUUUUUTE—! ” 」
 
 I turned back.
 
@@ -2162,7 +2162,7 @@ Thud!
 
 Unable to slow down in time, I crashed into the white wall of the room with my back.
 
-[Ugh…!]
+「Ugh…!」
 
 ---
 
@@ -2218,7 +2218,7 @@ My eyes captured it.
 
 The silver-haired woman opening her mouth…
 
-[                     Binding Curse, Unleash.                     ]
+「                     Binding Curse, Unleash.                     」
 
 The shining blade of the Princess Knight, stepping forward, deflecting the approaching whip blades.
 
@@ -2226,11 +2226,11 @@ And seeing the black-clad man with scorching eyes…
 
 His outstretched arm directed towards Ars—
 
-[—Paralyze-—]
+「—Paralyze-—」
 
 I called out the man’s name.
 
-[Touka.]
+「Touka.」
 
 ---
 
@@ -2286,19 +2286,19 @@ Considering the possibility of them being enchanted, we still opted to use the F
 
 As Loqierra had anticipated, -Dispel Bubble- hadn’t been casted.
 
-[— - Paralyze - —]
+「— - Paralyze - —」
 
-[ ” Oi!? What is— ” ]
+「 ” Oi!? What is— ” 」
 
 —Crack, Snap—
 
 Paralysis effect— successful.
 
-[ - Ber—]
+「 - Ber—」
 
-[ F o u n d    y o u . ]
+「 F o u n d    y o u . 」
 
-[—serk - !]
+「—serk - !」
 
 From the gaps in Ars’ armor, a fountain of red blood gushed out vigorously.
 
@@ -2308,9 +2308,9 @@ I was already moving on to my next action.
 
 At this range, I might as well—
 
-[ - Dark - ! …]
+「 - Dark - ! …」
 
-[ ” ! ? My vision… has been taken away!? I can’t… see anything!? Kuh… Stay calm… Remember what Master taught me… Don’t rely solely on sight… The wind… the wind… The presence of life… The “form”… will guide me! Stay calm… me! ” ]
+「 ” ! ? My vision… has been taken away!? I can’t… see anything!? Kuh… Stay calm… Remember what Master taught me… Don’t rely solely on sight… The wind… the wind… The presence of life… The “form”… will guide me! Stay calm… me! ” 」
 
 Even while spewing blood— he’s still moving.
 
@@ -2328,7 +2328,7 @@ The blood.
 
 Is it… flowing backward inside his body?
 
-[… - Poison - !]
+「… - Poison - !」
 
 Ars’ white body began turning purple.
 
@@ -2336,7 +2336,7 @@ Bubbles indicating poison appeared on his body as well.
 
 After this… Will the continued damage be enough to take him down—
 
-[…]
+「…」
 
 Still, around Ars, those blade-like tentacles were moving.
 
@@ -2344,13 +2344,13 @@ As if to protect him.
 
 Those must be— the “blade whips” Eve mentioned earlier huh…
 
-[ ! ]
+「 ! 」
 
 Ars dropped to one knee on the ground.
 
 However, the blade whips…
 
-[…What is this?]
+「…What is this?」
 
 Their speed and intensity were rapidly increasing.
 
@@ -2376,7 +2376,7 @@ Even Seras’s truth detection might not work effectively against him.
 
 Most of all…, —
 
-[…]
+「…」
 
 Should I trust in the efficacy of -Poison- and wait for him to die?
 
@@ -2392,11 +2392,11 @@ Should Seras use her Origin Regalia to finish this in one blow?
 
 Should I get closer myself… and try to put him to sleep with -Sleep-…
 
-[Touka!]
+「Touka!」
 
 Eve’s voice.
 
-[There is something I need to tell you!]
+「There is something I need to tell you!」
 
 I kept my eyes on Ars and listened to Eve’s words.
 
@@ -2410,11 +2410,11 @@ Eve interjected to say its range had increased compared to their last fight.
 
 While Seras deflected the blade whips, I finished hearing the information.
 
-[…I see.]
+「…I see.」
 
-[Of course, that’s assuming my theory is correct.]
+「Of course, that’s assuming my theory is correct.」
 
-[No… judging from Ars’ behavior, it doesn’t seem wrong… It’s probably better to act based on that assumption.]
+「No… judging from Ars’ behavior, it doesn’t seem wrong… It’s probably better to act based on that assumption.」
 
 In other words.
 
@@ -2442,31 +2442,31 @@ It could also mean “he has encountered the perfect prey to trigger further evo
 
 In that sense…
 
-[Using Origin Regalia here might provoke even more undesirable evolution.]
+「Using Origin Regalia here might provoke even more undesirable evolution.」
 
 Eve said.
 
-[…On the other hand, do you think it’s worth taking the chance to finish him off with the Origin Regalia?]
+「…On the other hand, do you think it’s worth taking the chance to finish him off with the Origin Regalia?」
 
-[Honestly… I don’t know. I thought maybe we could tear him into pieces… but I can’t be sure.]
+「Honestly… I don’t know. I thought maybe we could tear him into pieces… but I can’t be sure.」
 
-[If Seras uses Origin Regalia, it’s highly likely she’d cut him to pieces… it could also make him completely unbeatable.]
+「If Seras uses Origin Regalia, it’s highly likely she’d cut him to pieces… it could also make him completely unbeatable.」
 
-[If we’re doing it, I’ll join in too.]
+「If we’re doing it, I’ll join in too.」
 
 That voice came from Gio Shadowblade, who seemed to have regrouped with Eve.
 
 Noticing something, I spoke.
 
-[…Gio, the equipment that Divine Servant is using—]
+「…Gio, the equipment that Divine Servant is using—」
 
-[We’ll deal with that later.]
+「We’ll deal with that later.」
 
 Gio cut me off and continued.
 
-[We can’t check that until we kill him first.]
+「We can’t check that until we kill him first.」
 
-[—Got it. If you’re joining, Gio… you and Eve protect Munin.]
+「—Got it. If you’re joining, Gio… you and Eve protect Munin.」
 
 In this case…
 
@@ -2478,17 +2478,17 @@ There’s also the possibility of reinforcements arriving through other passages
 
 I confirmed something with Gio first.
 
-[Are your injuries okay?]
+「Are your injuries okay?」
 
-[With Eve’s support, I’m good enough to deflect the blade whips.]
+「With Eve’s support, I’m good enough to deflect the blade whips.」
 
-[—I see.]
+「—I see.」
 
 Eve and Gio moved to guard Munin.
 
 If our conversation had been heard by Ars—
 
-[ ” Even if… I kill humans… I won’t gain… Soul Power… What are you saying, Vysis… They’re still alive… Those I’ve killed… Even without Soul Power… They’re still living… inside me! They’re still alive! In my heart! Don’t— Don’t insult them! The dead… the warriors who fell by my hand! …Huh? I’m crazy? Me…? ” ]
+「 ” Even if… I kill humans… I won’t gain… Soul Power… What are you saying, Vysis… They’re still alive… Those I’ve killed… Even without Soul Power… They’re still living… inside me! They’re still alive! In my heart! Don’t— Don’t insult them! The dead… the warriors who fell by my hand! …Huh? I’m crazy? Me…? ” 」
 
 …There doesn’t seem to be any notable reaction.
 
@@ -2496,7 +2496,7 @@ The content of the words doesn’t seem to have any significant meaning in the c
 
 It seems difficult to apply a truth judgment to this.
 
-[…]
+「…」
 
 Ars isn’t just affected by -Paralyze-.
 
@@ -2508,11 +2508,11 @@ Now, it’s no longer just the blade whips.
 
 Ars himself…
 
-[ ” Just with techniques… I want to fight… With the Soul Power… With the Goddess’ Blessing… I’ve become too strong… but if we’re fighting with just techniques— with just skills… If it’s justjustjustskillskillskillskillskillskill, under the same conditions… I can fifififight… A battle above blades— is one— itititit shall be! ” ]
+「 ” Just with techniques… I want to fight… With the Soul Power… With the Goddess’ Blessing… I’ve become too strong… but if we’re fighting with just techniques— with just skills… If it’s justjustjustskillskillskillskillskillskill, under the same conditions… I can fifififight… A battle above blades— is one— itititit shall be! ” 」
 
 He stood up.
 
-[…]
+「…」
 
 —What the heck is this?
 
@@ -2536,13 +2536,13 @@ Probably due to the influence of -Berserk-, he was trying to charge forward.
 
 And that spurted blood… like a reversed spray, it also returned to his body…
 
-[…]
+「…」
 
 I suppose I should test it out huh.
 
-[Seras.]
+「Seras.」
 
-[Understood.]
+「Understood.」
 
 Seras…
 
@@ -2576,11 +2576,11 @@ With the speed of Seras Ashrain’s single sword…
 
 It surpassed all of them.
 
-[ — - Sleep - — ]
+「 — - Sleep - — 」
 
-[ ” Good… nigh—“… “—Good morning! Today is also a good “Good nigh “Good mo “Good ni “Good mo “Good mo “Good ni” “Good “Nigh “Goodmomomomomogoodnininininininini— ]
+「 ” Good… nigh—“… “—Good morning! Today is also a good “Good nigh “Good mo “Good ni “Good mo “Good mo “Good ni” “Good “Nigh “Goodmomomomomogoodnininininininini— 」
 
-[…]
+「…」
 
 This guy…
 
@@ -2590,11 +2590,11 @@ Eve had mentioned it earlier.
 
 His seemingly infinite regeneration.
 
-[Touka-dono…]
+「Touka-dono…」
 
-[— …Take some distance.]
+「— …Take some distance.」
 
-[Yes!]
+「Yes!」
 
 With Seras intercepting Ars’ attacks, we took distance.
 
@@ -2602,11 +2602,11 @@ Ars was staggering.
 
 But even in this unsteady state, he…
 
-[The gap… is narrowed.]
+「The gap… is narrowed.」
 
 Or rather—
 
-[ ” Everyoneoneoneoneone’s deadeadeadeadeadead— I— I killedkilledkilledkilledkilledkilledkilled them— whywhywhywhywhywhywhywhywhywhywhywhy thathathathat look on youryouryouryour face, Vysiiiiiiiiiiis—? Whowhowhowhowho— amamamam I— WHO AM I!? ” ]
+「 ” Everyoneoneoneoneone’s deadeadeadeadeadead— I— I killedkilledkilledkilledkilledkilledkilled them— whywhywhywhywhywhywhywhywhywhywhywhy thathathathat look on youryouryouryour face, Vysiiiiiiiiiiis—? Whowhowhowhowho— amamamam I— WHO AM I!? ” 」
 
 As if he was straight out of a badly done clay animation—
 
@@ -2630,7 +2630,7 @@ Red gums and golden teeth.
 
 The inside of the mouth was filled with darkness.
 
-[ ” Vysi… Vysisisis…! I— I— I’m scared—Before I knew it— I’ve killed— too many— Killkillkill me— please— kill me! ” ]
+「 ” Vysi… Vysisisis…! I— I— I’m scared—Before I knew it— I’ve killed— too many— Killkillkill me— please— kill me! ” 」
 
 …It seems that it wasn’t just my imagination after all.
 
@@ -2670,11 +2670,11 @@ My instincts are telling me…
 
 If I let this thing “evolve” further… something catastrophic will happen—
 
-[Seras.]
+「Seras.」
 
 I called out to Seras, who had been watching Ars while maintaining her battle stance.
 
-[Yes.]
+「Yes.」
 
 As expected, I still want her to conserve her Origin Regalia.
 
@@ -2688,9 +2688,9 @@ There certainly is Sogou Ayaka, who is a close-range fighter of equal rank as he
 
 However— no one else can adapt to me like Seras can.
 
-[I’m counting on you.]
+「I’m counting on you.」
 
-[I understand!]
+「I understand!」
 
 With my step forward, Seras understood everything.
 
@@ -2706,9 +2706,9 @@ I felt a sharp determination coming from Seras’s back.
 
 Seras spoke briefly.
 
-[I’m sorry— I will use it just a bit.]
+「I’m sorry— I will use it just a bit.」
 
-[…I leave that to you.]
+「…I leave that to you.」
 
 Seras activated her Origin Regalia, but only from the elbows down.
 
@@ -2716,19 +2716,19 @@ Ars’ blade whips— now more ominous and faster.
 
 And even under the effect of five Abnormal State Skills, Ars spoke.
 
-[ ” I will become strongstrongstrongeeeeeeer ” I will winwinwinwinwin this fight ” Vysisisisisisi ” I won’t lololololose ” This will be easyyyyyy ” Peacepeacepeacepeacepeace ” I will definitelylylylylylyly save youuuuuuuuuu ” Killkillkillkillkillkillkillkillkillkillkillkillkillkillkillkillkillkill ■■■■■■—]
+「 ” I will become strongstrongstrongeeeeeeer ” I will winwinwinwinwin this fight ” Vysisisisisisi ” I won’t lololololose ” This will be easyyyyyy ” Peacepeacepeacepeacepeace ” I will definitelylylylylylyly save youuuuuuuuuu ” Killkillkillkillkillkillkillkillkillkillkillkillkillkillkillkillkillkill ■■■■■■—」
 
 He took a definite stance.
 
-[              I w■l ki■ you              ]
+「              I w■l ki■ you              」
 
 —This distance, created for me by Seras—
 
-[ — - Freeze - — ]
+「 — - Freeze - — 」
 
 I deactivated all my other skills— and casted -Freeze-.
 
-[ “— ” —Ah.]
+「 “— ” —Ah.」
 
 …Crack… Snap… Crunch…
 
@@ -2736,7 +2736,7 @@ Ars’ body began to freeze.
 
 The movement of the blade whips also came to a halt.
 
-[—]
+「—」
 
 …Evolution, huh.
 
@@ -2776,7 +2776,7 @@ There was only one slot left in the limit of three targets for this skill.
 
 For my Abnormal State Skill -Freeze-— that was my last shot.
 
-[…]
+「…」
 
 Seras and I maintained some distance, keeping ourselves in a battle-ready stance.
 
@@ -2794,7 +2794,7 @@ Is this guy also “adapting”— evolving to counter -Freeze-?
 
 No… as usual— I’ll have to come up with the next move somehow.
 
-[No matter how it turns out… there must be a way.]
+「No matter how it turns out… there must be a way.」
 
 I kept my thoughts active.
 
@@ -2802,7 +2802,7 @@ Always think.
 
 Think of the next move.
 
-[ ” I give you… my thanks… Vy… sis… I am… too dangerous… I… Ars Monroy… should disappear… from this world… An existence… that should be erased… ” ]
+「 ” I give you… my thanks… Vy… sis… I am… too dangerous… I… Ars Monroy… should disappear… from this world… An existence… that should be erased… ” 」
 
 Ars reached out toward us.
 
@@ -2820,15 +2820,15 @@ Perhaps… —
 
 The ice spread, encroaching on the white Divine Servant.
 
-[ ” Hey, Vysis, last question… Can I ask something? ” ]
+「 ” Hey, Vysis, last question… Can I ask something? ” 」
 
 Ars said.
 
-[ ” If the two of us fought— who would be stronger? ” ]
+「 ” If the two of us fought— who would be stronger? ” 」
 
 With those last words, Ars—
 
-[—]
+「—」
 
 Was completely encased in ice…
 
@@ -2836,9 +2836,9 @@ And then, fell silent.
 
 At that moment, Eve spoke up.
 
-[…Is it over?]
+「…Is it over?」
 
-[Status Open.]
+「Status Open.」
 
 I brought up the skill menu.
 
@@ -2846,11 +2846,11 @@ The number of -Freeze-’s target limit displayed was -3/3-.
 
 This meant— -Freeze- had indeed worked on Ars.
 
-[Doesn’t seem like… he’s gonna be moving anymore.]
+「Doesn’t seem like… he’s gonna be moving anymore.」
 
 It took a while for it to fully take effect, but now Ars was in the same state as the bug and Kirihara.
 
-[There’s still a chance he might start moving again… but for now, assuming it worked, we have to move forward. Ideally, we’d toss him somewhere and make sure he can’t do anything if he comes back to life… but within this labyrinth and us being this close by, there doesn’t seem to be a convenient place like that…]
+「There’s still a chance he might start moving again… but for now, assuming it worked, we have to move forward. Ideally, we’d toss him somewhere and make sure he can’t do anything if he comes back to life… but within this labyrinth and us being this close by, there doesn’t seem to be a convenient place like that…」
 
 While he’s in this state, the skill likely renders any attack ineffective.
 
@@ -2862,25 +2862,25 @@ I tried every destructive method I could think of, but none succeeded.
 
 Gio, staring at the frozen Ars, spoke.
 
-[In short, we just leave this guy here, right?]
+「In short, we just leave this guy here, right?」
 
-[Exactly.]
+「Exactly.」
 
-[Touka.]
+「Touka.」
 
 Eve stepped in front of me.
 
-[Once again… thank you. I owe you.]
+「Once again… thank you. I owe you.」
 
-[Without the information Eve gathered beforehand, I might have had Seras use her complete Origin Regalia. Considering Ars’ characteristics, that would have likely been a pointless waste of energy. In that sense, your— your and Gio’s contributions were invaluable.]
+「Without the information Eve gathered beforehand, I might have had Seras use her complete Origin Regalia. Considering Ars’ characteristics, that would have likely been a pointless waste of energy. In that sense, your— your and Gio’s contributions were invaluable.」
 
-[Fufu… You’re as smooth-talking as ever.]
+「Fufu… You’re as smooth-talking as ever.」
 
-[Pigii!
+「Pigii!
 
-[You’ve been a great help too, Pigimaru.]
+「You’ve been a great help too, Pigimaru.」
 
-[Speaking of contributions, I was also protected by Eve-san and everyone, right?]
+「Speaking of contributions, I was also protected by Eve-san and everyone, right?」
 
 Munin joined the conversation with a light chuckle, her hand covering her mouth.
 
@@ -2888,39 +2888,39 @@ She was as good as ever at diffusing tension.
 
 …Though her shoulders trembling slightly betrayed how frightened she must have been.
 
-[Thank you as well, Gio-san.]
+「Thank you as well, Gio-san.」
 
-[Well… you’re a comrade from the Faraway Country after all.]
+「Well… you’re a comrade from the Faraway Country after all.」
 
 Munin smiled warmly.
 
-[Yes, comrades.]
+「Yes, comrades.」
 
 Gio glanced at Ars and Armia’s equipment that had been frozen along with him.
 
-[…For now, let’s head for the castle.]
+「…For now, let’s head for the castle.」
 
 Looking toward the castle, he spoke.
 
-[Whether Armia’s alive or dead… We can’t know right now. Sometimes, people you think are alive turn out to be dead. Other times, those you thought dead are still alive. For now, it’s anyone’s guess. That said— she chose this, knowing the risks. Even if she’s dead, that’s the path she decided to take. But if she is dead…]
+「Whether Armia’s alive or dead… We can’t know right now. Sometimes, people you think are alive turn out to be dead. Other times, those you thought dead are still alive. For now, it’s anyone’s guess. That said— she chose this, knowing the risks. Even if she’s dead, that’s the path she decided to take. But if she is dead…」
 
 Gio tightened his grip on his sword.
 
-[Then we have to make sure we stop that damned goddess’s schemes, or she’ll never rest in peace.]
+「Then we have to make sure we stop that damned goddess’s schemes, or she’ll never rest in peace.」
 
 As Armia became the topic, Munin’s previously cheerful expression darkened.
 
 Seras looked at Gio with a hint of sorrow.
 
-[Gio-dono…]
+「Gio-dono…」
 
-[I appreciate the concern but… now’s not the time to worry about whether Armia’s alive or dead.]
+「I appreciate the concern but… now’s not the time to worry about whether Armia’s alive or dead.」
 
 And so, Gio said:
 
-[Let’s see this through the end— Fly King.]
+「Let’s see this through the end— Fly King.」
 
-[…—Yeah.]
+「…—Yeah.」
 
 Leaving the frozen Ars behind, we exited the room.
 
@@ -2948,7 +2948,7 @@ But for some reason, I’m so much more terrified now.
 
 It was the same when I fought those giant apes.
 
-[…]
+「…」
 
 The soldiers lined up on the ramparts caught my eye.
 
@@ -2960,35 +2960,35 @@ Maybe it’s because they’re trained.
 
 As I wondered, I overheard a conversation nearby.
 
-[…Before I left home, my kid said something.]
+「…Before I left home, my kid said something.」
 
-[Hm?]
+「Hm?」
 
-[He said, “I’m not scared”.]
+「He said, “I’m not scared”.」
 
-[Hehh, gutsy kid you’ve got there.]
+「Hehh, gutsy kid you’ve got there.」
 
-[No, that’s not it… That’s not it.]
+「No, that’s not it… That’s not it.」
 
-[What did he say?]
+「What did he say?」
 
-[He said, “It’s okay because Dad’s going to protect us”.]
+「He said, “It’s okay because Dad’s going to protect us”.」
 
-[…I see.]
+「…I see.」
 
-[Ever since surviving that last battle against the Demon Emperor’s Army… the way my kid looks at me has changed. He looks at me with admiration now, like he looks up to me…]
+「Ever since surviving that last battle against the Demon Emperor’s Army… the way my kid looks at me has changed. He looks at me with admiration now, like he looks up to me…」
 
-[Same here… My wife, I mean.]
+「Same here… My wife, I mean.」
 
-[The one who’s always nagging you?]
+「The one who’s always nagging you?」
 
-[Yeah… But ever since that last fight, she’s been a little kinder, you could say…]
+「Yeah… But ever since that last fight, she’s been a little kinder, you could say…」
 
-[…Well, I guess we’ve both gotta survive this one too, huh?]
+「…Well, I guess we’ve both gotta survive this one too, huh?」
 
-[Yeah.]
+「Yeah.」
 
-[…]
+「…」
 
 The soldier talking about his kid suddenly lowered his face.
 
@@ -2998,21 +2998,21 @@ It looked like he might collapse if he let go even a little.
 
 He was sobbing.
 
-[—Fghh… Guh… I don’t want to die… I’m scared… I’m so scared…]
+「—Fghh… Guh… I don’t want to die… I’m scared… I’m so scared…」
 
-[O- Oi… I get it, but, y’know… You gotta think of the morale…]
+「O- Oi… I get it, but, y’know… You gotta think of the morale…」
 
 The other soldier looked around nervously.
 
 Thereupon…
 
-[It’s fine.]
+「It’s fine.」
 
 Another soldier who had been listening placed a hand on the sobbing soldier’s shoulder.
 
-[…We’re all the same. Everyone’s scared. I’m scared too. But we still fight— right?]
+「…We’re all the same. Everyone’s scared. I’m scared too. But we still fight— right?」
 
-[Sniff… Yeah… If we lose here, my kid will die, right…? So… I’ll do it… Sniff… I’ll fight…]
+「Sniff… Yeah… If we lose here, my kid will die, right…? So… I’ll do it… Sniff… I’ll fight…」
 
 The other soldiers reacted in various ways.
 
@@ -3022,7 +3022,7 @@ Some were moved to tears.
 
 Some kept their expressions stoic but seemed to have steeled their resolve…
 
-[…]
+「…」
 
 So that’s how it is.
 
@@ -3080,13 +3080,13 @@ Thinking I was the only one—
 
 That was probably because I couldn’t see anything but myself.
 
-[Fear’s not all bad.]
+「Fear’s not all bad.」
 
 At that moment, Rinji spoke up.
 
-[Feeling scared means you’re facing it, without running away.]
+「Feeling scared means you’re facing it, without running away.」
 
-[Facing it…]
+「Facing it…」
 
 For instance, with horror movies.
 
@@ -3104,13 +3104,13 @@ I thought the ones who faced battles without fear were the true “heroes”.
 
 Rinji continued.
 
-[You’re scared because you’re confronting it head-on.]
+「You’re scared because you’re confronting it head-on.」
 
-[—]
+「—」
 
 “That’s why…”, Rinji continued.
 
-[Having the courage not to run from that fear— that’s what real bravery is.]
+「Having the courage not to run from that fear— that’s what real bravery is.」
 
 …Ahh, I see.
 
@@ -3132,11 +3132,11 @@ I can fight with this “fear” in my heart.
 
 I tightened my expression once more.
 
-[…This battle.]
+「…This battle.」
 
 I firmly locked my gaze onto the approaching Sacraments.
 
-[To protect everyone— I’ll throw everything I have.]
+「To protect everyone— I’ll throw everything I have.」
 
 ---
 
@@ -3156,21 +3156,21 @@ Even the bowguns, configured for placement, were being cranked up.
 
 Rinji narrowed his eyes.
 
-[They’ve prepared… a trebuchet huh.]
+「They’ve prepared… a trebuchet huh.」
 
-[Not just a trebuchet.]
+「Not just a trebuchet.」
 
-[Lili.]
+「Lili.」
 
 Before I knew it, Lili of the Drunken Sword Party had joined us.
 
 She motioned toward the Sacraments, which was raising a cloud of dust.
 
-[They’ve brought siege towers too. They probably didn’t bring them directly from Alion; they likely assembled them on the move as they got closer to the Capital.]
+「They’ve brought siege towers too. They probably didn’t bring them directly from Alion; they likely assembled them on the move as they got closer to the Capital.」
 
-[That… rather large cart over there?]
+「That… rather large cart over there?」
 
-[It might be tough for regular humans… but they’ve got tireless Sacraments over there, and they even have some Sacraments that are many times larger than humans. Carrying and assembling the parts doesn’t work the same way as it would for us.]
+「It might be tough for regular humans… but they’ve got tireless Sacraments over there, and they even have some Sacraments that are many times larger than humans. Carrying and assembling the parts doesn’t work the same way as it would for us.」
 
 Siege towers— also called siege turrets, as their name suggests, are siege weapons.
 
@@ -3182,9 +3182,9 @@ Back in my original world, I had seen movies and manga make use of such weapons.
 
 Rinji scratched his head.
 
-[I don’t want to think about it… but the thought of that massive army crowding onto this wall…]
+「I don’t want to think about it… but the thought of that massive army crowding onto this wall…」
 
-[It’s not just siege towers… They might have brought weapons and horses from the fortresses and strongholds like Magnar along the way.]
+「It’s not just siege towers… They might have brought weapons and horses from the fortresses and strongholds like Magnar along the way.」
 
 There were half-horse Sacraments, but there are also Sacraments riding regular horses.
 
@@ -3192,13 +3192,13 @@ Of course, they were armed.
 
 Lili spoke.
 
-[These Sacraments… They seem smarter than when we were commanding them. They’ve probably gained more abilities.]
+「These Sacraments… They seem smarter than when we were commanding them. They’ve probably gained more abilities.」
 
 “They were once limited to simpler orders.”, she added.
 
 At that moment,
 
-[PREPARE FOR ATTAAAAAACK—!]
+「PREPARE FOR ATTAAAAAACK—!」
 
 The command was given, and the war horn sounded.
 
@@ -3206,9 +3206,9 @@ The vibrations, almost like a small tremor, reached us.
 
 The battle was truly drawing near.
 
-[According to the Queen and the Saintess’ plan, it seems we’re not going to strike out, but instead, we’re focusing on defense and observing the enemy’s movements. The gates are also sealed with rocks from the inside, so for now, the battering rams shouldn’t be able to break through but—]
+「According to the Queen and the Saintess’ plan, it seems we’re not going to strike out, but instead, we’re focusing on defense and observing the enemy’s movements. The gates are also sealed with rocks from the inside, so for now, the battering rams shouldn’t be able to break through but—」
 
-[…! Here they come!]
+「…! Here they come!」
 
 Suddenly, the activity on the walls grew frantic.
 
@@ -3224,7 +3224,7 @@ Everyone was looking up.
 
 Lili’s eyes widened.
 
-[—What the hell is that?!]
+「—What the hell is that?!」
 
 The use of trebuchets had been anticipated.
 
@@ -3244,7 +3244,7 @@ With a loud sound, one side of the box opened.
 
 From inside…
 
-[Are those… Sacraments inside…?!]
+「Are those… Sacraments inside…?!」
 
 Yes, Sacraments were packed inside the box.
 
@@ -3254,7 +3254,7 @@ But not all of them.
 
 Lili gritted her teeth.
 
-[Guh… A plan forcibly made because they’re Sacraments huh.]
+「Guh… A plan forcibly made because they’re Sacraments huh.」
 
 If it had been humans, it would have been nearly impossible to execute.
 
@@ -3278,7 +3278,7 @@ It spread like panic among the soldiers on the walls, lingering there.
 
 Then…
 
-[One box at a time is bad enough… but if they keep throwing them in like this, we’re in trouble.]
+「One box at a time is bad enough… but if they keep throwing them in like this, we’re in trouble.」
 
 It didn’t matter if the Sacraments inside were crushed to death.
 
@@ -3286,7 +3286,7 @@ The enemy could keep doing this.
 
 In fact,
 
-[H- Here they come again—!]
+「H- Here they come again—!」
 
 One of the soldiers shouted.
 
@@ -3308,7 +3308,7 @@ That was why there were few people inside the First Guardian Wall’s position r
 
 So, the damage from the stones was minimal.
 
-[Even so… Psychologically, it feels like we’re being overwhelmed. And… if those rocks hit the soldiers on the walls, they’ll be crushed.]
+「Even so… Psychologically, it feels like we’re being overwhelmed. And… if those rocks hit the soldiers on the walls, they’ll be crushed.」
 
 “We can’t move, yet we’re being attacked from a distance without retaliation.”
 
@@ -3330,7 +3330,7 @@ Boom!
 
 The soldiers’ eyes widened.
 
-[W- What is that…?! An explosion?!]
+「W- What is that…?! An explosion?!」
 
 It must have been a magic tool.
 
@@ -3340,13 +3340,13 @@ One of the wooden boxes that had been thrown collided with a building and explod
 
 Rinji clicked his tongue.
 
-[That makes it even harder for our forces near the Second Guardian Wall to move out…]
+「That makes it even harder for our forces near the Second Guardian Wall to move out…」
 
 The knight commanding the area near the wall where we were stationed turned toward the enemy army.
 
 He muttered with frustration,
 
-[Guh… our trebuchet can’t reach that distance…]
+「Guh… our trebuchet can’t reach that distance…」
 
 There were trebuchets set up inside the First Guardian Wall and along the top of the wall.
 
@@ -3356,7 +3356,7 @@ As could be seen from the box, the enemy could hurl larger rocks.
 
 Then…
 
-[Ah!]
+「Ah!」
 
 A soldier on the opposite side, facing the outside of the First Guardian Wall, pointed and shouted.
 
@@ -3366,15 +3366,15 @@ Massive Sacraments, one after another, began carrying shallow baskets on their s
 
 Inside the baskets— once again, Sacraments were packed in.
 
-[I see… before using their siege tower or ladders to send them up the wall, they intend to have those huge Sacraments cling to the wall and clear a “path” on top of the walls.]
+「I see… before using their siege tower or ladders to send them up the wall, they intend to have those huge Sacraments cling to the wall and clear a “path” on top of the walls.」
 
 Rinji’s words caused Lili to frown in frustration.
 
-[If that’s the case, they can skip the process of climbing the wall… And if they secure the top of the wall and create a “path”, it’ll make it easier to send the follow-up forces through the siege towers and ladders.]
+「If that’s the case, they can skip the process of climbing the wall… And if they secure the top of the wall and create a “path”, it’ll make it easier to send the follow-up forces through the siege towers and ladders.」
 
 Moreover, we would have to split our forces to deal with the Sacraments that breached earlier, which meant diverting some of our wall forces.
 
-[So they’re trying to shut down our defensive tactics… where we attempt to reduce the number of enemies climbing the wall as much as possible.]
+「So they’re trying to shut down our defensive tactics… where we attempt to reduce the number of enemies climbing the wall as much as possible.」
 
 Looking around, I could see that the soldiers on the wall were starting to get anxious.
 
@@ -3416,17 +3416,17 @@ Because the Sacraments had stopped moving while attacking from a distance, the S
 
 As I watched the enemy’s long, horizontally aligned formation, I turned to Rinji and spoke.
 
-[If they get closer, I might be able to handle those huge Sacraments and siege weapons with my flames.]
+「If they get closer, I might be able to handle those huge Sacraments and siege weapons with my flames.」
 
-[Your flames are powerful after all… I’ll leave them to you, Tomohiro.]
+「Your flames are powerful after all… I’ll leave them to you, Tomohiro.」
 
 “However…”, I added.
 
-[The number I can handle is limited.]
+「The number I can handle is limited.」
 
 Rinji looked at me in confusion.
 
-[Huh?]
+「Huh?」
 
 The enemy’s army was spread out horizontally.
 
@@ -3438,13 +3438,13 @@ How much area could I cover?
 
 In that case… —
 
-[…]
+「…」
 
 As a thought crossed my mind, I gulped.
 
 Then, I spoke.
 
-[Could you… get confirmation on whether I’m allowed to leave through the gate and charge at them?]
+「Could you… get confirmation on whether I’m allowed to leave through the gate and charge at them?」
 
 ---
 
@@ -3562,7 +3562,7 @@ If it had been the old Savage Lands to the south of Yggurle Kingdom, a duo escor
 「Volt, you’re okay with this? Immigrating with me.」  
 「Yes. As we are married couple without children, it is our long-cherished ambition to be of service to you, Master, and Madam.」  
 「Indeed so, Master.」  
-「Thanks Vault[[1]](https://www.euricette.com/greatest-alchemist-chapter-572/#GA-G1) , Luna.」
+「Thanks Vault「「1」」(https://www.euricette.com/greatest-alchemist-chapter-572/#GA-G1) , Luna.」
 
 There was only one change to the members in Dante’s carriage. It was that the carriage driver was not the only servant on this trip, he and his wife had also decided to immigrate to the Sanctuary.
 
