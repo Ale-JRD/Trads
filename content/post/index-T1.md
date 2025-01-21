@@ -6,7 +6,7 @@
     slug: "traducir-1"
 ---
 
-# **Legend Chapter 737**
+## **Legend Chapter 737**
 
 「Please wait here a little while. You may use the things in the room, but please don’t break anything.」
 
@@ -244,7 +244,7 @@ Rei reached for a sandwich as Angela nodded at his words.
 
 ---
 
-# **Chapter 738**
+## **Chapter 738**
 
 Going back a little while in time.
 
@@ -588,7 +588,7 @@ We laughed and enjoyed a little late lunch.
 
 ---
 
-# **Jujutsushi Wa Yuusha Narenai**
+## **Jujutsushi Wa Yuusha Narenai**
 
 **Chapter 240: The Chosen Trio**
 
@@ -3450,7 +3450,7 @@ Then, I spoke.
 
 ---
 
-# **Someday Will I Be The Greatest Alchemist? - 571 - Parent-Child Ice Breaker**
+## **Someday Will I Be The Greatest Alchemist? - 571 - Parent-Child Ice Breaker**
 
 Inside the Sylphide territory, Dante was preparing to immigrate to the Sanctuary, and Darphy had to succeed the family.
 
@@ -3529,7 +3529,7 @@ Dante and Darphy, who couldn’t be considered close in these recent decades, ha
 
 ---
 
-# **Chapter 572 - Grandchild, Gramps has returned**
+## **Chapter 572 - Grandchild, Gramps has returned**
 
 Darphy, who grew twisted by his rivarly towards Sophia, and Dante, who couldn’t be honest with his feelings, quickly packed up the luggage and finished preparing for the journey to the Sanctuary.
 
