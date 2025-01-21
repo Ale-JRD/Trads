@@ -1,15 +1,9 @@
 ---
-    title: Traducir 1
+    title: Traducir 2
     draft: false
     Date: 2024-09-14T23:23:04
-    description: "Traducir 1"
-    ##summary: "Article Lorem Ipsun."
-    slug: "traducir-1"
-    # tags: ["front matter", "config", "docs"]
-    # os: ["Android"]
-    authors: 
-    - "alejandro"
-    layout: milayout
+    description: "Traducir 2"
+    slug: "traducir-2"
 ---
 
 # **Pupil of the Wiseman Chapter 276 - Purchase**
