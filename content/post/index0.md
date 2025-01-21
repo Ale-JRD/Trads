@@ -1,15 +1,9 @@
 ---
-    title: Traducir
+    title: Traducir 1
     draft: false
     Date: 2024-09-14T23:23:04
     description: "Traducir"
-    ##summary: "Article Lorem Ipsun."
-    slug: "traducir"
-    # tags: ["front matter", "config", "docs"]
-    # os: ["Android"]
-    authors: 
-    - "alejandro"
-    layout: milayout
+    slug: "traducir-1"
 ---
 
 # **Legend Chapter 737**
