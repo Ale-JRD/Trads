@@ -1,0 +1,46 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?><rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom"><channel><title>Posts on Al-Trads</title><link>https://ale-jrd.github.io/Trads/post/</link><description>Recent content in Posts on Al-Trads</description><generator>Hugo -- gohugo.io</generator><language>en-us</language><lastBuildDate>Sat, 14 Sep 2024 23:23:04 +0000</lastBuildDate><atom:link href="https://ale-jrd.github.io/Trads/post/index.xml" rel="self" type="application/rss+xml"/><item><title>Traducir 1</title><link>https://ale-jrd.github.io/Trads/p/traducir-1/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-1/</guid><description>&lt;p>Cat&lt;/p></description></item><item><title>Traducir 2</title><link>https://ale-jrd.github.io/Trads/p/traducir-2/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-2/</guid><description>&lt;p>cat&lt;/p></description></item><item><title>Traducir 3</title><link>https://ale-jrd.github.io/Trads/p/traducir-3/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-3/</guid><description>&lt;img src="https://ale-jrd.github.io/Trads/p/image-gallery/1.jpg" alt="Featured image of post Traducir 3" />&lt;p>cat&lt;/p></description></item><item><title>Traducir 4</title><link>https://ale-jrd.github.io/Trads/p/traducir-4/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-4/</guid><description/></item><item><title>Traducir 5</title><link>https://ale-jrd.github.io/Trads/p/traducir-5/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-5/</guid><description/></item><item><title>Traducir 6</title><link>https://ale-jrd.github.io/Trads/p/traducir-6/</link><pubDate>Sat, 14 Sep 2024 23:23:04 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/traducir-6/</guid><description/></item><item><title>Image gallery</title><link>https://ale-jrd.github.io/Trads/p/image-gallery/</link><pubDate>Sat, 26 Aug 2023 00:00:00 +0000</pubDate><guid>https://ale-jrd.github.io/Trads/p/image-gallery/</guid><description>&lt;img src="https://ale-jrd.github.io/Trads/p/image-gallery/2.jpg" alt="Featured image of post Image gallery" />&lt;h2 id="syntax">Syntax
+&lt;/h2>&lt;div class="highlight">&lt;div class="chroma">
+&lt;table class="lntable">&lt;tr>&lt;td class="lntd">
+&lt;pre tabindex="0" class="chroma">&lt;code>&lt;span class="lnt">1
+&lt;/span>&lt;/code>&lt;/pre>&lt;/td>
+&lt;td class="lntd">
+&lt;pre tabindex="0" class="chroma">&lt;code class="language-markdown" data-lang="markdown">&lt;span class="line">&lt;span class="cl">![&lt;span class="nt">Image 1&lt;/span>](&lt;span class="na">1.jpg&lt;/span>) ![&lt;span class="nt">Image 2&lt;/span>](&lt;span class="na">2.jpg&lt;/span>)
+&lt;/span>&lt;/span>&lt;/code>&lt;/pre>&lt;/td>&lt;/tr>&lt;/table>
+&lt;/div>
+&lt;/div>&lt;h2 id="result">Result
+&lt;/h2>&lt;p>&lt;img src="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/1.jpg"
+width="2000"
+height="1400"
+srcset="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/1_hu_811b671457ffff1f.jpg 480w, https://ale-jrd.github.io/Trads/Trads/p/image-gallery/1_hu_c74af69dd7c1dcda.jpg 1024w"
+loading="lazy"
+alt="Image 1"
+class="gallery-image"
+data-flex-grow="142"
+data-flex-basis="342px"
+> &lt;img src="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/2.jpg"
+width="1500"
+height="2250"
+srcset="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/2_hu_42f6436cb1637265.jpg 480w, https://ale-jrd.github.io/Trads/Trads/p/image-gallery/2_hu_27862a49608da0d9.jpg 1024w"
+loading="lazy"
+alt="Image 2"
+class="gallery-image"
+data-flex-grow="66"
+data-flex-basis="160px"
+>&lt;/p>
+&lt;blockquote>
+&lt;p>Photo by &lt;a class="link" href="https://unsplash.com/@mymind" target="_blank" rel="noopener"
+>mymind&lt;/a> and &lt;a class="link" href="https://unsplash.com/@lukechesser" target="_blank" rel="noopener"
+>Luke Chesser&lt;/a> on &lt;a class="link" href="https://unsplash.com/" target="_blank" rel="noopener"
+>Unsplash&lt;/a>&lt;/p>
+&lt;/blockquote>
+&lt;hr>
+&lt;p>&lt;img src="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/IDODM-thumbnail.webp"
+width="6344"
+height="4352"
+srcset="https://ale-jrd.github.io/Trads/Trads/p/image-gallery/IDODM-thumbnail_hu_b28b0d334b7a3bda.webp 480w, https://ale-jrd.github.io/Trads/Trads/p/image-gallery/IDODM-thumbnail_hu_d037f5281720d8e1.webp 1024w"
+loading="lazy"
+alt="IDODM01"
+class="gallery-image"
+data-flex-grow="145"
+data-flex-basis="349px"
+>&lt;/p></description></item></channel></rss>
