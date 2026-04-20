@@ -220,7 +220,7 @@ Hearing that, Alicia immediately felt a little embarrassed, a faint blush rising
 
 “It’s getting late. There are still things waiting for me back in Aoma Village, so I won’t stay much longer.” Yae-hime gently patted Lili’s head, then went on, “If anything comes up, just send someone to Aoma Village to find me. I’ll basically be staying there these next few days. Also, Lili… are you free?”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: I’m not even young anymore and I still don’t have 70k in savings… what did I do wrong in life?
 
@@ -2188,7 +2188,7 @@ She stared at the ceiling, slowly lifting her right hand and grasping at the emp
 
 “Ahhh! This is so annoying. You bad person[1](#easy-footnote-bottom-1-121612), hurry up and help me deal with this trouble already!” At that moment, Irene suddenly thought of Yae-hime, her heart restless yet inexplicably filled with anticipation. If it were that person, there would surely be a way to solve her troubles.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: What was the term or tone Irene used to refer to Yae-hime again? I remember there was a particular tone but I can’t remember…
 
@@ -2784,7 +2784,7 @@ In truth, after thinking it through carefully, she felt that performing the fina
 
 After weighing it again and again, handling it outside was clearly safer. Having made up her mind, Yae-hime immediately took action. With a light tap of her toe against the ground, her figure leapt forward. In the next instant, her silhouette vanished into the void, disappearing completely.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Fun fact, 赶去投胎 (Gǎn qù tóutāi) is a famous Chinese saying of cursing someone. I said it a lot whenever someone sped past me on the road.
 
@@ -3132,7 +3132,7 @@ Immediately afterward, he began directing the sailors to their tasks. Before lon
 
 ---
 
-### **Yae-hime’s Design:**
+# **Yae-hime’s Design:**
 
 ![](file:////tmp/wps-alejandro/ksohtml/wpsiW6yoG.png) 
 
@@ -8218,7 +8218,7 @@ The kids rapidly went from one animal to the next. Sakura especially, since this
 
 In high spirits and chatting happily like a normal couple, they made their way to the next animal enclosure.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. I once read about people observing an eagle taking a bear cub. So, yes, they could absolutely prey on human babies and infants, but they most likely don’t since we’re too different from their usual prey.
 
@@ -8612,7 +8612,7 @@ _Now, time to forget all this negativity and make out with Mika. That’s what�
 
 This was our back and forth on the way back to our room. I felt bad for not telling her, so next time, I’d make sure to inform her.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Even though her typical verbal tic is missing, I assume that’s her speaking, since she’s the only other person who should have that information
 
@@ -8866,7 +8866,7 @@ In other words, she wanted us to have sex. In this case, she could’ve just bro
 
 _And she’ll do this again three weeks from now_[1](#easy-footnote-bottom-1-119789)_? Well, ain’t like I can hold myself back, so I won’t complain._
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Two weeks in the original. A full Earth/Anazumu round is three weeks, so I assume that’s an error.
 
@@ -8990,7 +8990,7 @@ We looked at each other.
 
 “Same.”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Don’t tell me, did the author finally drop this worn-out joke?
 
