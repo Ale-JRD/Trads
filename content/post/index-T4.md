@@ -6,7 +6,7 @@
     slug: "traducir-4"   
 ---
 
-## **167: Submission and the Catastrophe Decisive Battle**
+# **167: Submission and the Catastrophe Decisive Battle**
 
 **AN:** Updated on 2/30.
 
@@ -624,7 +624,7 @@ Next time: “Seizing the Guild and the Collapse of the Sky Castle.” Look forw
 
 +++
 
-## **168: Taking Control of the Guild and the Fall of the Sky Castle**
+# **168: Taking Control of the Guild and the Fall of the Sky Castle**
 
 **AN:** I finished writing the April Fool’s joke.
 
@@ -1266,7 +1266,7 @@ Gired survived by sheer luck, so he’ll get one more chance to do something bef
 
 +++
 
-## **169: The Liberation of the Wind Disaster Dragon and the Spoils**
+# **169: The Liberation of the Wind Disaster Dragon and the Spoils**
 
 **AN:** Jealous of the popularity of the spell of destruction.
 
@@ -1992,7 +1992,7 @@ And it’s not my taste.
 
 +++
 
-## **169.5 – Lost Legend, Episode 3: Wind Disaster Dragon**
+# **169.5 – Lost Legend, Episode 3: Wind Disaster Dragon**
 
 **AN:** I wrote down the future schedule, and then suddenly did a surprise update (work on the main story already).
 
@@ -2182,7 +2182,7 @@ Also, there are no Lost Legends for the other Disaster Dragons.
 
 +++
 
-## **170: Interrogation and a Fragment of Truth**
+# **170: Interrogation and a Fragment of Truth**
 
 **AN:** This marks the end of Volume 11. The number of chapters per volume has been gradually decreasing.
 
@@ -2848,7 +2848,7 @@ I’ve change ‘Priestess Princess’ -> ‘Princess Shrine Maiden’. Sorry ab
 
 +++
 
-## **170.1 Side Story: Shindo Rin**
+# **170.1 Side Story: Shindo Rin**
 
 **AN:** This is a what-if story: “What if Jin had a younger sister?”
 
@@ -3506,7 +3506,7 @@ Based on the responses, we decided to go with A.
 
 +++
 
-## **170.5: About the Soul**
+# **170.5: About the Soul**
 
 **AN:** This is the first of two chapters posted together.
 
@@ -3748,7 +3748,7 @@ Since explanations can get long-winded, I want to keep them as mild as possible.
 
 +++
 
-## **Volume 11 Characters**
+# **Volume 11 Characters**
 
 **AN:** Second part of a two-episode post.
 
@@ -3908,7 +3908,7 @@ Posts will continue on days ending in 0 as usual. Weekly posting has been abando
 
 +++
 
-## **171: Rebuilding the Sky Castle and Future Plans**
+# **171: Rebuilding the Sky Castle and Future Plans**
 
 **AN:** At last. Finally. It is here. The Crimson Empire arc.
 
@@ -4568,7 +4568,7 @@ Next time, we start at the border right away.
 
 +++
 
-## **172: On the Road and Arrival at the First City**
+# **172: On the Road and Arrival at the First City**
 
 **AN:** We start from around the point where we entered the Crimson Empire.
 
@@ -5224,7 +5224,7 @@ It is far too late now, and I do not feel like fixing it anymore.
 
 +++
 
-## **173: Haniwa and Proof of Strength**
+# **173: Haniwa and Proof of Strength**
 
 After eating, we wandered around ‘Tokiwa Town’ to work off the meal.
 
@@ -5854,7 +5854,7 @@ Having her fight with a weapon she does not normally use, with all its unique ab
 
 +++
 
-## **174: Moving Between Cities and the First Princess**
+# **174: Moving Between Cities and the First Princess**
 
 **AN:** I had planned to split the Crimson Empire arc into a front and back half because I couldn’t seem to finish writing it, but it looks like I’ll manage to wrap it up after all. So I’ve decided to end it within Volume 12 alone.
 
@@ -6496,7 +6496,7 @@ Seventh Princess: Ruby
 
 +++
 
-## **175: Abandoned Mine Exploration and Miasma**
+# **175: Abandoned Mine Exploration and Miasma**
 
 **AN:** This is a postscript to the previous chapter, but Jonathan is a type of apple. He has siblings from the same mother.
 
@@ -7132,7 +7132,7 @@ Mio looks shocked, but I have no use for tunnels that aren’t abandoned mines.
 
 +++
 
-## **176: The Miasma Spirit and the Second-Layer City**
+# **176: The Miasma Spirit and the Second-Layer City**
 
 **AN:** At long last, I’ve finished writing Volume 12.
 
@@ -7746,7 +7746,7 @@ The Hero is just a punching bag, most slaves are women, and Claude, one of the f
 
 +++
 
-## **177: The Third Prince and Arrival at the Imperial Capital**
+# **177: The Third Prince and Arrival at the Imperial Capital**
 
 **AN:** As the title says, we arrive at the Imperial Capital. At last, the name of the Imperial Capital is revealed!
 
@@ -8364,7 +8364,7 @@ Led by Pierre, who had persuaded the attendants, we headed back to the reception
 
 +++
 
-## **178: The Imperial Family’s Circumstances and a Request**
+# **178: The Imperial Family’s Circumstances and a Request**
 
 **AN:** The future predictions for Ruby-chan in the comments section are way too cruel.
 
@@ -8934,7 +8934,7 @@ Alright then, let us listen a bit more carefully.
 
 +++
 
-## **179: Failed Apology and Evolution**
+# **179: Failed Apology and Evolution**
 
 After spending half the afternoon touring the museum, we ate dinner outside and returned to the inn.
 
@@ -9542,7 +9542,7 @@ And also, what is His Majesty the Emperor doing?
 
 +++
 
-## **180: Evidence Erasure and the Mastermind**
+# **180: Evidence Erasure and the Mastermind**
 
 **AN:** The title sounds ominous, but Jin-kun does not end up in a pinch.
 
@@ -10198,7 +10198,7 @@ She shows up suddenly and exits next time.
 
 +++
 
-## **181: The Curtain Falls, and an Invitation**
+# **181: The Curtain Falls, and an Invitation**
 
 **AN:** Lately, due to various mental circumstances, my writing has barely been making any progress.
 
@@ -10832,7 +10832,7 @@ Jin is at least better about choosing his targets, but what he does is pretty ex
 
 +++
 
-## **182: The Mist of Confusion and the Elf Village**
+# **182: The Mist of Confusion and the Elf Village**
 
 **AN:** Rose is not dead. Her body is unharmed. Her mind has not broken yet.
 
@@ -11492,7 +11492,7 @@ From next time on, there will be consecutive reveal chapters. About one-third of
 
 +++
 
-## **183: The Storyteller and the Emperor**
+# **183: The Storyteller and the Emperor**
 
 **AN:** It looks like I am going to have to take a break in terms of progress after all. I have barely been able to write for almost a month.
 
@@ -12106,7 +12106,7 @@ I should have decided the content of this chapter first, after all.
 
 +++
 
-## **184: Memories of a Past Life and the Truth**
+# **184: Memories of a Past Life and the Truth**
 
 **AN:** Explanatory chapters continue.
 
@@ -12784,7 +12784,7 @@ I judged that writing it in the normal story format would be close to a full vol
 
 +++
 
-## **184.5 – Oral Tradition, Chapter 4: Scarlet’s Circumstances**
+# **184.5 – Oral Tradition, Chapter 4: Scarlet’s Circumstances**
 
 **AN:** As announced, this is Scarlet’s oral tradition.
 
@@ -13496,7 +13496,7 @@ And the equipment he had back then, the “Goblin General’s Sword (Rare)”, w
 
 +++
 
-## **185: The World Tree and the Goddess’s Domain**
+# **185: The World Tree and the Goddess’s Domain**
 
 After hearing Scarlet’s life story, I understood that many of the questions and uneasy feelings I had, both before and after coming to the Crimson Empire, had been resolved.
 
@@ -14084,7 +14084,7 @@ If you think about the World Tree scientifically, it’s saying some pretty craz
 
 +++
 
-## **186: Choosing the World Tree and Returning Home**
+# **186: Choosing the World Tree and Returning Home**
 
 I had declared that we would find the last person with a \<Hero> skill within one month, but even if we failed to do so in that time, nobody would really lose anything. So we did not set any penalties or the like.
 
@@ -14674,7 +14674,7 @@ Character introductions will likely be posted before too long.
 
 +++
 
-## **186.5: Scarlet’s Office**
+# **186.5: Scarlet’s Office**
 
 **AN:** This is supplementary material related to Scarlet.
 
@@ -15056,7 +15056,7 @@ And Ruby-chan does not speak.
 
 +++
 
-## **12 Characters**
+# **12 Characters**
 
 **AN:** Posted simultaneously with a Scarlet-related short story.
 
@@ -15190,7 +15190,7 @@ There are no plans for them to appear at the moment…
 
 +++
 
-## **187: Searching for the Hero and the Water City**
+# **187: Searching for the Hero and the Water City**
 
 **AN:** The serialization has resumed.
 
