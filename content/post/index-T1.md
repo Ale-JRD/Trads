@@ -9310,7 +9310,7 @@ With that thought in mind, Rei followed his intuition and stepped onto the path 
 
 ++++
 
-## **Blessing From the Goddess and Transfer to Another World – Chapter 125: The Silver Knight and the Golden Dragon**
+# **Blessing From the Goddess and Transfer to Another World – Chapter 125: The Silver Knight and the Golden Dragon**
 
 **AN:** Regarding the attacks of the Progenitor Divine Dragon and the Demon God, I am making downward adjustments to their effects.
 
@@ -9952,7 +9952,7 @@ Letting it cause devastation once before defeating it would better convey the en
 
 +++
 
-## **126: Sera’s Knight Equipment and a Tea Party**
+# **126: Sera’s Knight Equipment and a Tea Party**
 
 **AN:** It ended up feeling like a short story, but it got too long, so I shoved it into the main story.
 
@@ -10566,7 +10566,7 @@ I feel bad that the story isn’t progressing despite updates every ten days. Th
 
 +++
 
-## **127: Tea Sweets and a Leisurely End**
+# **127: Tea Sweets and a Leisurely End**
 
 **AN:** Please bear with another slice-of-life chapter without any real climax.
 
@@ -11182,7 +11182,7 @@ It seemed the leisurely days were over.
 
 +++
 
-## **127.5: Latina’s Battle Diary**
+# **127.5: Latina’s Battle Diary**
 
 **AN:** This is really just a very short side story.
 
@@ -11306,7 +11306,7 @@ There are no plans to post on January 1. Unless passion overflows.
 
 +++
 
-## **Volume 8 Characters**
+# **Volume 8 Characters**
 
 **Editor’s Note:** Title is different from previous ones because of NU (v8 Characters vs V8).
 
@@ -11460,7 +11460,7 @@ In that sense, Mr. Kuga is a rare case.
 
 +++
 
-## **128: Carriage Journey and Fake Bandits**
+# **128: Carriage Journey and Fake Bandits**
 
 **AN:** Volume 9 begins.
 
