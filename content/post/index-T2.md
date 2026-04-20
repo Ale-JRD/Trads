@@ -8,7 +8,7 @@
     slug: "traducir-2"
 ---
 
-## **129: Moving Through the Forest and the Mermaid Princess**
+# **129: Moving Through the Forest and the Mermaid Princess**
 
 **AN:** This chapter is part of the Elgant Theocracy arc.
 
@@ -664,7 +664,7 @@ What? Go to the Crimson Empire first? Hahaha.
 
 +++
 
-## **129.5: How to Raise a Mermaid Princess**
+# **129.5: How to Raise a Mermaid Princess**
 
 **AN:** This is a continuation of the mermaid princess story.
 
@@ -1026,7 +1026,7 @@ I want to tell a lie that feels natural, after all (raising the bar myself).
 
 +++
 
-## **130: The Theocracy and a Detour**
+# **130: The Theocracy and a Detour**
 
 **AN:** It’s possible that I might change Sakura’s surname someday.
 
@@ -1638,7 +1638,7 @@ For an Elgant Theocracy arc, surprisingly few people believe it.
 
 +++
 
-## **131: The Dwarf Hero and Foresight**
+# **131: The Dwarf Hero and Foresight**
 
 **AN:** I will say this upfront: in this chapter, Jin does not voluntarily destroy any countries or cities.
 
@@ -2254,7 +2254,7 @@ Also, I partially changed the merfolk settings.
 
 +++
 
-## **132: Dangerous Individuals and Arrival at the Divine Capital**
+# **132: Dangerous Individuals and Arrival at the Divine Capital**
 
 **AN:** In this chapter, I am going to do something a little sneaky.
 
@@ -2910,7 +2910,7 @@ Also, sorry about this. Since my writing has not been progressing smoothly, it l
 
 +++
 
-## **133: Assassins and Speed Freaks**
+# **133: Assassins and Speed Freaks**
 
 **AN:** Since February does not have 30 days, I am posting this as a substitute.
 
@@ -3498,7 +3498,7 @@ The conference arc, which took an unreasonable amount time to write, begins.
 
 +++
 
-## **134: The Summit Conference and the First Agenda Item**
+# **134: The Summit Conference and the First Agenda Item**
 
 **AN:** The summit conference begins. There are surprisingly few new characters.
 
@@ -4070,7 +4070,7 @@ Who in the Kingdom of Sanokia knows the name Shindo Jin…?
 
 +++
 
-## **135: The Errand Queen and the Second Agenda Item**
+# **135: The Errand Queen and the Second Agenda Item**
 
 **AN:** In this chapter, Jin-kun fades into the background quite a lot.
 
@@ -4650,7 +4650,7 @@ Ah, this is getting interesting too!
 
 +++
 
-## **136: Suspension of the Conference and the Sword Emperor Style**
+# **136: Suspension of the Conference and the Sword Emperor Style**
 
 **AN:** It looks like I will not be able to do anything interesting on April 1 this year.
 
@@ -5248,7 +5248,7 @@ The story about the Sword Emperor Style will conclude in the first half of the n
 
 +++
 
-## **136 Short Story: A Little Questionnaire for Subordinates**
+# **136 Short Story: A Little Questionnaire for Subordinates**
 
 **AN:** This is a hypothetical “what if” scenario about asking subordinates the following question.
 
@@ -5486,7 +5486,7 @@ Myao (Mio’s Familiar, Dog-Cat): ⑤
 
 +++
 
-## **136 Side Story 10: The Saintess Departure**
+# **136 Side Story 10: The Saintess Departure**
 
 **AN:** It is short, but this is the second short piece for today.
 
@@ -5686,7 +5686,7 @@ Because both of them are cheat characters on par with Jin! There’s no need to 
 
 +++
 
-## **137: The Sword Emperor and the Resumption of the Conference**
+# **137: The Sword Emperor and the Resumption of the Conference**
 
 **AN:** The Sword Emperor style was originally the Sword Saint style, but it overlapped too much with Saki Mizuhara, so it was changed.
 
@@ -6342,7 +6342,7 @@ Next time, the story finally moves a bit. From this flow!?
 
 +++
 
-## **138: The Noble Lady Hero and the Girl Beast King**
+# **138: The Noble Lady Hero and the Girl Beast King**
 
 **AN:** This chapter is just watching a duel that does not involve the protagonist.
 
@@ -6934,7 +6934,7 @@ Might have dragged it out a bit too long.
 
 +++
 
-## **139: The Emperor of the Crimson Empire and the Tragedy**
+# **139: The Emperor of the Crimson Empire and the Tragedy**
 
 **AN:** Previous Chapter Summary:
 
@@ -7624,7 +7624,7 @@ Politics and international affairs really slow me down.
 
 +++
 
-## **140: Escape and the Destroyer of the Divine Capital**
+# **140: Escape and the Destroyer of the Divine Capital**
 
 **AN:** Writing went unusually smoothly over Golden Week.
 
@@ -8330,7 +8330,7 @@ Scarlet: “Honestly, I’m sorry.”
 
 +++
 
-## **141: The Hero’s Resurrection and the Believers**
+# **141: The Hero’s Resurrection and the Believers**
 
 **AN:** Kino Aichi appeared in Volume 6 and Side Story Episode 8.
 
@@ -8980,7 +8980,7 @@ Ah, next time will be from someone other than Jin’s perspective for a change. 
 
 +++
 
-## **142: The Hero Emperor and the Tyrant King**
+# **142: The Hero Emperor and the Tyrant King**
 
 **AN:** As mentioned previously, this chapter is from a perspective other than Jin’s.
 
@@ -9722,7 +9722,7 @@ Information on those who have not died has not been obtained at this time.
 
 +++
 
-## **143: The Empty Throne of the Sky and the Torn Vestments of Law**
+# **143: The Empty Throne of the Sky and the Torn Vestments of Law**
 
 **AN:** This is the usual results-style chapter.
 
@@ -10292,7 +10292,7 @@ Before the next chapter, there will be a short story about leveled-up abnormal a
 
 +++
 
-## **143.5: Status Spoofing**
+# **143.5: Status Spoofing**
 
 **AN:** This chapter covers the effects of a leveled-up Special Power.
 
@@ -10534,7 +10534,7 @@ The reason security was brought up is so that, if some usage the author never im
 
 +++
 
-## **144: Aftermath in the Divine Capital and the Return**
+# **144: Aftermath in the Divine Capital and the Return**
 
 **AN:** This one is a bit long.
 
@@ -11238,7 +11238,7 @@ In the meantime, various character pieces, short stories, and setting-related po
 
 +++
 
-## **144.5 Advance Trading Company**
+# **144.5 Advance Trading Company**
 
 **AN:** This time, I will introduce the reputation of the Advance Trading Company mentioned in the main story, from a slightly unusual perspective.
 
@@ -11478,7 +11478,7 @@ After that, I will post the character list and settings, and if I can manage the
 
 +++
 
-## **Side Story 11: Recollections of the Dungeon Master (2)**
+# **Side Story 11: Recollections of the Dungeon Master (2)**
 
 **AN:** The East short stories are planned to proceed roughly in this format.
 
@@ -11772,7 +11772,7 @@ This could already be called Christmas without exaggeration, right? That is why 
 
 +++
 
-## **Characters Appearing in Volume 9**
+# **Characters Appearing in Volume 9**
 
 **AN:** Yes, yes, don’t say “Is this a character introduction?”
 
@@ -12006,7 +12006,7 @@ I wonder where Kudo-kun went… (from Side Story Episodes 1 and 2). But even so,
 
 +++
 
-## **Setting: Jin’s Power Base**
+# **Setting: Jin’s Power Base**
 
 **AN:** This is the first of two consecutive setting posts.
 
@@ -12206,7 +12206,7 @@ In some cases, they are omitted because they are not significant enough to be ca
 
 +++
 
-## **Settings: Special Powers List**
+# **Settings: Special Powers List**
 
 **AN:** This is the second of two consecutive settings posts.
 
@@ -12542,7 +12542,7 @@ Reverse: Reincarnate demons or monsters as humans.
 
 +++
 
-## **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Part 1)**
+# **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Part 1)**
 
 **AN:** Since I made it in time, I am posting a short side story.
 
@@ -13152,7 +13152,7 @@ I am prepared to be told to get on with the main story, but if I do not write th
 
 +++
 
-## **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Middle)**
+# **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Middle)**
 
 **AN:** This is the middle part. If things continue at this pace, the next update is expected in about four days.
 
@@ -13838,7 +13838,7 @@ To be meta about it, if we tried to include the heroine position, the story woul
 
 +++
 
-## **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Part 2)**
+# **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Part 2)**
 
 **AN:** The titles of these biographical tales have been getting progressively more extravagant.
 
@@ -14582,7 +14582,7 @@ The main story resumes on 7/10.
 
 +++
 
-## **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Latter Half)**
+# **Chronicle 4: The Heroic Saga of Claude, an A-Rank Adventurer (Latter Half)**
 
 **AN:** It is a bonus, it is the truth, and depending on the person, it may even be unnecessary.
 
