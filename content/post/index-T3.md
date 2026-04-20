@@ -6,7 +6,7 @@
     slug: "traducir-3"   
 ---
 
-## **145: Port Town and Departure**
+# **145: Port Town and Departure**
 
 **Volume 10: The Regalia Beastman Kingdom Arc Begins**
 
@@ -760,7 +760,7 @@ Since Jin only talks about things directly related to himself, there are almost 
 
 +++
 
-## **146: Pirates and a Hungry Mermaid**
+# **146: Pirates and a Hungry Mermaid**
 
 **AN:** In a sense, this is a familiar development.
 
@@ -1456,7 +1456,7 @@ Well, the real challenge starts when lives reach 0 anyway (though I’m the type
 
 +++
 
-## **147: The Mermaid Kingdom and Food Aid**
+# **147: The Mermaid Kingdom and Food Aid**
 
 **AN:** My progress has gotten dangerously bad, regardless of the game.
 
@@ -2126,7 +2126,7 @@ As a provisional setting, the sea in this world is not that deep, and due to ref
 
 +++
 
-## **148: Transactions and the Ghost Pirates**
+# **148: Transactions and the Ghost Pirates**
 
 **AN:** My writing pace has finally started to recover a little.
 
@@ -2884,7 +2884,7 @@ There is no guarantee she will be safe when she does.
 
 +++
 
-## **149: Arrival in the Beastman Kingdom and the Crimson Princess**
+# **149: Arrival in the Beastman Kingdom and the Crimson Princess**
 
 **AN:** For various reasons, the island whale’s body length has been changed to 5 km. Ten kilometers was a bit inconvenient.
 
@@ -3666,7 +3666,7 @@ Please look forward to Volume 12, the Crimson Empire Arc (tentative)!
 
 +++
 
-## **150: The Eight Vassal Beasts and the Ninja**
+# **150: The Eight Vassal Beasts and the Ninja**
 
 **AN:** This chapter has a bit of an explanatory bent. Yeah. Extremely late.
 
@@ -4218,7 +4218,7 @@ Kuroneko is in the Erincia position. A key person friendly to the protagonist. A
 
 +++
 
-## **151: The Clown and the Message**
+# **151: The Clown and the Message**
 
 **AN:** Koda-style overpowered character ranking
 
@@ -4874,7 +4874,7 @@ Those are the kinds of images in mind. The details will come next time.
 
 +++
 
-## **152: The Truth About the School and Cancellation**
+# **152: The Truth About the School and Cancellation**
 
 **AN:** Even though he only came up in conversation, Orihara’s presence is seriously overwhelming.
 
@@ -5482,7 +5482,7 @@ That’s it. I’ll make her a stepsister. Or maybe suddenly give him about twel
 
 +++
 
-## **153: The Beastkin Kingdom’s Royal Capital and the Reverse Scale**
+# **153: The Beastkin Kingdom’s Royal Capital and the Reverse Scale**
 
 **AN:** Since this is a new land, there are a lot of new characters popping up needlessly.
 
@@ -6050,7 +6050,7 @@ An introduction for a (potential) character whose appearance is undecided might 
 
 +++
 
-## **154: The Beast King and a Wish**
+# **154: The Beast King and a Wish**
 
 **AN:** This is a dialogue-heavy chapter, but a lot of things move forward.
 
@@ -6710,7 +6710,7 @@ Since Sharon’s dual personalities share the same voice, if this were an anime,
 
 +++
 
-## **155: The Calamity God and Subspace**
+# **155: The Calamity God and Subspace**
 
 **AN:** Just because something was considered back in Volume 1 does not mean it will necessarily be active or have a major impact on the main storyline, so please keep that in mind.
 
@@ -7332,7 +7332,7 @@ Other planned ones include Volcano, Tempest, and Tidal Wave (major spoilers).
 
 +++
 
-## **156: The Princess Shrine Maiden and the Return**
+# **156: The Princess Shrine Maiden and the Return**
 
 **AN:** Previously: Jin-kun, unusually, went full protagonist mode. “Earthquake” died somewhere between Chapter 155 and Chapter 156.
 
@@ -7958,7 +7958,7 @@ Next time, the duel event. The title is “Public Execution and the Sword of Lig
 
 +++
 
-## **157: Public Execution and the Sword of Light**
+# **157: Public Execution and the Sword of Light**
 
 **AN:** A duel event. To put it bluntly, it is playing around.
 
@@ -8604,7 +8604,7 @@ Koda’s favorite things
 
 +++
 
-## **158: The Princess Shrine Maiden and the Stay in the Royal Capital**
+# **158: The Princess Shrine Maiden and the Stay in the Royal Capital**
 
 **AN:** Regarding the matter of Special Powers spoilers, avoiding them in the foreword and afterword would honestly be stepping on a landmine (guaranteed to cause flames), so I will put them in the activity report instead (probably sometime this week).
 
@@ -9236,7 +9236,7 @@ I sincerely apologize.
 
 +++
 
-## **Characters Appearing in Volume 10**
+# **Characters Appearing in Volume 10**
 
 **AN:** As for tomorrow’s update, it has not yet been officially decided whether it will be the main story or a short story.
 
@@ -9432,7 +9432,7 @@ Notes: Eighth seat of the Eight Vassal Beasts. Her epithet is “Black Shadow.�
 
 +++
 
-## **Side Story 12: The Hero of the Heavenly Eye Stands Upon the Earth**
+# **Side Story 12: The Hero of the Heavenly Eye Stands Upon the Earth**
 
 **AN:** I am very sorry, but I did not make it in time, so please let me tide things over with a short side story.
 
@@ -9894,7 +9894,7 @@ Their hobbies and tastes are of completely different people.
 
 +++
 
-## **159: A Relaxed Schedule and Substitutes for Special Powers**
+# **159: A Relaxed Schedule and Substitutes for Special Powers**
 
 **AN:** A new arc.
 
@@ -10546,7 +10546,7 @@ Also, the April Fool’s joke has been decided without issue.
 
 +++
 
-## **160: Racial Mutation and Angels**
+# **160: Racial Mutation and Angels**
 
 **AN:** This chapter is labeled as the Guild Arc, but in reality it is divided into three major parts.
 
@@ -11152,7 +11152,7 @@ In this chapter, several plot threads are set up, and several are rather roughly
 
 +++
 
-## **161: Dragon Extermination and a Decision**
+# **161: Dragon Extermination and a Decision**
 
 **AN:** Sorry about the strange mistake last time.
 
@@ -11790,7 +11790,7 @@ A new form of “kukoro.”
 
 +++
 
-## **162: God’s-Eye View and the Truth of the Demon Race**
+# **162: God’s-Eye View and the Truth of the Demon Race**
 
 **AN:** A rather sloppy, spoiler-filled chapter.
 
@@ -12458,7 +12458,7 @@ Sloppy.
 
 +++
 
-## **163: Dungeon Conquest (Final Version) and Conquest Rewards**
+# **163: Dungeon Conquest (Final Version) and Conquest Rewards**
 
 **AN:** I added a hidden side story at the very end of the previous chapter. If you have time, take a look.
 
@@ -13134,7 +13134,7 @@ However, because it is inconvenient to address them, if the same name appears, o
 
 +++
 
-## **164: Lucid Dreams and the Guild Union District**
+# **164: Lucid Dreams and the Guild Union District**
 
 **AN:** We are going sightseeing in the Guild Union District.
 
@@ -13816,7 +13816,7 @@ As for the first half of this chapter, there is no particularly deep meaning.
 
 +++
 
-## **165: Hot Springs and S-Rank Hunting**
+# **165: Hot Springs and S-Rank Hunting**
 
 **AN:** One of the biggest flaws of this work, I think, is that the protagonist is too strong, making it hard to understand the relative strength of anyone else. To use an analogy, from the perspective of one hundred million, the difference between one and one hundred is basically just margin of error.
 
@@ -14418,7 +14418,7 @@ With everything that needed to be said said, we focused on enjoying the hot spri
 
 +++
 
-## **166: The Guild Grandmaster and the Skyborne Princess Shrine Maiden**
+# **166: The Guild Grandmaster and the Skyborne Princess Shrine Maiden**
 
 **AN:** The next arc is not progressing very well. Worst case, there might be a bit of a gap…
 
