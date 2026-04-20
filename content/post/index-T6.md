@@ -6,7 +6,7 @@
     slug: "traducir-6"   
 ---
 
-## **387 : The army of the Holy Nation of Amid vs the army of the Demon Empire of Vidal**
+# **387 : The army of the Holy Nation of Amid vs the army of the Demon Empire of Vidal**
 
 On the battlefield where blood sprayed into the air like torrential rain, the collision between powerful forces continued.
 
@@ -344,7 +344,7 @@ Their meat is soft and suited for simmered dishes. Their organs are pungent and 
 
 +++
 
-## **388 : The mad god and the concealed god**
+# **388 : The mad god and the concealed god**
 
 Fragments of Guduranis’s soul had infested evil gods who were remnants of the Demon King’s army, as well as the gods and demigods of Vida’s faction, and they were now causing chaos in the mortal world. Meanwhile, an uproar just as great was taking place in the Divine Realm in which the gods of Alda’s forces had gathered.
 
@@ -646,7 +646,7 @@ Lafaz crowed loudly in response as he caught the orb in his beak. He then spread
 
 +++
 
-## **389 : Those formerly of the Demon King’s army vs those of the old Demon King’s army**
+# **389 : Those formerly of the Demon King’s army vs those of the old Demon King’s army**
 
 At the boundary between the Hartner Duchy and the Farzon Duchy, a battle was taking place in the form of a war etiquette that had not been practiced for a very long time. But the rather silly atmosphere created by this etiquette was shattered in an instant by an intruder.
 
@@ -946,7 +946,7 @@ And so, Heinz continued waiting for Vandalieu’s arrival.
 
 +++
 
-## **390 : The countless hands that pray because of a shortage of hands**
+# **390 : The countless hands that pray because of a shortage of hands**
 
 “Hmm? I’m in… the sky?” a certain god murmured in confusion as he suddenly regained consciousness, noticing that there were clouds floating below him.
 
@@ -1290,7 +1290,7 @@ He stored Nadia, who was still in a daze and covered in mucus, safely inside one
 
 +++
 
-## **391 : The bloated soul**
+# **391 : The bloated soul**
 
 The Birgitt Duchy’s army and the Farzon Duchy’s second army were facing off at the border between the two duchies. But before the battle could tr uly begin, two intruders appeared, turning the situation into chaos.
 
@@ -1588,7 +1588,7 @@ o **Unique skills:**
 
 +++
 
-## **392 : The gluttonous Elder Dragon who even drinks evil poison**
+# **392 : The gluttonous Elder Dragon who even drinks evil poison**
 
 The hundred-meter-tall walrus collided head-on with the enormous body that Vandalieu had created with a countless number of Demon King arms, legs, and jointed legs.
 
@@ -2120,7 +2120,7 @@ Vida’s Divine Protection
 
 +++
 
-## **393 : The gods of the earth and sea**
+# **393 : The gods of the earth and sea**
 
 Venom Gusts and Venom Slimes, poisonous gases and liquids that had turned into monsters. Cursed Shadows, moving entities of shadow and darkness inhabited by curses.
 
@@ -2506,7 +2506,7 @@ Vida’s Divine Protection
 
 ++++
 
-## **Hachinan tte, sore wa nai deshou! – Volume 22 – Chapter 7 – Idiot and Parrot**
+# **Hachinan tte, sore wa nai deshou! – Volume 22 – Chapter 7 – Idiot and Parrot**
 
 The development of the unified Akitsushima Island, the southern archipelago, and the Baumeister mainland had been proceeding well. The neighboring Breithilde Margraviate was profiting from this, experiencing a boost in its economic activity.
 
@@ -5114,7 +5114,7 @@ I’ll continue to be a maid. Forever.
 
 ++++
 
-## **Hachinan tte, sore wa nai deshou! – Volume 23 – Prologue – In the Far Northern Reaches**
+# **Hachinan tte, sore wa nai deshou! – Volume 23 – Prologue – In the Far Northern Reaches**
 
 “Is this everyone you managed to gather, Keitzel? I see that all of the regulars are present, but what about the supporters who endorsed our ideal?”
 
@@ -6028,7 +6028,7 @@ I left the ruins vowing to myself that at least I, at least, would remember the 
 
 +++
 
-## **91 – Heading to the Snakefolk Village**
+# **91 – Heading to the Snakefolk Village**
 
 Hi, it’s Taichi.
 
@@ -6366,7 +6366,7 @@ Even if that’s the case, what should I do? Well, I guess I’d best just go wi
 
 +++
 
-## **92 – Welcomed (?) in the Snakefolk Village**
+# **92 – Welcomed (?) in the Snakefolk Village**
 
 The Snakefolk settlement was located on flat land, backed by mountains. Like the Beastkin village, it was surrounded by a log wall. Passing through the gate, several shacks and workshops came into view. Farther back, on the mountain side, there appeared to be some kind of kiln or furnace, from which smoke rose high into the sky.
 
@@ -6906,7 +6906,7 @@ The sliding door opened, and Rifana entered the room. A silence as if the air ha
 
 ++++
 
-## **Someday Will I Be The Greatest Alchemist - 641 - Fluna’s Talent**
+# **Someday Will I Be The Greatest Alchemist - 641 - Fluna’s Talent**
 
 A beautiful, clear voice echoed throughout the passages of the gloomy dungeon.
 
