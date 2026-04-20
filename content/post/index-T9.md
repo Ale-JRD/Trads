@@ -104,7 +104,7 @@ Mika and I looked at each other.
 
 _How should I put it… it’s just as I feared._
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. That might be the boy from the story in chapter 261, who was the cause of the Jizou statue being built.
 
@@ -504,7 +504,7 @@ Now that she mentioned it, she was right. At this point, I was probably doing it
 
 And even though we were in public, she kissed me on my cheek.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. In the original, he notices that 翔が優勝 (“Shou is the champion”), which reads as “shou ga yushou”, sounds like a pun.
 
@@ -648,7 +648,7 @@ The hooded man vanished in a way that should have been physically impossible.
 
 She, once more, blushed adorably.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. In the original, this is 気配への完治 (“complete restoration of/towards indication/hint”) which is most likely an error and meant to be 気配への感知 (“perception of/towards hints”). 完治 and 感知 are homophones.
 
@@ -1034,7 +1034,7 @@ It was Hoshino who had made that crazy request. He nodded firmly at the question
 
 Whoever could’ve predicted this outcome? No one imagined that Hoshino would go through with his declaration.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. In the original he calls him “Ayu-chan-san” and I don’t even know where I’d begin to try to localize that, so I went with his known nickname “(little) Ali” instead.
 
@@ -1172,7 +1172,7 @@ Indeed, it was as if she’d been part of our group since forever… Come to thi
 
 They were surrounded by lots of people who likely saw them on TV and seemed to have a hard time.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. In the original, she wonders if Hoshino has a lewd side. I couldn’t think of a way to translate that into English while preserving the other meaning
 
@@ -1694,7 +1694,7 @@ For now, I gently lowered Mika to the bed. We silently shot each other a glance 
 
 Indeed, just as usual.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. The retirement home called. They’d like their joke back
 
@@ -2366,7 +2366,7 @@ After folding our hands as customary, we took each other’s hands again and wal
 
 We made our way to school.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. The original is rather ambivalent and doesn’t specify “relationship” here, so it might simply mean that it makes “things” easier/more comfortable
 
@@ -2502,7 +2502,7 @@ I very carefully placed the heavy head where it had been and then performed the 
 
 I put my hand on the statue’s head again. It somehow felt lighter than before. And once it was off… an aperture had appeared where there hadn’t been one before.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Mapo (麻婆), likely the shortened version of [Mapo Tofu](https://en.wikipedia.org/wiki/Mapo_tofu), is a Chinese dish with tofu in spicy sauce. I assume they eat that together with glass noodles here.
 
@@ -2630,7 +2630,7 @@ If there ever was a chapter demonstrating how much Alim and Mika’s supposed in
 
 They went and pretty much confirmed that Mephistophales is the Guide less than 20 chapters ago. They should have realized the trouble they are in the moment Kanata brought up the chance of there being a Guide on Earth, but… nothing.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. The original is 積み (“pile”) which I assume is a typo and meant to be 詰み (“checkmate”)
 
@@ -2864,7 +2864,7 @@ At Kanata’s words, everyone was about to rush off. Only, to immediately come t
 
 Mr. Mitsuo, in his clown make-up, emerged from the shadow of the opposite house. He wore what looked like a pitch-black coat.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. He says “nariue” in the original, which I assume is an error.
 
@@ -2990,7 +2990,7 @@ He had the vajra, which meant…!
 
 _Could it be… that we’re in awfully big trouble?_
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. In the original, Mitsuo usually talks in the normal polite (desu/masu) form, while the man in black doesn’t, though this sadly isn’t noticeable in my translation
 
@@ -3080,7 +3080,7 @@ The evil god’s reply to that question was simple.
 
 “Why, I’ve seen you.”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. [Asuras](https://en.wikipedia.org/wiki/Asura) are evil/destructive demigod-like beings in Hinduism, which feels a good parallel to Anazumu’s evil gods compared to proper gods
 
@@ -3400,13 +3400,13 @@ The remaining four of us decided to make our ways to our respective homes, too. 
 
 Still, dealing with evil gods was always a hassle and it would likely only get worse from now on, though that couldn’t be helped. At least he wasn’t overtly hostile, which made it a million times better.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Around 1600 AD in the western calendar
 
 ++++
 
-## **Boundary Labyrinth and the Foreign Magician - 184 – A New Life**
+# **Boundary Labyrinth and the Foreign Magician - 184 – A New Life**
 
 We were training with our companions in a corner of the courtyard as the morning sun streamed in.
 
