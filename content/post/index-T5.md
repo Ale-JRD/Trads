@@ -6,7 +6,7 @@
     slug: "traducir-5"   
 ---
 
-## **188: Discovering a Hero and Additional Searching**
+# **188: Discovering a Hero and Additional Searching**
 
 **AN:** It might be difficult to update on the 30th.
 
@@ -726,7 +726,7 @@ Mio snapped to attention with a salute.
 
 +++
 
-## **188.5: The Water Princess Shrine Maiden**
+# **188.5: The Water Princess Shrine Maiden**
 
 **AN:** I am sorry, but this is not part of the main story. It is just a short side tale.
 
@@ -1570,7 +1570,7 @@ Yes, that is not wrong.
 
 +++
 
-## **189: The Cooking Competition and the Championship**
+# **189: The Cooking Competition and the Championship**
 
 **AN:** A style where the result is written right into the title.
 
@@ -2220,7 +2220,7 @@ If anyone knows a delicious dish that combines eggs, milk, fruit, and fish, I wo
 
 +++
 
-## **190: Gondolas and the Drifting Island**
+# **190: Gondolas and the Drifting Island**
 
 **AN:** I apologize, but I will be making a small change to the contents of Chapter 188.
 
@@ -2848,7 +2848,7 @@ Probably twenty days from now again. Sorry about that.
 
 +++
 
-## **191: Festival and Mock Battles**
+# **191: Festival and Mock Battles**
 
 **AN:** A skill you see fairly often makes an appearance.
 
@@ -3596,7 +3596,7 @@ Strong-enemy combat use: Capable of defeating a Calamity Dragon.
 
 +++
 
-## **192: Festival Hopping and the Flea Market**
+# **192: Festival Hopping and the Flea Market**
 
 **AN:** This is a laid-back chapter.
 
@@ -4236,7 +4236,7 @@ And thus, I ended up acquiring both the ship for the outbound journey and a ship
 
 +++
 
-## **193: Landing and an Unknown Threat**
+# **193: Landing and an Unknown Threat**
 
 **AN:** Updates will be on a 20-day interval for a while.
 
@@ -4904,7 +4904,7 @@ _The contents of the preview may change without prior notice._
 
 +++
 
-## **194: The Oni Hero and Training**
+# **194: The Oni Hero and Training**
 
 **AN:** This chapter differs from the contents announced in the previous preview.
 
@@ -5564,7 +5564,7 @@ The naming of \<Oni Tag: Mighty Arm> was self-praise.
 
 +++
 
-## **195: Releasing Petrification and the Mountain of Salt**
+# **195: Releasing Petrification and the Mountain of Salt**
 
 **AN:** It is recommended that you read the final line of Chapter 193 before reading this chapter.
 
@@ -6232,7 +6232,7 @@ After notifying Sakura and the others waiting on Latis Island via telepathy, I r
 
 +++
 
-## **196: Report and Proposals**
+# **196: Report and Proposals**
 
 **AN:** I forgot to note this earlier, but this chapter is part of the “Water Capital Arc.”
 
@@ -6828,7 +6828,7 @@ The next volume will be an interlude, with a rapid series of short stories focus
 
 +++
 
-## **197: Tranquility and Destruction**
+# **197: Tranquility and Destruction**
 
 **AN:** This is the main story, told from a third-person perspective.
 
@@ -7422,7 +7422,7 @@ Next time: “Gired Dies”.
 
 +++
 
-## **198: Subjugation of the Water Calamity Dragon and Retribution**
+# **198: Subjugation of the Water Calamity Dragon and Retribution**
 
 **AN:** There is some rather blatant padding in this chapter. Please forgive me.
 
@@ -7990,7 +7990,7 @@ He never spoke ill of the victims. That doesn’t mean his actions are forgivabl
 
 +++
 
-## **199: Reconstruction and Punishment**
+# **199: Reconstruction and Punishment**
 
 **AN:** This chapter is effectively a chapter-result wrap-up.
 
@@ -8614,7 +8614,7 @@ Since I already know what to write, it should be fine. Probably. Hopefully. …I
 
 +++
 
-## **200: Reunion and Summoning**
+# **200: Reunion and Summoning**
 
 **AN:** This is the final chapter of Volume 13. A nice, round number for the main story at Chapter 200 makes me grin.
 
@@ -9282,7 +9282,7 @@ After the character introductions, it’s not Volume 14 but an interlude. It’l
 
 +++
 
-## **Volume 13 Characters**
+# **Volume 13 Characters**
 
 **AN:** This is the usual character introduction.
 
@@ -9478,7 +9478,7 @@ As a light opening jab, there will be two stories about Rin and one story focusi
 
 +++
 
-## **Interlude 1**
+# **Interlude 1**
 
 **AN:** As this is an interlude, there will be some trial and error. Also, the numbering of chapters will start from 1.
 
@@ -10252,7 +10252,7 @@ Since this is the first time, one story from each category is included.
 
 +++
 
-## **Interlude 2**
+# **Interlude 2**
 
 **AN:** This time, there are two pieces. Basically, it will be about two per post.
 
@@ -10754,7 +10754,7 @@ If we do, it would probably just be character combinations.
 
 +++
 
-## **Interlude 3**
+# **Interlude 3**
 
 **AN:**
 
@@ -11380,7 +11380,7 @@ That is probably more natural. Since there was no room to include it in this sto
 
 +++
 
-## **Interlude 4**
+# **Interlude 4**
 
 **AN:**
 
@@ -11976,7 +11976,7 @@ A labor-of-love joke
 
 +++
 
-## **Interlude 5**
+# **Interlude 5**
 
 **AN:** I apologize, but this time it is only one story.
 
@@ -12358,7 +12358,7 @@ Notes: The emperor of the Crimson Empire and a reincarnator who has formed a coo
 
 +++
 
-## **Interlude 6**
+# **Interlude 6**
 
 **AN:**
 
@@ -12824,9 +12824,9 @@ I had wanted to include details about the labyrinth situation somewhere, but the
 
 ++++
 
-## **The Death Mage Who Doesn’t Want a Fourth Time**
+# **The Death Mage Who Doesn’t Want a Fourth Time**
 
-## **383 : The beginning before winter**
+# **383 : The beginning before winter**
 
 《The Levels of the ‘Transcendant Strength,’ ‘Constant Super Mana Recovery,’ ‘Extreme Strengthen Subordinates,’ ‘Divine Venom Secretion (Claws, Fangs, Tongue),’ ‘Enlarged Attack Power while Unarmed,’ ‘Super Strengthened Body Part: Hair Claws, Tongue, Fangs,’ ‘Demon Thread Refining,’ ‘Super Increased Mana Recovery Rate,’ ‘Enlarged Vitality,’ ‘Augmented Attribute Values: Reigning,’ ‘Augmented Attribute Values: Worshiped,’ ‘Strengthened Attribute Values: Demon Empire of Vidal,’ ‘Self-Strengthening: Cannibalism,’ ‘Augmented Attribute Values: Cannibalism,’ ‘Murder Healing,’ ‘Self-Strengthening: Murder,’ ‘Augmented Magical Power while equipped with a Staff,’ ‘Strengthened Attribute Values: Guide,’ ‘Blood Rule,’ ‘Roar of Destruction,’ ‘Golem Genesis,’ ‘Hollow World God Magic,’ ‘Precise Mana Control,’ ‘Divine Alchemy,’ ‘Group Coordination,’ ‘Group Commander,’ ‘Death Thread Reeling,’ ‘Dark Scream,’ ‘True Demon King Artillery Technique,’ ‘Demon World Binding Technique,’ ‘Transcend Limits: Fragments,’ ‘Whip Technique,’ ‘Staff Technique,’ ‘High-speed Flight,’ ‘Musical Instrument Performance,’ ‘Dancing,’ ‘Muscle Technique,’ ‘Magic Fighting Technique,’ and ‘Labyrinth Domination’ Skills have increased!》
 
@@ -13198,7 +13198,7 @@ In a way, things looked like they would begin as Vandalieu wished for – with t
 
 +++
 
-## **384 : The diversionary battle**
+# **384 : The diversionary battle**
 
 Not a single person in the Holy Nation of Amid opposed the holy war proclaimed by Pope Eileek Marme.
 
@@ -13528,7 +13528,7 @@ And so, the first part of the decisive battle began with a successful surprise a
 
 +++
 
-## **385 : The method deployed by the truly evil god**
+# **385 : The method deployed by the truly evil god**
 
 Sorry for the delay in releases over the past year, and thanks for your patience. 2025 was a pretty rough year for me at work in terms of long overtime hours (100+ overtime hours per month at times, just Japan things…) That lasted from January to October. After that period, I needed some time to recover mentally by spending more non-work-hours on myself and family and unfortunately that meant slower translations and releases for this series. This time, I’m back with more motivation!
 
@@ -13952,7 +13952,7 @@ Vida’s Divine Protection
 
 +++
 
-## **386 : The justice that threatens the world vs the new Demon King’s army that protects it**
+# **386 : The justice that threatens the world vs the new Demon King’s army that protects it**
 
 Sinister-looking beings had appeared in the skies over every battlefield and the major cities. A single glance was enough to know that these were no ordinary beings.
 
