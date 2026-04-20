@@ -6,7 +6,7 @@
     slug: "traducir-7"   
 ---
 
-## **The Cave King Will Live a Paradise Life - 280 – Two Steps Ahead!?**
+# **The Cave King Will Live a Paradise Life - 280 – Two Steps Ahead!?**
 
 ---
 
@@ -1180,7 +1180,7 @@ Mira carefully explained all of that, but Vanessa did not seem distraught by it,
 
 Vanessa was really shocked to hear that, which was understandable. It was common knowledge that plants and fruits needed plenty of sunlight to grow strong and tasty. But Mira, or rather Martel, said this was an exception.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. TLN: Soul Nuclide is apparently the name for plants with mana regeneration properties
 
@@ -3858,7 +3858,7 @@ But there was not much that could be done about it, as she had to remain locked 
 
 For now, all Mira could do was think if there was anything else she could do other than being a bodyguard, so that Iris would be able to meet more people and have a more fulfilling life once she could go outside again.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: I mean… yea, a healthy smell is not a delicious smell
 
@@ -5656,7 +5656,7 @@ That particular stone had simply flown too high, slipping through the net. And t
 
 Suddenly, a deafening blast erupted. Yae-hime and Lucky’s fists collided with brutal force, the mighty impact bursting outward from them in concentric shockwaves!
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Refers to a legendary nine-tailed fox spirit from ancient China, who was the favorite consort of King Zhou, the last ruler of the Shang dynasty.
 
@@ -6184,7 +6184,7 @@ Having once suffered at the hands of a spatial teleportation, Yae-hime was not f
 
 There was indeed a faint impression in her mind, but no matter how hard she tried, she could not recall the truth. At last, she simply pulled the blanket over her head, closed her eyes, and feigned sleep, quietly waiting for her prison timer to pass.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Wait… wtf? Korg is a female?! Who the frick gave her such a MANLY name! WHO?!
 
@@ -6290,7 +6290,7 @@ At the moment Taurus’ body shriveled into a husk and then dissolved into white
 
 [Artifact Ranking]!
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Did he actually die and withered up in real life too? That’s what I’m most curious about.
 
@@ -6410,7 +6410,7 @@ He gazed into the night sky, his lips moving faintly.
 
 “I hear it…the call of the Abyss.”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: So the death didn’t carry to real life… shame… shame
 
@@ -6620,7 +6620,7 @@ Then she had Little Blue teleport her home. For such a short-range jump, Yae-him
 
 With a flash of white light, Yae-hime finally returned to her own home.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: The author must’ve made a mistake, they actually wrote Taurus here. Unless they mean there was a 70% chance Taurus had the Artifact and S.K.Y. killed him over him, but since they didn’t specify, I’ll just chalk it up to a typo.
 
@@ -6752,7 +6752,7 @@ Words spoken without intent, yet the listener caught their weight. Sparks of tho
 
 After chatting a while longer with her little cuties, Yae-hime returned to her room, changed into pajamas, and lay down to rest. She had expended a great deal of energy today and needed to recover as quickly as possible.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Durian pig trotters? Yuck… sounds nasty… Surprised to see an Asian disgusted by durians? Yes, I blame my father for this. He was so obsessed with durians he’d buy batches upon batches of them even tho we’ve still had plenty of uneaten durian at home. After a while, I just got so fed up with durian I avoided them at all costs.
 
@@ -6864,7 +6864,7 @@ Within the City of Chaos, the silence in Yae-hime’s room was suddenly broken b
 
 She picked it up and glanced at the caller ID. It was Mylene. She swiped the screen, and immediately her little sister’s slightly excited voice came through, “Sis, we’ve struck it rich!”
 
-#### **Footnotes****:**
+# **Footnotes****:**
 
 1. Syl: Previously being translated as “Dragon family”
 
@@ -7228,7 +7228,7 @@ Yae-hime had given strict orders before: if any suspicious individuals appeared 
 
 “Could it be… Apostles?” she said seriously, lifting her slender legs from the pool, droplets of water glimmering as they trailed down her skin.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: I’m not sure if I should call that disgusting or… delightful… the law-abiding part of me says that’s disgusting… the degenerate part of me says drinking potion water soaked in a pretty girl’s feet is a treat, huff huff huff…
 
@@ -7348,7 +7348,7 @@ Their powerful auras clashed violently, the collision so intense that even the b
 
 Just as Yae-hime and the Fifth Apostle were about to strike— A young, childish voice suddenly rang out. “Out of the way!”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 Syl: The author actually made a mistake and included a note in this chapter, saying, “Micha actually called Yae-hime as Lord Angel, not Princess.”
 
@@ -7682,7 +7682,7 @@ Just as Irene was about to strike, a loud, commanding voice rang out. In the nex
 
 He stood frozen, gazing at the stunningly beautiful girl before him—so pure, so ethereal, she looked like an elf descended from heaven. A murmur escaped his lips. “Damn… this must be what they call love at first sight.”
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Talk about shameless… it wasn’t even his. He tried to steal it and failed, and now he wants to sic a high noble at Yae-hime
 
@@ -7812,7 +7812,7 @@ The First Apostle produced a jet-black communication bead and began contacting a
 
 “No one can stop my revenge, no one…” The words of resentment echoed through the forest, making the already gloomy woods even more sinister.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Eww… so he’s a m̲a̲s̲o̲c̲h̲i̲s̲t̲
 
@@ -7914,7 +7914,7 @@ Yae-hime approached the bedside and carefully examined Alicia’s condition. It 
 
 “Huh?” Lili froze in shock, barely managing to force out that single sound.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: The author actually wrote seventh princess here, and I was confused… checked the glossary and indeed, the 7th is Kastina. Alicia should’ve been the 1st princess…
 
@@ -8008,7 +8008,7 @@ Foundational training complete. Next phase unlocked: Intermediate and Advanced S
 
 Hearing that, she froze for a moment in surprise. Then, a tremendous surge of life energy erupted from within her, threatening to burst out of her body. In that instant, Yae-hime’s power skyrocketed, ascending to an even greater realm.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: Too much of anything can also become a poison y’know, just saying… isn’t this how Alicia ends up being how she is now?
 
@@ -8118,7 +8118,7 @@ Seeing her like this, Lili couldn’t hold back any longer and wrapped her arms 
 
 Outside the cave, Moon leaned silently against the stone wall, her pitch-black eyes glimmering faintly with moisture.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: I’m dead… I had to spend the last 30 minutes trying to find when this item last appeared since it wasn’t added into the glossary. It was translated as Purple level-up book in Chapter 135. It sounds lame so I’m sticking with this term.
 
@@ -8228,7 +8228,7 @@ In the next moment, the entire shop fell into dead silence. Sensing the eerie qu
 
 The players inside the shop gradually lost control of their emotions. And it didn’t take long for that emotional chaos to spread through the forums… Eventually sweeping across the entire world.
 
-#### **Footnotes:**
+# **Footnotes:**
 
 1. Syl: A casual player who’s ID is previously translated as “Not Returning Home Tonight (今夜不归家)”. I haven’t gone out of my way to edit his name in the past translations yet, not unless he turns out to be an important character…
 
