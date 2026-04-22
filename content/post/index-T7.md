@@ -6,7 +6,7 @@
     slug: "traducir-7"   
 ---
 
-### **97 - Orgy at the Private Hot Spring**
+# **97 - Orgy at the Private Hot Spring**
 
  Having finally earned the right to enter the hot spring, we finally made it in.
 
@@ -222,7 +222,7 @@ I’ll thoroughly enjoy this hot spring harem sex and build up my energy for the
 
 +++
 
-### **98 - The Coveted Seed**
+# **98 - The Coveted Seed**
 
 Long time no see. It’s me.
 
@@ -406,7 +406,7 @@ It was the night I learned that to love is also to be loved—and thoroughly exh
 
 +++
 
-### **99 - A Sudden Turn of Events**
+# **99 - A Sudden Turn of Events**
 
  "Yay!" 
 
@@ -590,7 +590,7 @@ That said, her voluptuous body looked like it was about to burst through her pri
 
 +++
 
-### **100 - Humiliation Training**
+# **100 - Humiliation Training**
 
 The Kingdom of Niosebuk
 
@@ -780,7 +780,7 @@ Oh. Wait. Did I remember to turn the **[Impregnation Switch]** OFF?
 
 +++
 
-### **101 - Men with No Right to See Tomorrow**
+# **101 - Men with No Right to See Tomorrow**
 
  I couldn't be bothered with the logistics anymore, so I just spent my time enjoying sex with Lapee, the receptionist.
 
@@ -1016,7 +1016,7 @@ _Man... this is turning into a whole thing again._
 
 +++
 
-### **102 - Hunt Down the Niosebuk**
+# **102 - Hunt Down the Niosebuk**
 
 "I am Romphaia, Captain of the Border Reinforcement Unit and member of the Royal Palace's Fourth Knight Order of Reniosegra."
 
@@ -1136,7 +1136,7 @@ Usually, I’d never trust a mad scientist, but coming from her, I felt like I h
 
 +++
 
-### **103 - Scorched Earth Policy and Guerrilla Warfare**
+# **103 - Scorched Earth Policy and Guerrilla Warfare**
 
 So, what exactly was this "Dungeon Desiccation" that the genius researcher Beaker proposed?
 
@@ -1314,7 +1314,7 @@ When asked like that, a man has to respond. I’m the type who enjoys sex even i
 
 +++
 
-### **104 - Begin the Sabotage**
+# **104 - Begin the Sabotage**
 
 So, I found myself participating in a sabotage operation against those Niosebuk bastards. The reward was tempting, but even without it, those pests are a blight that can’t be left alone.
 
@@ -1492,7 +1492,7 @@ Romphaia’s face turned pale as she stared at the paper. The order written ther
 
 +++
 
-### **105 - Sexual Entertainment is also a Female Knight's Duty**
+# **105 - Sexual Entertainment is also a Female Knight's Duty**
 
  "What on earth is the meaning of this order?!"
 
@@ -1676,7 +1676,7 @@ The vibrations of the horse made Romphaia start moaning again.
 
 +++
 
-### **106 - A Voluptuous Detour**
+# **106 - A Voluptuous Detour**
 
 In the middle of my mission to destabilize Niosebuk, I got so carried away having sex with my traveling companion, the female knight Romphaia, that we lost our way. Classic me.
 
@@ -1866,7 +1866,7 @@ Was this woman really just a "landlady"?
 
 +++
 
-### **107 - The Mysterious Inn**
+# **107 - The Mysterious Inn**
 
  The girl who came into the room after being called by her mother was already completely naked. Smooth breasts, underdeveloped nipples, and a bud-like vagina.
 
@@ -2038,7 +2038,7 @@ Her bright smile was practically blinding. This was Corzette, the woman running 
 
 +++
 
-### **108 - A Merchant’s Consent**
+# **108 - A Merchant’s Consent**
 
 Mistress Corzette, the representative of the Selengren Merchant Coalition, was a woman brimming with an energy and charisma that defied the typical image of a "grieving widow."
 
@@ -2258,7 +2258,7 @@ They were still weighing us against the Kingdom of Niosebuk!
 
 +++
 
-### **109 - Capitalists Smile at War**
+# **109 - Capitalists Smile at War**
 
  I was still listening in, my penis still buried inside Romphaia’s canal as I maintained the connection.
 
@@ -2468,7 +2468,7 @@ _The sexual trap is already set._
 
 +++
 
-### **110 - Maid Play**
+# **110 - Maid Play**
 
  The star of the negotiation has yet to arrive.
 
@@ -2652,7 +2652,7 @@ Yeah, that sounds like a great plan. If I can keep having maid-sex like this, I 
 
 +++
 
-### **111 - A Female Merchant is a Female Merchandise**
+# **111 - A Female Merchant is a Female Merchandise**
 
 "Hyaaahhh!! Oh, god! Yes! This maid-pussy is amazing!! ❤️❤️❤️❤️"
 
@@ -2858,7 +2858,7 @@ We’d completely abandoned the negotiation for the sake of sex. Or maybe not. T
 
 +++
 
-### **112 - Double-Service and a New Destination**
+# **112 - Double-Service and a New Destination**
 
  After the main event was over...
 
@@ -3016,7 +3016,7 @@ Target: The Dwarven Smith-Nation. Let's get to work.
 
 +++
 
-### **113 - The Dwarven Kingdom**
+# **113 - The Dwarven Kingdom**
 
  And so, here I am.
 
@@ -3197,7 +3197,7 @@ _Girl?_
 
 +++
 
-### **114 - A Night with a Dwarf?**
+# **114 - A Night with a Dwarf?**
 
 I found myself with quite a bit of downtime during my first visit to the Dwarven Kingdom.
 
@@ -3415,7 +3415,7 @@ The night in the Dwarven Kingdom had only just begun...
 
 +++
 
-### **115 - Trial of the Earth**
+# **115 - Trial of the Earth**
 
  The next morning.
 
@@ -3623,7 +3623,7 @@ Sex before the trial. And I’m sure there’ll be sex after the trial, too.
 
 +++
 
-### **116 - The Guardian’s True Form**
+# **116 - The Guardian’s True Form**
 
  After that, Septekifa and I had sex repeatedly. Deep within the Great Mine, far from any lingering miners, we took advantage of the absolute solitude to entwine our bodies again and again.
 
@@ -3805,7 +3805,7 @@ _Now, Spirit, watch closely! Behold the climax of the human life-cycle, repeated
 
 +++
 
-### **117 - Sexual Offering**
+# **117 - Sexual Offering**
 
 I’m currently in the middle of sex with Septekifa, the dwarf girl.
 
@@ -3985,7 +3985,7 @@ And so, Septekifa and I spent a long while longer in the dark, having sex just t
 
 +++
 
-### **118 - The Secret of the Dwarven Kingdom**
+# **118 - The Secret of the Dwarven Kingdom**
 
  When I returned to the surface and stood before the Dwarven King once more, the hall was swallowed by a wave of shock and panic. It was as if a dead man had just crawled out of his grave.
 
@@ -4159,7 +4159,7 @@ That concludes the Dwarven Kingdom arc! Next time, we begin the 'End-of-the-Worl
 
 +++
 
-### **119 - Obtaining an Exclusive Weapon**
+# **119 - Obtaining an Exclusive Weapon**
 
 Alright, it’s time to crush the Kingdom of Niosebuk.
 
@@ -4327,7 +4327,7 @@ And there’s one more thing that makes this goblin special. Not only is she int
 
 +++
 
-### **120 - The Goblin Queen**
+# **120 - The Goblin Queen**
 
 I’ll call her Goblina.
 
@@ -4511,7 +4511,7 @@ So, since I’ve found them, I might as well finish off every last one of them.
 
 +++
 
-### **121 - The Stinkier, the Better**
+# **121 - The Stinkier, the Better**
 
 It happened.
 
@@ -4669,7 +4669,7 @@ She was still a goblin. A race that refuses to bathe out of pure spite.
 
 +++
 
-### **122 - Those Who Dwell in the Wasteland of Hell**
+# **122 - Those Who Dwell in the Wasteland of Hell**
 
 Sigh. I ended up having sex with Goblina too.
 
@@ -4817,7 +4817,7 @@ The more I learned about those bastards, the more my resolve grew.
 
 +++
 
-### **123 - Another Serving of Hope**
+# **123 - Another Serving of Hope**
 
 It was a good thing that I entered Niosebuk territory—or rather, the former Kingdom of Ricella—and encountered these refugees.
 
@@ -4993,7 +4993,7 @@ Thus, I reaffirmed my will to destroy the Kingdom of Niosebuk. While, of course,
 
 +++
 
-### **124 - The Mysterious Woman**
+# **124 - The Mysterious Woman**
 
 I’m pushing forward into the heart of Niosebuk. Well, maybe "forward" isn't the right word.
 
@@ -5167,7 +5167,7 @@ The woman in the cloak... had become the woman of the pussy.
 
 +++
 
-### **125 - Sex Without Knowing Her True Identity**
+# **125 - Sex Without Knowing Her True Identity**
 
 The mysterious woman, Tamagushi, appeared out of nowhere. She explained the bizarre phenomena currently plaguing the Niosebuk Kingdom and pointed to the Third Prince, Gangastra, as the source.
 
@@ -5341,7 +5341,7 @@ But fine. I’ll play along with her plan and let myself be "controlled" for now
 
 +++
 
-### **126 - Entering the Tiger’s Den**
+# **126 - Entering the Tiger’s Den**
 
 Having a cooperative relationship with the mysterious woman, Tamagushi, has made my infiltration of Niosebuk significantly smoother.
 
@@ -5525,7 +5525,7 @@ I realized then: killing the old King wasn't enough. The entire Niosebuk royalty
 
 +++
 
-### **127 - Defeat the Third Prince**
+# **127 - Defeat the Third Prince**
 
 "Hmm, so if I kill the Third Prince right here and now, it’s mission complete?" 
 
@@ -5685,7 +5685,7 @@ _What, did you descend all this way without knowing? Then let it be known. I am 
 
 +++
 
-### **128 - The Captive Sylph**
+# **128 - The Captive Sylph**
 
 "The Wind Spirit, Harp...?"
 
@@ -5889,7 +5889,7 @@ Hang tight, Spirit! I’m going to rescue you from this cramped cage right now!
 
 +++
 
-### **129 - The Third Stigma**
+# **129 - The Third Stigma**
 
 "But specifically, how do I release you?"
 
@@ -6099,7 +6099,7 @@ Are you ready to meet your end?
 
 +++
 
-### **130 - Proof of Kingship**
+# **130 - Proof of Kingship**
 
  "Sir Sao...?! Those crests on your chest...!"
 
@@ -6295,7 +6295,7 @@ Anyone who thinks they can survive alone without realizing that is a fool. Just 
 
 +++
 
-### **131 - Without Mercy**
+# **131 - Without Mercy**
 
  "Allowed to live by the earth...?! Don't make me laugh!"
 
@@ -6483,7 +6483,7 @@ This is bad—the Prince’s fist is closing in and I can't use my staff! At thi
 
 +++
 
-### **132 - Sao’s True Identity, Tamagushi’s True Intentions**
+# **132 - Sao’s True Identity, Tamagushi’s True Intentions**
 
  Tamagushi?! You set me up, Tamagushi?!
 
@@ -6661,7 +6661,7 @@ With the Prince's roar, a wave of bloodlust surged from the surroundings. Is thi
 
 +++
 
-### **133 - The End of the Weak**
+# **133 - The End of the Weak**
 
  The thunderous roar of thousands of footsteps approached—_stomp-stomp-stomp-stomp!_—closing in from every direction. The collective vibration of hundreds... no, thousands of men sprinting in unison shook the very air.
 
@@ -6885,7 +6885,7 @@ Perhaps he died a satisfied death. After all, according to the absolute law of s
 
 +++
 
-### **134 - Buried Alive**
+# **134 - Buried Alive**
 
 "Sir Sao! Here is the corpse of the rebel Gangastra! Please, inspect the remains!!"
 
@@ -7083,7 +7083,7 @@ I’ll follow her lead on that one. Across the lonely wasteland where over a hun
 
 +++
 
-### **135 – The Next Enemy**
+# **135 – The Next Enemy**
 
 Still in the middle of sex with Tamagushi.
 
@@ -7261,7 +7261,7 @@ There are likely other managers and "customers" inside. It looks like I’ll hav
 
 +++
 
-### **136 – The Slave Stable**
+# **136 – The Slave Stable**
 
 Entering the prisoner-of-war camp, the atmosphere grows even more bizarre.
 
@@ -7429,7 +7429,7 @@ She has endured hard days after being captured by beasts, so she deserves to exp
 
 +++
 
-### **137 – Salvation Through Sex**
+# **137 – Salvation Through Sex**
 
 The latest rear is crying out with a delightful sound.
 
@@ -7611,7 +7611,7 @@ As if drawn by the eerie aura emanating from my "masterpiece," the naked women a
 
 +++
 
-### **138 – The Harem Truly Existed**
+# **138 – The Harem Truly Existed**
 
 Translator's Note: This chapter is posted after a long break from the author.
 
@@ -7807,7 +7807,7 @@ I’d caught a glimpse of Tamagushi’s abilities during the fight with Gangastr
 
 +++
 
-### **139 – The Shrine Maiden Princess and the Shrine Maiden Consort**
+# **139 – The Shrine Maiden Princess and the Shrine Maiden Consort**
 
 I was guided deep into the Inner Palace of Niosebuk. In a private chamber at its furthest reaches, I came face-to-face with the woman who was Tamagushi’s mother.
 
@@ -7973,7 +7973,7 @@ Next time: the sex begins in earnest!
 
 +++
 
-### **140 – Conquest of the Harem**
+# **140 – Conquest of the Harem**
 
 The Sixth Queen of Niosebuk, Azusayumi.
 
@@ -8179,7 +8179,7 @@ From the crotches of the beauties gathered from across the Inner Palace, panties
 
 +++
 
-### **141 – In Search of the Dwarf Mother**
+# **141 – In Search of the Dwarf Mother**
 
 It seems every resident of the Niosebuk Inner Palace has decided to submit to me.
 
@@ -8363,7 +8363,7 @@ The concubines of the Inner Palace are impressive. If I ask, they answer everyth
 
 +++
 
-### **142 – The Dwarf at the Bottom of the Dim Waters**
+# **142 – The Dwarf at the Bottom of the Dim Waters**
 
 Baldaria Underground Water Caves.
 
@@ -8553,7 +8553,7 @@ As she spoke, the female Dwarf shamelessly flaunted her nipples and crotch right
 
 +++
 
-### **143 – There Are More Important Things Than Serious Talk**
+# **143 – There Are More Important Things Than Serious Talk**
 
 The first thing I did was bend my knees, hunch my back, and lower my head. That way, my eye level would be perfectly aligned with the most important part of the person standing before me.
 
@@ -8753,7 +8753,7 @@ Now that I've ejaculated inside her to my heart's content... I’d really like t
 
 +++
 
-### **144 – Persuading the Dwarf Mother**
+# **144 – Persuading the Dwarf Mother**
 
 Truth be told, I should have done this first.
 
@@ -8953,7 +8953,7 @@ _Wait._
 
 +++
 
-### **145 - The Aqua Stigma**
+# **145 - The Aqua Stigma**
 
 "Behold, the **[Aqua Stigma]**." 
 
@@ -9151,7 +9151,7 @@ I tilted my head at Tamagushi's anxious expression. The Fourth Princess, the mas
 
 +++
 
-### **146 - The Child of Conspiracy**
+# **146 - The Child of Conspiracy**
 
  I am finally face-to-face with the woman herself.
 
@@ -9351,7 +9351,7 @@ I mean, it’s not that big a deal. Anyway, the solution comes in the next phase
 
 +++
 
-### **147 - Shattering the Argument**
+# **147 - Shattering the Argument**
 
 I’m just a student from the Reniosegra Kingdom. A commoner, essentially.
 
@@ -9553,7 +9553,7 @@ She stripped off her clothes, becoming stark naked...
 
 +++
 
-### **148 - The Collapse of the Wise Woman**
+# **148 - The Collapse of the Wise Woman**
 
 "Ahih! ❤️❤️ Ahi-ahi-ahi-ahi! ❤️❤️ Hnh! ❤️❤️ Ahiieeeeeeeee!! ❤️❤️❤️❤️"
 
@@ -9761,7 +9761,7 @@ Still naked, Shinseniza raised her hand high and snapped her fingers. Wait, that
 
 +++
 
-### **149 - The Last Prince**
+# **149 - The Last Prince**
 
 The Fourth Princess, standing naked with semen dripping from her thighs, spoke.
 
@@ -9953,7 +9953,7 @@ He was almost omnipotent. This was Niosebuk’s treasured final weapon. The powe
 
 +++
 
-### **150 - Medium Fight**
+# **150 - Medium Fight**
 
 The Sixth Prince of Niosebuk, Teracoas.
 
@@ -10125,7 +10125,7 @@ Wait. Who? Another new character appearing this late in the game?
 
 +++
 
-### **151 - To Reach the Final Boss**
+# **151 - To Reach the Final Boss**
 
 "Father? You don't mean...!"
 
@@ -10345,7 +10345,7 @@ So... the Fourth Princess had betrayed her father? What exactly was her plan?
 
 +++
 
-### **152 - At the End of the Strongest**
+# **152 - At the End of the Strongest**
 
 "Gwoaaaaaaaaah!? Kibaba!! Pipepepepepepep!?"
 
@@ -10565,7 +10565,7 @@ I’m going to show this bastard exactly what his "Law of the Jungle" feels like
 
 +++
 
-### **153 - Following Your Principles**
+# **153 - Following Your Principles**
 
 We got dressed and began to move. The shocking reality was that from the harem 3P with Shinseniza and Tamagushi, all the way through the battles with Teracoas and the resurrected King of Niosebuk, we had been stark naked the entire time.
 
@@ -10771,7 +10771,7 @@ As the King, you should rejoice. Go on. Rejoice.
 
 +++
 
-### **154 - Save Him**
+# **154 - Save Him**
 
 "My, what has happened to Father?"
 
@@ -10967,7 +10967,7 @@ Oops, I made her mad. That was a topic far too sensitive for casual conversation
 
 +++
 
-### **155 - Boundaries of the Body**
+# **155 - Boundaries of the Body**
 
 "Sir Sao, listen well." 
 
@@ -11139,7 +11139,7 @@ Back to the country where the women I love are waiting...
 
 +++
 
-### **156 - True Democracy**
+# **156 - True Democracy**
 
  "I feel like it’s been ages since we last met..."
 
@@ -11329,7 +11329,7 @@ In this medieval fantasy world, the footsteps of the modern era are drawing near
 
 +++
 
-### **157 - Harem Life**
+# **157 - Harem Life**
 
 Ten years have passed since then...
 
@@ -11565,7 +11565,7 @@ I’ve been living like this for ten years now.
 
 +++
 
-### **158 - Ten Years Later**
+# **158 - Ten Years Later**
 
  After finishing breakfast alongside some parent-child intimacy, I didn't just spend the rest of the morning having sex—believe it or not. I actually headed to my office to perform a few duties becoming of a King.
 
@@ -11695,7 +11695,7 @@ I guess even in an Isekai fantasy, the final boss is always Religion.
 
 +++
 
-### **159 - The Cult of Light**
+# **159 - The Cult of Light**
 
 I eventually decided to meet with the envoy of the PhotonCult. Continually rejecting them wasn't going to get me anywhere, and I figured they weren't going to take "no" for an answer without a face-to-face confrontation.
 
@@ -11915,7 +11915,7 @@ It looked like I needed a new way to handle this.
 
 +++
 
-### **160 - Faith vs. Libido**
+# **160 - Faith vs. Libido**
 
 I’m currently in the middle of an audience with some serious crazies. The Photon Cult.
 
@@ -12083,7 +12083,7 @@ What's going on!? Who’s speaking!? Who are you!?
 
 +++
 
-### **161 - The Spirit of Light**
+# **161 - The Spirit of Light**
 
  The Spirit of Light!? Does that mean he’s related to _those_ people I know?
 
@@ -12281,7 +12281,7 @@ The Spirit of Light was sent flying high into the sky by a barrage of punches in
 
 +++
 
-### **162 - The Final Element**
+# **162 - The Final Element**
 
 "Earth-Water-Fire-Wind-Earth-Water-Fire-Wind-Earth-Water-Fire-Wind-Earth-Water-Fire-Wind-Earth-Water-Fire-Wind-Earth-Water-Fire-Wind!!"
 
@@ -12481,7 +12481,7 @@ Well, to be more accurate... a world where everyone can have sex with a smile.
 
 +++
 
-### **Epilogue**
+# **Epilogue**
 
 In conclusion...
 
@@ -12507,7 +12507,7 @@ I will use the wisdom and power of my reincarnation into this parallel world for
 
 +++
 
-### **Afterword**
+# **Afterword**
 
 "I will use the wisdom and power of my reincarnation into this parallel world for one thing, and one thing only: to keep on having sex."
 
