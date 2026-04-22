@@ -6,7 +6,7 @@
     slug: "traducir-5"   
 ---
 
-## **181 - To the Demonic Dragon Mountain Range 4**
+# **181 - To the Demonic Dragon Mountain Range 4**
 
 「Sei, are you okay?」
 
@@ -268,7 +268,7 @@ Frederie and the others take advantage of this opportunity to successfully leave
 
 +++
 
-## **182 - Completion of the Request**
+# **182 - Completion of the Request**
 
 Having successfully collected the medicinal herbs, we make our way through the forest at a fast pace towards Tabrowa.
 
@@ -532,7 +532,7 @@ Gulp. I reflexively swallow my saliva. The sensual beauty of Elmefiora, who has 
 
 +++
 
-## **183 - Conflict**
+# **183 - Conflict**
 
 Between men, you say?!
 
@@ -736,7 +736,7 @@ I follow Elmefiora and head into her room.
 
 +++
 
-## **184 - Thanks**
+# **184 - Thanks**
 
 I follow Elmefiora and step into her room.
 
@@ -958,7 +958,7 @@ She must have made up her mind as well. She starts to get very wild halfway thro
 
 +++
 
-## **185 - Friends**
+# **185 - Friends**
 
 Chirp, chirp, chirp.
 
@@ -1152,7 +1152,7 @@ After having breakfast, we head towards the east gate to go hunting.
 
 +++
 
-## **186 - Arestirara**
+# **186 - Arestirara**
 
 「Oh, there it is.」
 
@@ -1488,7 +1488,7 @@ After accompanying her on her hunt for a while, we head back to the town.
 
 +++
 
-##  **187 - Circumstances**
+#  **187 - Circumstances**
 
 After finishing the hunt with Arestirara, we return to Tabrowa.
 
@@ -1610,7 +1610,7 @@ After that, we continue mingling intensely until late into the night.
 
 +++
 
-## **188 - A New Comrade**
+# **188 - A New Comrade**
 
 Chirp, chirp, chirp.
 
@@ -1780,7 +1780,7 @@ Stopping by the Porter’s Union, Gio takes care of the paperwork, and then the 
 
 +++
 
-## **189 - Upper Stratums of the Labyrinth**
+# **189 - Upper Stratums of the Labyrinth**
 
 「The Stone Tower Labyrinth, huh? It’s been a while.」
 
@@ -2074,7 +2074,7 @@ After that, having memorized the characteristics of the enemies on the upper str
 
 +++
 
-## **190 - Soap**
+# **190 - Soap**
 
 「Gio-san, what do you think about our battle today?」
 
@@ -2314,7 +2314,7 @@ I hurriedly get out of the bath and run off to where Elmefiora is.
 
 +++
 
-## **191 - Virgin**
+# **191 - Virgin**
 
 「Huh, yeah, we’re friends after all, yes, got it. So, what should I do?」
 
@@ -2642,7 +2642,7 @@ While holding Tirara in my arms, I, having satisfied myself both physically and 
 
 +++++
 
-## **I Want to Earn Money Using the Skills I’ve Been Given and Flirt with Beautiful Women From Other World - 254**
+# **I Want to Earn Money Using the Skills I’ve Been Given and Flirt with Beautiful Women From Other World - 254**
 
 “Ah… um…”
 
@@ -2794,7 +2794,7 @@ Emanix, eager to learn the secret as soon as possible, enthusiastically moved to
 
 +++
 
-## **255**
+# **255**
 
 “Wait.”
 
@@ -2948,7 +2948,7 @@ And so they set out to thoroughly teach Emanix — who could only be called igno
 
 +++
 
-## **256**
+# **256**
 
 “Nnh… amu… nchu… n… n… churu…”
 
@@ -3114,7 +3114,7 @@ And so, Ichita and Emaniks finally move on to the main act.
 
 +++
 
-## **257**
+# **257**
 
 “Time for the real thing… shall we go?”
 
@@ -3236,7 +3236,7 @@ Having reached physical exhaustion from the nonstop new experiences, she could n
 
 +++
 
-## **258**
+# **258**
 
 “Lick it.”
 
@@ -3444,7 +3444,7 @@ With perfect timing, Gremilia begins to move. She had patiently endured waiting 
 
 +++
 
-## **259**
+# **259**
 
 “Nbu… Ogo… Ogu… Nbo…”
 
@@ -3572,7 +3572,7 @@ Ichita’s momentum never stops – he keeps ravishing every single one of them 
 
 ++++
 
-## **Reborn In A World of Chastity Reversal - 156 - At Sairei Academy (9) ~Wail~**
+# **Reborn In A World of Chastity Reversal - 156 - At Sairei Academy (9) ~Wail~**
 
 「Kuh, how humiliating.」
 
@@ -3936,7 +3936,7 @@ Saying goodbye to the two who were waving their hands vigorously as they saw him
 
 +++
 
-## **157 - Return, and then… ~CAN YOU CELEBRATE?~**
+# **157 - Return, and then… ~CAN YOU CELEBRATE?~**
 
 After going up to the third floor and getting off the elevator, Yuu passed a room that looked like a company office and entered the student council office, which was full of aristocratic tastes.
 
@@ -4260,7 +4260,7 @@ It was sudden, but soon after being told of their pregnancy, Yuu decided to meet
 
 +++
 
-## **158 - Visit to the Komatsu Family (1) ~Calling~**
+# **158 - Visit to the Komatsu Family (1) ~Calling~**
 
 According to Sayaka, the Komatsu family’s ancestry dated back to the Edo period, when they were a samurai family serving the Fudai clan in the northern part of Musashi Province.
 
@@ -4538,7 +4538,7 @@ What Tomoka presented was a contract stating that Yuu would relinquish his paren
 
 +++
 
-##  **159 - Visit to the Komatsu Family (2) ～There will be love there～**
+#  **159 - Visit to the Komatsu Family (2) ～There will be love there～**
 
 「The born baby will be raised as the child of the man Sayaka will eventually marry. Naturally, we will give you enough gratuity money to live a life of leisure for the of your life, so you can rest assured, Yuu-sama.」
 
@@ -4846,7 +4846,7 @@ Overcome with emotion, Sayaka closed her eyes, and rested her head on Yuu’s sh
 
 +++
 
-## **160 - Visit to the Komatsu Family (3) ~The Room, the Y-Shirt, and Me~**
+# **160 - Visit to the Komatsu Family (3) ~The Room, the Y-Shirt, and Me~**
 
 The chatting continued in a relaxed atmosphere for a while, but eventually, they decided to set a date for the guardians of not only Yuu and Sayaka, but also Riko and Eimi to meet in order to seal their engagement.
 
@@ -5202,7 +5202,7 @@ After a while, Sayaka, who had finished the call, turned to Yuu and said…
 
 +++
 
-## **161 - Young Lady, Fall (1) ~Steal the love, tie up the body~**
+# **161 - Young Lady, Fall (1) ~Steal the love, tie up the body~**
 
 The special open campus held by Sairei Academy the other day to invite the boys from Sairyou.
 
@@ -5646,7 +5646,7 @@ However, it wasn’t just Yuu. Showing up after him was Sayaka.
 
 +++
 
-## **162 - Young Lady, Fall (2) ~The Two Are Lovers~**
+# **162 - Young Lady, Fall (2) ~The Two Are Lovers~**
 
 The look on Rinne’s face when Sayaka appeared was a sight to behold.
 
@@ -5944,7 +5944,7 @@ Although Yuu, who was lying on his back, couldn’t see it, even now, the scene 
 
 +++
 
-##  **163 - Young Lady, Fall (3) ~Boundary Line~**
+#  **163 - Young Lady, Fall (3) ~Boundary Line~**
 
 Inside the deluxe double room, which was luxurious enough for an ordinary person, but didn’t feel very spacious for Rinne, a rich young lady.
 
@@ -6308,7 +6308,7 @@ Noticing that, Yuu spoke to Rinne.
 
 +++
 
-## **164 - Young Lady, Fall (4) ~Falling in Love~**
+# **164 - Young Lady, Fall (4) ~Falling in Love~**
 
 「Ah… Nghh… I, I, I’m… umm, err… the other day, to Y, Y, Yuu… sama…」
 
@@ -6646,7 +6646,7 @@ That fact alone filled Rinne’s mind and body with euphoria, and she experience
 
 +++
 
-## **165 - Young Lady, Fall (5) ~You Are Everything~**
+# **165 - Young Lady, Fall (5) ~You Are Everything~**
 
 「Oh, oh, fwoh! Ahh… Cumming, cumming, cumming! I’m cumming! Ahn! I, I, I’m cumming! Ahn haaaaaaan! Ihiin! Haa, haa, no… Yuu-shama’s dick… is… the best. Aaaaaahn, ahn!」
 
@@ -7074,7 +7074,7 @@ However, Rinne was beginning to like that version of herself.
 
 +++
 
-##  **165x - (Intermission 5) The Misfortune of a Certain Careless Woman**
+#  **165x - (Intermission 5) The Misfortune of a Certain Careless Woman**
 
 A young woman was running desperately through a quiet residential area at night.
 
@@ -7398,7 +7398,7 @@ The taxi driver let out a heavy sigh and, thinking that she should use the radio
 
 +++
 
-## **166 - Accident (1) ~Here Comes the Chance~**
+# **166 - Accident (1) ~Here Comes the Chance~**
 
 Wednesday, August 8th.
 
@@ -7730,7 +7730,7 @@ Rumiko’s eyes widened involuntarily, but pulling her chin back and pursing her
 
 +++
 
-## **167 - Accident (2) ~It’s been a while~**
+# **167 - Accident (2) ~It’s been a while~**
 
 「Ugh, nmm… cough, cough… I, I’m terribly sorry, but please let me rinse my throat for a bit. The quantity was higher than I thought, and it was sticky and stuck in my throat.」
 
@@ -7978,7 +7978,7 @@ As a climax that made her shake harder than ever before washed over her, she clo
 
 +++
 
-## **168 - Accident (3) ~Breath Network~**
+# **168 - Accident (3) ~Breath Network~**
 
 「A, are you sure about this?」
 
@@ -8302,7 +8302,7 @@ After saying that, Rumiko broke into a wide smile.
 
 +++
 
-## **169 - Persuading Elder Sister (Physically) ~ONLY YOU~**
+# **169 - Persuading Elder Sister (Physically) ~ONLY YOU~**
 
 「Ahn… Hnn, hnn! Haan! Y, Yuu’s… hard dick… is… touching… my… p, p, pussy!」
 
@@ -8624,7 +8624,7 @@ Instead of nodding, Elena sealed Yuu’s lips and wrapped both of her hands arou
 
 +++
 
-## **170 - Engagement Meeting (1) ~Nice to meet you~**
+# **170 - Engagement Meeting (1) ~Nice to meet you~**
 
 Sunday, August 12th.
 
@@ -8974,7 +8974,7 @@ Done with the greetings, each and every one of them took a seat.
 
 +++
 
-## **171 - Engagement Meeting (2) ~Invisible Power~**
+# **171 - Engagement Meeting (2) ~Invisible Power~**
 
 At the rectangular table, Tomoka, who served as the host, sat at the very back. It was the so-called chairperson’s seat.
 
@@ -9330,7 +9330,7 @@ For some reason, Yuu had the feeling that he would have no choice but to become 
 
 +++
 
-## **172 - August’s Sperm Donation (1) ~Happy Lucky Day~**
+# **172 - August’s Sperm Donation (1) ~Happy Lucky Day~**
 
 Tuesday, August 14th.
 
@@ -9686,7 +9686,7 @@ And then, when she heard the words Yuu just said, Chie couldn’t believe her ea
 
 +++
 
-## **173 - August’s Sperm Donation (2) ~Three People~**
+# **173 - August’s Sperm Donation (2) ~Three People~**
 
 Yuu ​​thought that women who wore uniforms or costumes were the most arousing when they were partially undressed, just to the extent that their underwear was visible.
 
@@ -10014,7 +10014,7 @@ She smiled broadly and switched it to storage mode, then leaned in close to Yuu 
 
 +++
 
-## **174 - August’s Sperm Donation (3) ~If my wish came true~**
+# **174 - August’s Sperm Donation (3) ~If my wish came true~**
 
 「Yuu-sama, could I have a bit of your time?」
 
@@ -10406,7 +10406,7 @@ That was because she had brought color to her life, which had been somewhat empt
 
 +++
 
-## **175 - Hot Spring Resort of Dreams! (1) ~Ah, Summer Vacation~**
+# **175 - Hot Spring Resort of Dreams! (1) ~Ah, Summer Vacation~**
 
 Friday, August 17th, after the Obon holiday.
 
