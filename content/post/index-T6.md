@@ -6,7 +6,7 @@
     slug: "traducir-6"   
 ---
 
-## **176 - Hot Spring Resort of Dreams! (2) ~Door to paradise~**
+# **176 - Hot Spring Resort of Dreams! (2) ~Door to paradise~**
 
 As a matter of fact, there was a bit of a fuss at the time they entered.
 
@@ -362,7 +362,7 @@ The trio of Yuu, Mana, and Rina followed Satsuki, who led the way, and left the 
 
 +++
 
-## **177 - Hot Spring Resort of Dreams! (3) ~Sisters~**
+# **177 - Hot Spring Resort of Dreams! (3) ~Sisters~**
 
 Following Satsuki, Yuu and the others took the elevator down to the fourth underground floor.
 
@@ -820,7 +820,7 @@ An announcement was made throughout the facility, telling them that it was time 
 
 +++
 
-## **178 - Hot Spring Resort of Dreams! (4) ~Men & Women~**
+# **178 - Hot Spring Resort of Dreams! (4) ~Men & Women~**
 
 Perhaps the fact that Yuu had come had become widely known, it seemed that most of the regular and guest members had come to the dining hall.
 
@@ -1212,7 +1212,7 @@ Yuu’s stocks in their hearts rose sharply.
 
 +++
 
-## **179 - Hot Spring Resort of Dreams! (5) ~Steamy Love Story~**
+# **179 - Hot Spring Resort of Dreams! (5) ~Steamy Love Story~**
 
 Once they returned to their room, Satsuki came to pick them up, and Yuu, Mana, and Rina decided to go to the large public bath.
 
@@ -1690,9 +1690,9 @@ Not only had she been showered with semen, a precious commodity for women in thi
 
 ++++
 
-## **Using the Wisdom from My Isekai Reincarnation Only for Sex**
+# **Using the Wisdom from My Isekai Reincarnation Only for Sex**
 
-### **55 - Return to the Sex House**
+# **55 - Return to the Sex House**
 
 Finally, it’s over.
 
@@ -2134,7 +2134,7 @@ It's been a while. Thanks to all of your readership and support, this work has r
 
 +++
 
-### **57 - Lovey Dovey with Milady**
+# **57 - Lovey Dovey with Milady**
 
 My sister caught a cold.
 
@@ -2390,7 +2390,7 @@ Trapped by such sensations, the naked man and woman collapsed together onto the 
 
 +++
 
-### **58 - Lovey Dovey Continues and a New School Year**
+# **58 - Lovey Dovey Continues and a New School Year**
 
  After that, the one-day passionate lovemaking with Staff continued.
 
@@ -2644,7 +2644,7 @@ I hurried toward the faculty room, where Instructor Whip was likely waiting.
 
 +++
 
-### **59 - Compulsory Participation**
+# **59 - Compulsory Participation**
 
  Then, I went to the staff room to visit Instructor Whip. She was diligently working on paperwork there, as usual.
 
@@ -3176,7 +3176,7 @@ Simultaneously, the scream of a noble maiden, her purity shattered, erupted.
 
 +++
 
-### **61 - Duel in the Bedroom with Spear**  
+# **61 - Duel in the Bedroom with Spear**  
 
  I'm currently having sex with Spear, a top-ranking student at the Royal Academy.
 
@@ -3414,7 +3414,7 @@ Was my initial goal of removing the source of trouble achieved, I wonder?
 
 +++
 
-### **62 - Days Aiming for Reconciliation with Spear**
+# **62 - Days Aiming for Reconciliation with Spear**
 
  So, the day after enjoying that dazzling, lovey-dovey sex with Spear, I went to see her again.
 
@@ -3662,7 +3662,7 @@ And so, after having sex with Spear every day, and with Big Sis Calibur and Lady
 
 +++
 
-### **63 - The First Martial Arts Festival**
+# **63 - The First Martial Arts Festival**
 
  The day of the "One Day Heaven-Breaking Ceremony".
 
@@ -3896,7 +3896,7 @@ What to do? Should I just beat them all up in an impromptu brawl? Threats like 
 
 +++
 
-###  **64 - Dealing with an Arrogant Noble (Not Sexually)**
+#  **64 - Dealing with an Arrogant Noble (Not Sexually)**
 
  I'm currently being harassed.
 
@@ -4138,7 +4138,7 @@ The match, which lasted just a little longer than the others, ended with my vict
 
 +++
 
-### **65 - Clearing the Preliminaries**
+# **65 - Clearing the Preliminaries**
 
 Even after beating the hell out of that shitty brat, I kept on winning smoothly.
 
@@ -4398,7 +4398,7 @@ TL Notes: Calibur's 'Divine Calling' can also be read as [Sex Knight]
 
 +++
 
-### **66 - The Finals in the Presence of the Queen**
+# **66 - The Finals in the Presence of the Queen**
 
  The "One Day Heaven-Breaking Ceremony" has been proceeding smoothly, and the qualifiers are all complete. The lineup for the finals is set, and the excitement continues to accelerate.
 
@@ -4644,7 +4644,7 @@ Apologizing to them in my heart, I spoke out.
 
 +++
 
-### **67 - Nobles vs. Commoners**
+# **67 - Nobles vs. Commoners**
 
 "One Day Heaven-Breaking Ceremony"
 
@@ -4882,7 +4882,7 @@ The "One Day Heaven-Breaking Ceremony", which was originally supposed to be a st
 
 +++
 
-### **68 - Noble Group Battle: Extra Time**
+# **68 - Noble Group Battle: Extra Time**
 
 "So, what happened to that 'splendid' Halberd?" 
 
@@ -5118,7 +5118,7 @@ The very tip of it splashed onto the feet of the other noble girls...
 
 +++
 
-### **69 - Harem Sex with the Noble Daughters**
+# **69 - Harem Sex with the Noble Daughters**
 
 "Sao, I came... ❤️❤️ I came, so give me a reward kiss... ❤️❤️❤️❤️" 
 
@@ -5334,7 +5334,7 @@ I creampied the Duke’s daughter as well, successfully completing the impregnat
 
 +++
 
-### **70 - Harem Sex is a Long Haul**
+# **70 - Harem Sex is a Long Haul**
 
 The Story So Far - I ended up having sex with four noble ladies who were my enemies during a school competition. After various events, I’ve finally united with all of them. We were able to enjoy each other’s company to our heart's content.
 
@@ -5532,7 +5532,7 @@ For a while after that, my penis was used as a teaching tool for the Queen and t
 
 +++
 
-### **71 - The One Who Desires Discord is...**
+# **71 - The One Who Desires Discord is...**
 
  "_Mmmphhhh_ ❤️❤️ _Slurrrppp...❤️❤️ Mmmpphhhh_❤️❤️"
 
@@ -5764,7 +5764,7 @@ But what could have happened to make even _her_ so agitated?
 
 +++
 
-### **72 - A Strategy Combining the 'Internal Spy' (Hankan) and 'Self-Injury' (Kunjiku) tactics.**
+# **72 - A Strategy Combining the 'Internal Spy' (Hankan) and 'Self-Injury' (Kunjiku) tactics.**
 
  The Queen, the noble ladies, and I hurriedly threw on our clothes and rushed to the scene.
 
@@ -5986,7 +5986,7 @@ Before I could even move to stop it, the needle, instead of piercing the Queen's
 
 +++
 
-### **73 - The Abandoned Princess's Desperation**
+# **73 - The Abandoned Princess's Desperation**
 
  "That just now... was it a blowgun?!"
 
@@ -6214,7 +6214,7 @@ If this continued, she really would be executed. I spoke up to stop that flow. I
 
 +++
 
-### **74 - The Archenemy Appears**
+# **74 - The Archenemy Appears**
 
 The Kingdom of Niosebuk.
 
@@ -6416,7 +6416,7 @@ With my penis still gripped inside her vagina, Princess Seeker's buttocks trembl
 
 +++
 
-### **75 - Commemorative Sex with Princess Seeker to Celebrate the Successful Assassination**
+# **75 - Commemorative Sex with Princess Seeker to Celebrate the Successful Assassination**
 
  Having successfully completed the assassination of a foreign king... I was still right there, having sex.
 
@@ -6624,7 +6624,7 @@ The pole flew through the sky with tremendous momentum. I immediately leaped and
 
 +++
 
-### **76 - Spear’s Anal Licking of Loyalty**
+# **76 - Spear’s Anal Licking of Loyalty**
 
 Having returned to our homeland, we went to an audience with Queen Laevateinn to report the outcome of our business trip.
 
@@ -6858,7 +6858,7 @@ With Spear, who had mastered high-level anal licking through training, Princess 
 
 +++
 
-### **77 - Nude Party**
+# **77 - Nude Party**
 
  I consulted with Lady Staff and Big Sis Calibur. 
 
@@ -7069,7 +7069,7 @@ The banquet continues.
 
 +++
 
-###  **78 - The Frenzied Feast Continues**
+#  **78 - The Frenzied Feast Continues**
 
 The Naked Party is in full swing at Lady Staff’s estate.
 
@@ -7283,7 +7283,7 @@ Instructor Whip found out instantly.
 
 +++
 
-### **79 - Let's Start a Circle**
+# **79 - Let's Start a Circle**
 
  Yo, I’m Sao.
 
@@ -7517,7 +7517,7 @@ Establishing a Circle, huh. I wonder if I can really do it?
 
 +++
 
-### **80 - A Challenge from the Student Council**
+# **80 - A Challenge from the Student Council**
 
 "So, the decision has been made: we're starting a Circle." 
 
@@ -7729,7 +7729,7 @@ _"We, the Student Council, are an autonomous organization meant to protect the s
 
 +++
 
-### **81 - Volunteer Work**
+# **81 - Volunteer Work**
 
 My application to establish the Circle was rejected.
 
@@ -7936,7 +7936,7 @@ If it's come to this, I'll peel anything—potatoes, chestnuts, whatever!
 
 +++
 
-### **82 - Volunteering at the Cafeteria**
+# **82 - Volunteering at the Cafeteria**
 
 _Peel, peel, peel, peel, peel..._
 
@@ -8140,7 +8140,7 @@ I was made to scrub the kitchen thoroughly.
 
 +++
 
-### **83 - Volunteering with the Disciplinary Committee**
+# **83 - Volunteering with the Disciplinary Committee**
 
 Having finished my service activities at the cafeteria (sexual subtext included), I was assigned my next volunteer mission.
 
@@ -8372,7 +8372,7 @@ Yes, after "Butt-slapping" comes... **"Butt-pumping"** and **"Butt-poking"**!
 
 +++
 
-### **84 - Black Black Black White**
+# **84 - Black Black Black White**
 
 "Nhooooo...! ❤️❤️ Our pussies... Sao's cock is being shoved inside them...!! ❤️❤️" 
 
@@ -8592,7 +8592,7 @@ And they all lived happily ever after.
 
 +++
 
-### **85 - The Final Difficult Volunteer Work**
+# **85 - The Final Difficult Volunteer Work**
 
  Even after enjoying the harem sex with the gyarus and the Disciplinary Chairperson, the service activities continued.
 
@@ -8767,7 +8767,7 @@ And the person who appeared was a petite girl who looked to be my age or slightl
 
 +++
 
-### **86 - The Greatest, Most Terrible Instructor**
+# **86 - The Greatest, Most Terrible Instructor**
 
  I was currently standing in front of Instructor Beaker’s research tower.
 
@@ -8955,7 +8955,7 @@ It doesn't matter if she's a monster. Don't underestimate my "Monster-Girl" feti
 
 +++
 
-### **87 - There is a Thin Line Between Genius and Sex**
+# **87 - There is a Thin Line Between Genius and Sex**
 
 I was currently in the middle of mating with Minosynchelus—or "Minoko," as I called her.
 
@@ -9195,7 +9195,7 @@ If her genius brain ends up getting fried, that’s going to be a huge problem i
 
 +++
 
-### **88 - The Student Council's Conspiracy**
+# **88 - The Student Council's Conspiracy**
 
 The genius Beaker suddenly spoke up as soon as the sex ended. She remained stark naked, not even bothering with her clothes.
 
@@ -9405,7 +9405,7 @@ Don't say that! I’m starting to realize it too! 
 
 +++
 
-### **89 - Counterattack via Physical Evidence**
+# **89 - Counterattack via Physical Evidence**
 
 "Big Sis!? Lady Staff!?"
 
@@ -9637,7 +9637,7 @@ Was that male student the Student Council President? Why did he go out of his wa
 
 +++
 
-### **90 - The True Identity of the Student Council President**
+# **90 - The True Identity of the Student Council President**
 
  After smashing the Monolith, Big Sis Calibur and Lady Staff were fuming.
 
@@ -9825,7 +9825,7 @@ With the President successfully facing her true (lewd) self, the series of volun
 
 +++
 
-### **91 - Academy Public Sex**
+# **91 - Academy Public Sex**
 
 Case Closed!
 
@@ -9987,7 +9987,7 @@ The sex continued endlessly until nightfall.
 
 +++
 
-### **92 - The Start of Sao's Circle**
+# **92 - The Start of Sao's Circle**
 
  After overcoming countless hardships... my circle has finally launched!!
 
@@ -10145,7 +10145,7 @@ Lady Staff is on fire. This circle is going to be meaningful in many ways. But f
 
 +++
 
-### **93 - Circle Members, Assemble!**
+# **93 - Circle Members, Assemble!**
 
  Our circle is finally set to begin its activities... but before that, I should confirm the members.
 
@@ -10353,7 +10353,7 @@ With our members and our name decided, we're officially launching!
 
 +++
 
-### **94 - Departure, and a Detour**
+# **94 - Departure, and a Detour**
 
  Our carefree circle activities have begun. Seeking wealth and thrills, we’re going to raid dungeons all across the world!
 
@@ -10535,7 +10535,7 @@ Let's go! Let's go!! And so, it was decided!!
 
 +++
 
-### **95 - Goblin Hunting at the Hot Spring Resort**
+# **95 - Goblin Hunting at the Hot Spring Resort**
 
  The other women adjusted to my sudden change of plans without a single complaint, aligning themselves perfectly with my new policy.
 
@@ -10721,7 +10721,7 @@ That lesson will be put to use tonight.
 
 +++
 
-### **96 - Ultimate Goblin Evolution**
+# **96 - Ultimate Goblin Evolution**
 
  Yes, this is me reporting from the scene. Right now, a rainstorm of blood is raging here. Mostly the blood of goblins.
 
