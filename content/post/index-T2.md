@@ -8,7 +8,7 @@
     slug: "traducir-2"
 ---
 
-### **Chapter 8 – A Glimpse of the Past 3**
+## **Chapter 8 – A Glimpse of the Past 3**
 
 “Alright, you’re done with your business, right? Now, get out of here!!”
 
@@ -642,7 +642,7 @@ Standing in the shattered doorway, his eyes bloodshot and wild, stood Henry, his
 
 +++
 
-### **Chapter 9 – The Master-Servant Relationship between Henry and Hazel**
+## **Chapter 9 – The Master-Servant Relationship between Henry and Hazel**
 
 The members of TOKOROTEN didn’t seem particularly surprised by Henry’s abrupt intrusion.
 
@@ -1802,7 +1802,7 @@ Alana knew she owed him a debt of gratitude, not just as a political ally, but a
 
 +++
 
-### **Chapter 10 – A Messenger from the Royal Castle**
+## **Chapter 10 – A Messenger from the Royal Castle**
 
 The next morning, Alana was awakened by a gentle but insistent knock at her door.
 
@@ -2444,7 +2444,7 @@ And just as Alana, who was in the lead, was about to catch up to Yoichi, a woman
 
 +++
 
-### **Chapter 11 – A Messenger from the Royal Castle 2 ※**
+## **Chapter 11 – A Messenger from the Royal Castle 2 ※**
 
 When Yoichi finally caught up to the male royal guard, who was the first to respond to the screaming voice, he found the man standing stock-still in the open doorway of the bedroom, frozen like a statue.
 
@@ -3056,7 +3056,7 @@ In that instant, the shimmering magical bind that had held them captive shattere
 
 +++
 
-## **Epilogue**
+# **Epilogue**
 
 Stepping out of a much-needed shower, William felt… well, ‘refreshed’ was one word for it.
 
@@ -3184,7 +3184,7 @@ Then he declared, his voice filled with absolute, unshakeable confidence.
 
 +++
 
-## **Afterword**
+# **Afterword**
 
 Author: Hochi
 
@@ -3212,7 +3212,7 @@ With all that said, please look forward to Volume 12, where the showdown with Pa
 
 ![](https://stabbingwithasyringe.home.blog/wp-content/uploads/2025/08/page-1-copy.jpg?w=708)
 
-### Prologue
+## Prologue
 
 “Man, they’ve really set up a lot of troublesome things, haven’t they?”
 
@@ -3386,7 +3386,7 @@ And so, with a renewed sense of purpose, the TOKOROTEN strategy meeting continue
 
 +++
 
-### **Chapter 1 – In-charge of TOKOROTEN’s Rear**
+## **Chapter 1 – In-charge of TOKOROTEN’s Rear**
 
 The day after their big strategy meeting, Yoichi and Karin made their way back to Meilgrad.
 
@@ -4456,7 +4456,7 @@ With a mischievous glint in her glazed-over eyes, she slowly pushed herself up o
 
 It was clear that her show wasn’t over yet, and soon enough, Samantha felt a familiar pair of hands begin to trail over her bottom, ready to add a whole new layer of violation to the fun.
 
-### Translator Notes:
+## Translator Notes:
 
 1. The kabura-yawhistling arrows. togari-yapointed arrows, hiraneflat-type and karimatagoose-foot. These first two are the kinds of arrows used in ancient Japan. The latter two refers to the arrowheads, primarily their shapes.
 
@@ -4484,7 +4484,7 @@ Modern sasumata being used in capturing suspected criminals. They are now more o
 
 +++
 
-### **Chapter 2 – In-charge of TOKOROTEN’s Rear 2 ※**
+## **Chapter 2 – In-charge of TOKOROTEN’s Rear 2 ※**
 
 At a certain casino city in the West, in a surprisingly luxurious hotel room, four people were huddled around a map spread across a polished table. Yoichi, looking a bit stressed, was pointing at a specific section.
 
@@ -5242,7 +5242,7 @@ After that, even long after Charlotte’s mana had been fully restored to its pe
 
 ++++
 
-## **Bonkotsu Shinpei no Monster Raifu - 94** 
+# **Bonkotsu Shinpei no Monster Raifu - 94** 
 
 First, observation—the room held the objective and three men.
 
@@ -7170,7 +7170,7 @@ It was a little scary how well I was adapting to this body — but for now, I’
 
 +++
 
-## **104 - A Sword Saint’s Grumblings**
+# **104 - A Sword Saint’s Grumblings**
 
 I didn’t wanna do this.
 
@@ -9820,7 +9820,7 @@ Would the day ever come when I moved beyond “one-trick act”?
 
 +++
 
-## **118 - A Certain Elf’s Perspective (2)**
+# **118 - A Certain Elf’s Perspective (2)**
 
 “The survival of one’s species is the highest priority for any living being.”
 
@@ -9962,7 +9962,7 @@ And prayed this path would not lead to ruin.
 
 +++
 
-## **119 - A Certain Elf’s Perspective (3)**
+# **119 - A Certain Elf’s Perspective (3)**
 
 I exhaled deeply.
 
@@ -11568,7 +11568,7 @@ I clearly needed an immediate mental checkup.
 
 +++
 
-## **128 - A Certain Former Mercenary’s Perspective**
+# **128 - A Certain Former Mercenary’s Perspective**
 
 “When did things go this wrong?”
 
@@ -11770,7 +11770,7 @@ This time, I really might be done for.
 
 +++
 
-## **129 - A Certain Hero’s Monologue**
+# **129 - A Certain Hero’s Monologue**
 
 I had to admit it—even saying it myself, I was a genius.
 
@@ -11976,7 +11976,7 @@ But that daily life ended abruptly.
 
 +++
 
-## **130 - A Certain Hero’s Point Of View**
+# **130 - A Certain Hero’s Point Of View**
 
 In a rattling, bone-shaking carriage with terrible suspension, I was talking with a former mercenary.
 
