@@ -9596,7 +9596,7 @@ In response to Giles’s words, Kenneth and Leonard bowed their heads in unison.
 
 +++
 
-### **Chapter 6 – A Glimpse of the Past**
+# **Chapter 6 – A Glimpse of the Past**
 
 About 30 minutes had passed since Yoichi and the others got on the carriage.
 
@@ -10204,7 +10204,7 @@ The princess knight looked down at the filthy man with emotionless eyes.
 
 +++
 
-### **Chapter 7 – A Glimpse of the Past 2**
+# **Chapter 7 – A Glimpse of the Past 2**
 
 Outside the mansion, Kenneth and Leonard sat on the coachman’s seat, watching the entrance.
 
