@@ -8,7 +8,7 @@
     slug: "traducir-1"
 ---
 
-## **Legend Capítulo 829**
+# **Legend Capítulo 829**
 
 『Heh… Armadura Carmesí del Emperador de la Llama, ¿eh? El hecho de que pudieras usar la Armadura del Soberano ya era bastante sorprendente, pero pensar que lograste mejorarla, eso es propio de Rei.』
 
@@ -226,7 +226,7 @@ Elena habló con un poco de soledad a través del Orbe Emparejado y Rei se sinti
 
 +++
 
-## **830**
+# **830**
 
 『Bien, nos dirigimos a la Capital Imperial. …¡No, regresamos a casa! Ambos ejércitos pueden tener sus propias opiniones al respecto, pero espero que nadie cause problemas. Recuerden, ahora marchan bajo el estandarte del Príncipe Mercurio. Nada de causar problemas, y definitivamente nada de peleas entre ustedes. No decepcionen a Su Alteza.』
 
@@ -468,7 +468,7 @@ Mientras pensaba en eso, notó al hombre que había enviado a preguntar por el a
 
 +++
 
-## **831**
+# **831**
 
 Habían pasado unos días desde que dejaron la llanura de Brissa; los ejércitos combinados viajaron por el camino sin ser molestados por bandidos ni monstruos, algo que a Rei le había preocupado inicialmente. Finalmente, llegaron a un lugar desde donde se podía ver la Capital Imperial.
 
@@ -722,7 +722,7 @@ Vihera respondió a la pregunta de Rei con una mirada ligeramente decepcionada e
 
 +++
 
-## **832**
+# **832**
 
 『¡WAAAAAAAAAAAAAAAAAAH!』
 
@@ -942,7 +942,7 @@ Aquellos familiarizados con el torneo de lucha vitorearon ruidosamente al ver a 
 
 +++
 
-## **833**
+# **833**
 
 El desfile de la victoria recorrió la calle principal de la Capital Imperial antes de llegar a su punto final, el castillo.
 
@@ -1172,7 +1172,7 @@ Jeev le dijo eso a Rei como si no fuera nada especial.
 
 +++
 
-## **834**
+# **834**
 
 Rei se sorprendió al escuchar de Jeev que el Emperador quería reunirse con él, pero Vihera se sorprendió aún más.
 
@@ -1410,7 +1410,7 @@ Jeev hizo una profunda reverencia antes de llamar a la puerta.
 
 +++
 
-## **835**
+# **835**
 
 La habitación era bastante espaciosa para los estándares de Rei, de unos 20 tatamis (33 metros cuadrados).
 
@@ -1622,7 +1622,7 @@ Tragist habló mientras tomaba un sorbo de vino, mirando a Rei como una bestia c
 
 +++
 
-## **836**
+# **836**
 
 Al principio, Rei no entendió lo que Tragist le estaba diciendo.
 
@@ -1840,7 +1840,7 @@ De lo que Rei no se dio cuenta en ese momento fue que, si las cosas salían mal,
 
 +++
 
-## **837**
+# **837**
 
 「Hmm, ya veo. Es cierto que los Orcos forman asentamientos cuando nace una especie de mayor rango entre ellos. Y, una vez establecido el asentamiento, inevitablemente habrá grandes daños en los pueblos y aldeas circundantes. Considerando todo eso, es verdad que lo mejor sería destruirlos mientras el asentamiento aún está en sus primeras etapas. Si dudas, es totalmente posible que el poder de los Orcos crezca hasta el punto de que el noble que gobierna el territorio ya no sea capaz de controlarlos.」
 
@@ -2076,7 +2076,7 @@ Theorem, que podía sentir el poder mágico, murmuró en voz alta y sus palabras
 
 +++
 
-## **838**
+# **838**
 
 —Eh... ¿ah...?
 
@@ -2326,7 +2326,7 @@ Considerando su fuerza como un ejército de un solo hombre especializado en magi
 
 +++
 
-## **839**
+# **839**
 
 —Capitán Rei, ¿podría guardar esto por mí?
 
@@ -2582,7 +2582,7 @@ Eso fue lo que pensó mientras se marchaba.
 
 +++
 
-## **840**
+# **840**
 
 「Ahh… qué buen tiempo hace.」
 
@@ -2834,7 +2834,7 @@ Justo a tiempo también, ya que las pocas personas que quedaban salieron por la 
 
 +++
 
-## **841**
+# **841**
 
 Su viaje tras abandonar la Capital Imperial fue muy tranquilo.
 
@@ -3070,7 +3070,7 @@ Sin embargo, muchos de ellos también se acababan de conocer hoy mismo, por lo q
 
 +++
 
-## **842**
+# **842**
 
 Tras terminar de almorzar, el grupo de Rei partió de nuevo, llegando a la aldea justo cuando se acercaba el anochecer.
 
@@ -3326,7 +3326,7 @@ Las palabras de Elena hicieron que Rei se preguntara si después de todo iba a s
 
 +++
 
-## **843**
+# **843**
 
 Habían pasado 10 días desde que Dietz se unió al grupo y partieron de la aldea de Elton.
 
@@ -3564,7 +3564,7 @@ Varios esqueletos que habían estado vagando también comenzaron a seguir a la A
 
 +++
 
-## **844**
+# **844**
 
 Noche en las llanuras de Selemus.
 
@@ -3802,7 +3802,7 @@ Después de guardar la piedra mágica, la espada larga de cristal y los huesos d
 
 +++
 
-## **845**
+# **845**
 
 Mientras Rei luchaba contra el Esqueleto de Cristal, Dietz, que estaba haciendo guardia en los carruajes, luchaba contra una Armadura Viviente.
 
@@ -4108,7 +4108,7 @@ Corte Volador: Una habilidad que lanza un tajo. Aunque tiene una fuerza decente,
 
 +++
 
-## **846**
+# **846**
 
 Nubes negras cubrían el cielo sobre las llanuras de Selemus.
 
@@ -4350,7 +4350,7 @@ Set también recibió un Collar de Monstruo Subordinado... y así, Rei y los dem
 
 +++
 
-## **847**
+# **847**
 
 「Bueno, jefe de la aldea, estaré encantado de quedarme en la aldea por esta noche.」
 
@@ -4624,7 +4624,7 @@ Mientras pensaba en eso, Rei tomó unas brochetas que se asaban en la hoguera ce
 
 +++
 
-## **848**
+# **848**
 
 El día después de la cena.
 
@@ -4882,7 +4882,7 @@ Tan pronto como el líder de los bandidos gritó eso, saltó de la roca intentan
 
 +++
 
-## **849**
+# **849**
 
 「Ugh... me aburro.」
 
@@ -5136,7 +5136,7 @@ Terminado su asunto, Rei también agitó la mano ligeramente antes de que el gru
 
 +++
 
-## **850**
+# **850**
 
 El grupo de Rei continuó su camino por la carretera.
 
@@ -5374,7 +5374,7 @@ Cualquier bandido que los viera los reconocería naturalmente como una buena pre
 
 +++
 
-## **851**
+# **851**
 
 Ese día, los guardias de la puerta de Sabrusta, que cumplían diligentemente con sus deberes a pesar de temblar por el frío que traspasaba incluso sus ropas de invierno, tenían todos expresiones de sorpresa en sus rostros.
 
@@ -5632,7 +5632,7 @@ Set lanzó un grito como diciendo «¡estoy de acuerdo!» mientras Rei caminaba 
 
 +++
 
-## **852**
+# **852**
 
 Al día siguiente de pasar una noche en Saburusta, después de que Rei terminara sus trámites para salir de la ciudad, vio que todos estaban reunidos frente a la puerta, totalmente preparados para partir en cualquier momento.
 
@@ -5868,7 +5868,7 @@ Las palabras del guardia fueron más que suficientes para sorprender a Rei.
 
 +++
 
-## **853**
+# **853**
 
 Rei se sorprendió por lo que dijo el guardia sobre la nueva mazmorra, pero no podía ir allí a echar un vistazo de inmediato. Entró en Gilm tras que le dijeran que sería mejor obtener los detalles directamente de Daska.
 
@@ -6118,7 +6118,7 @@ Rei comenzó a relatar todo lo sucedido después de separarse de Daska en la Cap
 
 +++
 
-## **854**
+# **854**
 
 「…Ya veo. Entiendo la mayoría de tus acciones. Creo que algunas de las cosas que hiciste fueron peligrosas, pero lo hecho, hecho está. Por encima de todo, haber terminado con éxito la guerra civil y haber creado lo que podría llamarse una facción pro-Reino de Mireana dentro del Imperio Bestir es una ganancia suficiente. Además, la guerra civil agotó en cierta medida el poder nacional del Imperio Bestir, lo cual es un resultado muy satisfactorio para nosotros.」
 
@@ -6336,7 +6336,7 @@ Rei estaba a punto de responder algo cuando de repente sintió una presencia ace
 
 +++
 
-## **855**
+# **855**
 
 「-!?」
 
@@ -6522,7 +6522,7 @@ Al observar a su esposa, Elk dejó escapar un suspiro. Si fue un suspiro de aliv
 
 +++
 
-## **856**
+# **856**
 
 Para cuando Rei terminó de discutir los eventos ocurridos en el Imperio Bestir en la residencia del señor, ya estaba oscureciendo afuera.
 
@@ -6758,7 +6758,7 @@ Sulunin se quedó mirando a Rei, con una expresión que preguntaba claramente de
 
 +++
 
-## **857**
+# **857**
 
 「Huaah… Mmm…」
 
@@ -6992,7 +6992,7 @@ En el momento en que el hechizo se activó, la pequeña llama fue absorbida por 
 
 +++
 
-## **858**
+# **858**
 
 「¡Ah, es Set! ¡Realmente ha vuelto!」
 
@@ -7210,7 +7210,7 @@ Frente a Lenora, que sonreía pero cuyos ojos no reflejaban alegría alguna, lo 
 
 +++
 
-## **859**
+# **859**
 
 Una vez que el incidente entre Lenora y Kenny se calmó más o menos, Lenora se hizo cargo de atender a Rei en lugar de Kenny.
 
@@ -7456,7 +7456,7 @@ Probablemente ella misma no era consciente de ello, pero su mirada brillante est
 
 +++
 
-## **860**
+# **860**
 
 Marina contempló el Anillo de la Luna Nueva durante un rato, antes de devolvérselo finalmente a Rei.
 
@@ -7706,7 +7706,7 @@ Aun así... tras luchar con la decisión durante un rato, Sulunin aceptó la ofe
 
 +++
 
-## **861**
+# **861**
 
 De vuelta en la habitación de Rei en el Pabellón del Trigo del Ocaso.
 
@@ -7968,7 +7968,7 @@ Al final, pasaron unos treinta minutos hasta que Kenny llamó a Rei desde el com
 
 +++
 
-## **862**
+# **862**
 
 「¿Así que esta es la ubicación de la nueva mazmorra?」
 
@@ -8214,7 +8214,7 @@ La voz de Milein resonó a su alrededor... pero la mayoría de la gente allí so
 
 +++
 
-## **863**
+# **863**
 
 Caminando por un callejón, no lejos de la biblioteca de Gilm, Rei finalmente encontró el edificio que estaba buscando.
 
@@ -8502,7 +8502,7 @@ Entendieron que con Set cerca, tampoco tendrían que preocuparse por esos monstr
 
 +++
 
-## **864**
+# **864**
 
 「Así que esta es la entrada a la mazmorra.」
 
@@ -8788,7 +8788,7 @@ Sin embargo, incluso su rugido le pareció a Rei que carecía seriamente de fuer
 
 +++
 
-## **865**
+# **865**
 
 「... ¿De verdad eso es todo?」
 
@@ -9068,7 +9068,7 @@ No tenía absolutamente ninguna intención de hacer algo tan estúpido como enem
 
 +++
 
-## **866**
+# **866**
 
 「¡Uy! ¡Debería haberlo visto venir!」
 
@@ -9310,7 +9310,7 @@ Con ese pensamiento en mente, Rei siguió su intuición y tomó el camino de la 
 
 ++++
 
-## **Bendición de la Diosa y Transferencia a Otro Mundo – Capítulo 125: El Caballero de Plata y el Dragón Dorado**
+# **Bendición de la Diosa y Transferencia a Otro Mundo – Capítulo 125: El Caballero de Plata y el Dragón Dorado**
 
 **Nota del Autor:** Respecto a los ataques del Dragón Divino Progenitor y del Dios Demonio, estoy realizando ajustes a la baja en sus efectos.
 
@@ -9952,7 +9952,7 @@ Dejar que cause devastación una vez antes de derrotarlo transmitiría mejor el 
 
 +++
 
-## **126: El equipo de caballero de Sera y una fiesta de té**
+# **126: El equipo de caballero de Sera y una fiesta de té**
 
 **Nota del autor:** Terminó pareciendo una historia corta, pero se hizo demasiado larga, así que la metí en la historia principal.
 
@@ -10566,7 +10566,7 @@ Me siento mal porque la historia no progresa a pesar de las actualizaciones cada
 
 +++
 
-## **127: Dulces de té y un final tranquilo**
+# **127: Dulces de té y un final tranquilo**
 
 **Nota del autor:** Por favor, tengan paciencia con otro capítulo de recuentos de la vida sin un clímax real.
 
@@ -11182,7 +11182,7 @@ Parecía que los días de ocio habían terminado.
 
 +++
 
-## **127.5: Diario de batalla de Latina**
+# **127.5: Diario de batalla de Latina**
 
 **Nota del autor:** Esto es realmente solo una historia secundaria muy corta.
 
@@ -11306,7 +11306,7 @@ No hay planes de publicar el 1 de enero. A menos que la pasión desborde.
 
 +++
 
-## **Personajes del Volumen 8**
+# **Personajes del Volumen 8**
 
 **Nota del editor:** El título es diferente a los anteriores debido a NU (v8 Characters vs V8).
 
@@ -11460,7 +11460,7 @@ En ese sentido, el Sr. Kuga es un caso raro.
 
 +++
 
-## **128: Viaje en carruaje y falsos bandidos**
+# **128: Viaje en carruaje y falsos bandidos**
 
 **Nota del autor:** Comienza el Volumen 9.
 
