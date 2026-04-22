@@ -5760,7 +5760,7 @@ I held that anxiety in my heart and quietly waited for the receptionist to retur
 
 ++++
 
-## **The Otherworld Conquest Method of a Reincarnated Porter - Chapter 158 - Leveling Up**
+# **The Otherworld Conquest Method of a Reincarnated Porter - Chapter 158 - Leveling Up**
 
 Chirp, chirp, chirp.
 
@@ -6000,7 +6000,7 @@ I mustn’t push her too hard. Not only do we plan to hunt monsters again tomorr
 
 +++
 
-## **159 - Desperate Situation**
+# **159 - Desperate Situation**
 
 Chirp, chirp, chirp.
 
@@ -6274,7 +6274,7 @@ I lower my posture and search for presences in the surrounding area. Ugh, what�
 
 +++
 
-## **160 - Country’s Salvation Champion-Turned-Exile**
+# **160 - Country’s Salvation Champion-Turned-Exile**
 
 The unidentified attack causes a cloud of dust to rise in the surrounding area. On the slope, the outline of the demonic dragon gradually becomes clearer.
 
@@ -6500,7 +6500,7 @@ Not only have I been exposed to the fear of death, the exhaustion has built up, 
 
 +++
 
-##  **161 - Artemia’s Request**
+#  **161 - Artemia’s Request**
 
 「Kardek, who is the strongest in our territory?」
 
@@ -6614,7 +6614,7 @@ I give her one extra large silver coin and then return to Artemia’s inn. I won
 
 +++
 
-## **162 - To the Demonic Dragon Mountain Range**
+# **162 - To the Demonic Dragon Mountain Range**
 
 I sensed the flow of magical energy for a moment and woke up, but the room is still dimly lit. I’m about to go back to sleep, but, ah, today is the day I’m heading to the demonic dragon mountain range at Artemia’s request. We’re set to depart early, so, thinking that I have to get up, I turn over in my sleep.
 
@@ -6866,7 +6866,7 @@ What?!
 
 +++
 
-## **163 - Mortal Kombat 1**
+# **163 - Mortal Kombat 1**
 
 「Bakumada?! Don’t tell me, he’s Bakumada, the great general of the empire? Impossible, there’s no way he would come to such a place in the far east… No, that giant figure and that huge magic battle axe, it’s just as I’ve heard.」
 
@@ -7022,7 +7022,7 @@ Even now, Artemia is still fighting Bakumada, and the sound of fierce sword stri
 
 +++
 
-## **164 - Mortal Kombat 2**
+# **164 - Mortal Kombat 2**
 
 What should I do? How can I kill him? He has a job that specializes in agility, which is my weak point, and he’s skilled enough to wipe out a gold-rank adventurer party. Just like this, should I conceal my presence and hide in the demonic dragon mountain range and wait it out? That would mean abandoning Artemia, though. Even if Artemia can do something about Bakumada, if he and Schmidt come at her together, she probably won’t be able to hold her ground.
 
@@ -7226,7 +7226,7 @@ I put Schmidt’s corpse and my severed left arm into my storage, swallow a magi
 
 +++
 
-## **165 - Mortal Kombat 3**
+# **165 - Mortal Kombat 3**
 
 「Haa, haa, haa.」
 
@@ -7334,7 +7334,7 @@ While using body enhancement, I sneak up behind Bakumada.
 
 +++
 
-## **166 - Mortal Kombat 4**
+# **166 - Mortal Kombat 4**
 
 Bakumada’s battle axe is swung down towards Artemia, giving rise to flames all the while. Alright, if it’s now, I should be able to catch him off guard.
 
@@ -7514,7 +7514,7 @@ Dead tired, Artemia and I make our way back to Gorthor.
 
 +++
 
-## **167 - Post-event Cleanup**
+# **167 - Post-event Cleanup**
 
 When I wake up as the morning sun shines into my eyes, I find that the room has gotten quite bright. Yesterday was a really rough day, so after having dinner, I ended up sleeping like a dead man.
 
@@ -7744,7 +7744,7 @@ It would be a while before the two of them met again.
 
 +++
 
-## **167x - Intermission**
+# **167x - Intermission**
 
 In the deep forest at the foot of the demonic dragon mountain range, there was a small village built unbeknownst to anyone.
 
@@ -7798,7 +7798,7 @@ The demonic bird spat out a powerful breath at them.
 
 +++
 
-## **168 - Onward to the South**
+# **168 - Onward to the South**
 
 A frightening killing intent that tingles and stings my skin. This is, bad. I have a premonition of death.
 
@@ -8058,7 +8058,7 @@ I’m tired after running for an entire day, and in preparation for tomorrow, I 
 
 +++
 
-## **169 - Having No Choice but To Go Further South**
+# **169 - Having No Choice but To Go Further South**
 
 Chirp, chirp, chirp.
 
@@ -8328,7 +8328,7 @@ This night, I go to sleep after ejaculating inside her vagina two more times.
 
 +++
 
-## **170 - To the Western Forest 1**
+# **170 - To the Western Forest 1**
 
 Chirp, chirp, chirp.
 
@@ -8592,7 +8592,7 @@ The sun is still up there. Taking a short break in between, we begin to explore 
 
 +++
 
-## **171 - To the Western Forest 2**
+# **171 - To the Western Forest 2**
 
 「A superior species flame-skinned wolf, you say?!」
 
@@ -8870,7 +8870,7 @@ This is bad, it would be one thing if it was just me, but… what should I do?!
 
 +++
 
-## **172 - To the Western Forest 3**
+# **172 - To the Western Forest 3**
 
 「Everyone, we’re retreating. I’ll act as the rear guard. Even if you take some attacks, don’t look back, just run straight towards the town.」
 
@@ -9080,7 +9080,7 @@ We don’t want to meet Rancebeat, so we head to a different inn than yesterday 
 
 +++
 
-## **173 - Michiyopuana’s Intentions**
+# **173 - Michiyopuana’s Intentions**
 
 「Now then, to celebrate us subjugating the flame-skinned wolves, cheers!」
 
@@ -9250,7 +9250,7 @@ If it was for her little sister’s happiness, she didn’t care what became of 
 
 +++
 
-## **174 - Labyrinth City Tabrowa**
+# **174 - Labyrinth City Tabrowa**
 
 「Michopa, are you going to walk to the labyrinth city Tabrowa?」
 
@@ -9468,7 +9468,7 @@ In addition to being excited by Michopa’s beautiful body, I can’t contain my
 
 +++
 
-## **175 - Stone Tower Labyrinth**
+# **175 - Stone Tower Labyrinth**
 
 Chirp, chirp, chirp.
 
@@ -9804,7 +9804,7 @@ Encountering barely any enemies on our way back, we’re able to make it back sa
 
 +++
 
-## **176 - Segodon the Sego-don**
+# **176 - Segodon the Sego-don**
 
 After administering first aid, we left the labyrinth with Segodon and headed for the inn.
 
@@ -9970,7 +9970,7 @@ After that, I ejaculate inside her vagina three times until late into the night,
 
 +++
 
-## **177 - A request from Elmefiora**
+# **177 - A request from Elmefiora**
 
 Chirp, chirp, chirp.
 
@@ -10208,7 +10208,7 @@ After that, I ejaculate inside Michopuana’s vagina one more time and, to prepa
 
 +++
 
-## **178 - To the Demonic Dragon Mountain Range 1**
+# **178 - To the Demonic Dragon Mountain Range 1**
 
 Chirp, chirp, chirp.
 
@@ -10472,7 +10472,7 @@ Once we finish recovering, we start walking after Elmefiora.
 
 +++
 
-## **179 - To the Demonic Dragon Mountain Range 2**
+# **179 - To the Demonic Dragon Mountain Range 2**
 
 「It’s up ahead.」
 
@@ -10734,7 +10734,7 @@ We start walking towards the next medicinal herb gathering spot.
 
 +++
 
-## **180 - To the Demonic Dragon Mountain Range 3**
+# **180 - To the Demonic Dragon Mountain Range 3**
 
 「Sei, you did well make it out alive.」
 
