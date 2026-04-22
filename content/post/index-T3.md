@@ -858,7 +858,7 @@ And since I was heading into an unexplored region, I also realized there was a c
 
 +++
 
-## **137 - A Certain Mage’s Soliloquy**
+# **137 - A Certain Mage’s Soliloquy**
 
 How long has it been since “Kids these days…” started slipping out of my mouth like a habit?
 
@@ -1224,7 +1224,7 @@ The killing ground was just ahead.
 
 +++
 
-## **138 - A Certain Mage’s Soliloquy (2)**
+# **138 - A Certain Mage’s Soliloquy (2)**
 
 The town of Lecorl—
 
