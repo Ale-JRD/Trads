@@ -6,7 +6,7 @@
     slug: "traducir-10"
 ---
 
-## **After Desperately Deciphering and Utilizing a Mysterious Magic Book, I Created a Slave Harem! Popular Idols, Classmates, School Girls, All These Beautiful Girls Are Mine!**
+# **After Desperately Deciphering and Utilizing a Mysterious Magic Book, I Created a Slave Harem! Popular Idols, Classmates, School Girls, All These Beautiful Girls Are Mine!**
 
 **Episode 01: Something inherited from an elderly relative**
 
