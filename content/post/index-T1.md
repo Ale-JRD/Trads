@@ -8,8 +8,8 @@
     slug: "traducir-1"
 ---
 
-<p align="justify">
 
+```
 # **Legend Capítulo 829**
 
 『Heh… Armadura Carmesí del Emperador de la Llama, ¿eh? El hecho de que pudieras usar la Armadura del Soberano ya era bastante sorprendente, pero pensar que lograste mejorarla, eso es propio de Rei.』
@@ -12064,6 +12064,6 @@ ___
 
 Bueno, al comienzo de un nuevo volumen, es inevitable que pase algo así. ¿Qué pasará después? No tengo ni idea.
 
-+++  
-</p>
++++
+```
 
