@@ -6,3533 +6,11461 @@
     slug: "traducir-9"   
 ---
 
-# **Boy Saintess – Volume 2, Chapter 1**
+# **609 – Guías**
 
-When I said—”Until you’ve grown strong enough to defeat the Demon King, I’ll be the one to protect you…!” Lian Qi had a questioning look on her face.
+—¡Oh, ya están aquí, Alim, Mika!
 
-“Wait, did you misspeak and accidentally say ‘protect’ instead of ‘watch over’?”
+Sí, habíamos acudido a él cuando nos llamó. Y sí, una vez más, había interrumpido nuestro momento íntimo. Ya era la cuarta vez, así que, naturalmente, nos estábamos acostumbrando.
 
-“Huh? Is there a difference?”
+—Entonces, ¿qué nueva información has averiguado?
 
-“It should be me protecting you, right? You just need to quietly watch over me from behind.”
+—Hrm, como mencionamos durante nuestro intercambio de mensajes, hemos descubierto el nombre del último Guía. Antes de llegar a eso, queremos hablar sobre el Guía que destruyó al dios malvado.
 
-“Is that the impression you have of me…”
+—Hm~.
 
-I gave a weak smile. If I were a girl, there would be no problem with that statement. But for a boy like me to be told to quietly watch over someone from behind, it feels so embarrassing.
+No sabía si esto era un requisito previo necesario o si era una táctica para aumentar nuestras expectativas retrasando la información, pero estaba claro que la conversación no avanzaría sin ello, así que cedí.
 
-At this point, I had no energy to argue… my image in her eyes was already set. Otherwise, she wouldn’t have said that seeing me attacked by the Demon King made her feel protective and want to protect me…
+—Se decía que quien destruyó al dios malvado era un joven que había sido encontrado en un bosque, sufriendo de amnesia. Además, la ropa que vestía era desconocida en Anazumu.
 
-This has completely deviated from the main theme of saving the world! It feels like I’ve used some kind of honey trap… If she finds out I’m a boy, she’ll definitely fly into a rage, right?
+—Ya... ya veo.
 
-“You’re my maid. As the master, I protect you, and as the maid, you watch over me. Isn’t that how it should be?”
+—En efecto. Y aunque era joven, era extrañamente hábil con la espada. Después de ser acogido, se dice que se volvió más fuerte a un ritmo asombroso.
 
-“Well, you’re not wrong…” I weakly scratched my cheek with a finger, a little embarrassed. Suddenly, I thought her words sounded quite cool. Huh? Wait—she’s holding my hand!? Boys and girls shouldn’t be so familiar! Is she trying to trick me into calling her ‘Master’ again? I won’t fall for it.
+*Vaya~. Por cómo suena, este chico que derrotó al dios malvado de Bufura era de la Tierra como nosotros.*
 
-But still, to stay by her side, I have to continue playing the role of a maid. Although, I don’t feel as ashamed wearing the maid outfit as I did at first.
+Ser encontrado en el bosque era similar a lo que me pasó a mí. En cuanto a sus habilidades con la espada... tal vez tenía talento desde el principio, al igual que Shuu con las artes marciales. Incluso asumiendo que su pérdida de memoria fuera real, era posible que conservara sus habilidades con la espada[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120020).
 
-I also worry that if my identity as the Saintess is discovered, her first reaction would be—”Hmph, so you’ve been lying to me all this time. Since you’re the Saintess, you don’t need my protection, do you? I’m leaving, goodbye!” “Nooo—! Everyone’s counting on you to defeat the Demon King!” I can already picture myself clinging to her, only to be ruthlessly flung away…
+Aquellos que conocían el mismo método que demostré durante el entrenamiento en la mazmorra podían fortalecerse extremadamente rápido. E incluso sin mazmorras, uno podía fortalecerse rápidamente cazando bestias mágicas en la naturaleza a un ritmo más veloz que la gente de este mundo.
 
-In short, I can’t reveal that I’m both a boy and the Saintess, especially the former! It must be kept a secret.
+—Entonces el rey de aquel tiempo se fijó en el joven y lo convirtió en el Guía. En ese momento, ya era Rango SS... incluso estaba a las puertas del Rango SSS.
 
-“Ahem, ahem.”
+—¿En serio...?
 
-A gust of wind blew past, and Sister Ejielia was back. She had clearly witnessed Lian Qi holding my hand, which is why she pretended to cough. I was so embarrassed, my face turned red as I pulled my hand back. Whoa… did my sister misunderstand us? The thing is, Lian Qi is a girl! And she thinks I’m a girl too, so holding hands and other intimate gestures shouldn’t be a big deal, right?
+—Aun así, no era rival para ti, Alim, que escalaste las cimas más altas del Rango SSS siendo menor de edad.
 
-My sister doesn’t know that we’ve already pushed each other down twice in private, and almost stripped each other’s clothes… It’s only because we’re “all” girls that we can be so reckless.
+Por un momento, pensé que este chico era increíble, pero pensándolo bien me di cuenta de que mi propio caso era mucho más anormal. Aun así, en aquel entonces, la gente probablemente lo veía de esa manera.
 
-My sister walked past us, and I noticed her eyes were a little red. Did she really go off to cry just now? I watched her approach the remains of Teacher Larnitis and say with restrained emotion—”May you rest in peace, Teacher.”
+—Así, dicho Guía y su compañera, una espada que había encontrado en una mazmorra, utilizaron principalmente habilidades de espada y la magia que podía controlar a través del vajra para derrotar al dios malvado. Luego lo selló en el vajra.
 
-With that, she took out a Flame Magic Crystal and set her teacher’s body alight.
+Bueno, nada hasta este punto era tan inusual. Yo fui capaz de derrotar a Samaeyl antes de maximizar mis estadísticas.
 
-“Cremation?” I watched her back, silhouetted against the flames, and asked in a low voice.
+—Aun así, en ese punto solo estaba sellado y difícilmente destruido, ¿verdad? —continuó el Rey Rama—. ¡Así que escucha esto: el Guía no era de este mundo, sino de otro!
 
-“Yes. This is the only way to ensure no one steals his elderly body again, so he can rest in peace completely.”
+*Oh, ya veo. Bueno, ya lo suponía. Hay una cantidad sorprendente de personas de la Tierra*[2](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-2-120020) *que han venido a Anazumu... ahora que lo pienso, los Sabios también son invocados aquí.*
 
-“The Demon King can control corpses? That sounds a bit like necromancy,” Lian Qi said.
+“You know about the Sages, I assume? They are brought here from another world, but the boy who became a Guide apparently wasn’t one ==return== had strayed into this world instead. ==return== his original world was said to be one without magic. In that case, why ==not== take the evil god with him there? Keeping the vajra with the sealed evil, the Guide succeeded in finding a way to ==return== to his world.”
 
-Lian Qi seems to know a lot about magic. It’s just… not the magic of our world. The magic in our world only has four major systems—Manipulation, Evocation, Enchantment, and Transmutation.
+—N-No me digas que así fue como lo destruyó.
 
-“Any Manipulation-type mage can control a corpse, it’s nothing special. But the Demon King is far more evil than you can imagine,” Sister Ejielia said as she turned around, putting one arm around me and the other around Lian Qi.
+—Exactamente, no debería haber forma de que un dios malvado exista en un mundo sin el concepto de magia y concentraciones de poder mágico. Por lo tanto, se asume que fue destruido.
 
-“Don’t look, let’s go. I’ll send you back to Fontainebleau Manor now.”
+*Entonces, lo que está diciendo es…*
 
-I already knew what was about to happen. I silently took a leather cord from my maid uniform’s pocket and tied up my hair, so it wouldn’t be blown into a mess.
+*…¿que ese dios malvado está actualmente en la Tierra? Se lo llevó consigo a otro mundo, ¿así que se considera "destruido" en Anazumu…?*
 
-Lian Qi looked at me, confused.
+*Eh… espera un momento. Por favor, no hagas eso, es como tirar tu basura en la casa de otra persona.*
 
-“Why are you suddenly tying up your hair?”
+—Hrm, ¿pasa algo malo, Alim, Mika? Ahora mismo se ven adorablemente gruñones.
 
-Before I could explain, a gust of wind pushed at my back and carried us all away…
+—No, no es nada…
 
-A moment later, we were standing in front of Fontainebleau Manor.
+—Uhm, ¿estará bien ese otro mundo?
 
-“Wow, was that magic just now? It was as thrilling as a roller coaster!”
+—Allí no hay magia, ¿verdad? ¿Por qué no iba a estar bien?
 
-“What’s a roller coaster?”
+Es cierto, a veces sentía que a este mundo le faltaba algo, aunque tal vez fuera una diferencia de mentalidad. Aun así, escuchar su verdadera historia no dejaba de sorprenderme.
 
-See, she’s speaking in terms I don’t understand again.
+—Bueno, volviendo al tema principal. Darles información previa sobre el Guía que derrotó al dios malvado era necesario… En cuanto al porqué, el hombre que Nuestro bisabuelo designó como el Guía… también procedía de otro mundo.
 
-“It’s a ride at amusement parks in my world. You sit in it and experience being flipped upside down, weightlessness, and acceleration. I used to be able to ride it ten times in a row.”
+*Sinceramente… ¿cuánta gente fue enviada a Anazumu…? Bueno, Mika y yo vinimos aquí después de morir y nuestras almas fueron salvadas, lo cual fue algo positivo.*
 
-Flipped upside down…? Weightlessness? Acceleration? Is that some kind of demonic training?
+*Aun así, ¿qué pasó con todos los demás? ¿Fueron traídos aquí como una broma como el Sr. Mitsuo…? No es que nada de eso tuviera gracia.*
 
-“The people of your world… are quite fierce,” I said with a weak smile. “That was just my sister’s teleportation magic.”
+—Como mencionamos antes, ese Guía era alguien peculiar. Hacía reír a la gente realizando varios trucos sin magia. Probablemente lo hacía para ganar dinero y eso llamó la atención de Nuestro bisabuelo. Al hablar con el hombre, supo que era de otro mundo, así que lo convirtió en el Guía.
 
-Speaking of which, the first time I experienced my sister’s teleportation magic, I was so scared I almost cried. Yet Lian Qi found it thrilling. I actually lost to a girl… how embarrassing!
+—En ese caso, ¿la razón por la que su antepasado lo nombró Guía es porque creía que era de alguna manera importante históricamente?
 
-“Sister, a correction, it’s not teleportation magic but instant movement magic.”
+—Sí, lo has comprendido. De hecho, el diario menciona que tenía grandes expectativas puestas en él.
 
-“Ah…? I always thought it was teleportation…”
+*¿Como si fuera la descendencia del Guía anterior a él? Probablemente no esperaban que apareciera otro transmigrado.*
 
-“It’s actually a magic that allows me to move as the wind, the Wheel of Wind.”
+—Entonces, ¿qué pasó con este hombre después? —preguntó Mika.
 
-As my sister explained, she didn’t forget to pat Lian Qi’s shoulder, her tone meaningful—”If you learn magic in the future, remember to only reveal information about it to those you trust the most. Never ramble on to your opponent about the specific principles of your magic.”
+Yo también tenía curiosidad por eso.
 
-“Huh? Is everyone’s magic different?”
+“It says that since he was so driven to ==return== to his home, he left to search  ==for== a means to go back. While Our great grandfather had already made him the Guide, he still felt sorry  ==for== the man, so he gave him the advice to either ask the king ==of== Yggdrasil, the country ==of== the holy tree, ==or== go to the Mephilad Kingdom where a means to ==return== was said to exist. Due to the poor relationship ==of== Our country with Yggdrasil, he recommended Mehilad.”
 
-“Magic is something you create yourself. Because of that, some people can’t resist showing off in front of their opponents. In any case, just remember what I said.”
+—¿Y entonces…?
 
-Lian Qi nodded. Just then… I noticed the unicorn circling a figure at the entrance. Ever since this unicorn took up residence at the manor, it has been allowed to roam free in the yard. Huh—? As for that ponytail-wearing beauty, I’d recognize her even if she were reduced to ashes.
+—Al parecer, el Guía fue a Mehilad. Después de eso, se le perdió el rastro.
 
-“Qifeng?”
+*Un hombre de otro mundo que vino al Reino de Mephilad buscando una forma de volver a casa… ¿espera? Tengo un mal presentimiento… uno muy malo. Y era un animador, lo que suena mucho a cierta persona que anda por ahí…*
 
-I was quite surprised to see her. Didn’t she just arrest a major corrupt official? Shouldn’t she be busy with a surprise interrogation? How did she have time to come find me?
+—U-Uhm, solo para estar seguros, ¿podría decirnos el nombre de este Guía, Su Majestad?
 
-“Fei’er!? You’re finally back! Why is there a unicorn here? Get it away—hurry up and get it away…”
+—Por supuesto, al parecer se llamaba Mitsuo Lovelong[3](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-3-120020). Un nombre bastante extraño.
 
-It looked like the unicorn was trying to nuzzle her face affectionately, but she pushed it away with a look of disgust, again and again. She cried out to me for help.
+Mika y yo nos miramos.
 
-I really couldn’t do anything to help… As a boy, I couldn’t even get close to it.
+*Cómo decirlo… es justo como me temía.*
 
-“I’d also like to know why there’s a unicorn,” Sister Ejielia said with a frown.
+**Notas:**
 
-“Qifeng, why are you here?” I asked.
+1. Ese podría ser el chico de la historia del capítulo 261, que fue la causa de que se construyera la estatua de Jizou.
 
-“Because…”
+2. No entiendo por qué asume que todo el mundo es de la Tierra. Podría haber innumerables mundos ahí fuera.
 
-She pushed the unicorn away, turned around, and picked up a box from the steps, which contained a birthday cake.
-
-“Happy Birthday~” she said to me with a smile.
-
-At this moment, I was not only touched but also internally screaming. Today is the Christmas Festival, and she’s wishing me a happy birthday. Didn’t we agree to keep it a secret? My dear sister… you can’t throw me under the bus like this!
+3. El nombre está escrito en katakana aquí. Es posible tanto que el apellido de Mefistófeles, que tiene el significado literal de "amor largo" y que he localizado como "Aichou" hasta ahora, deba pronunciarse como el inglés "Lovelong", o que simplemente sea su nombre artístico. Por el momento, no lo cambiaré a menos que haya una instancia futura que lo haga necesario.
 
 +++
 
-# **2**
+# **610 – El Payaso y el Guía**
 
-I’ve been set up by Qifeng. Lian Qi was looking at me with suspicion.
+—Lo siento, eso fue un poco excesivo —murmuré.
 
-“Today is your birthday? You actually share a birthday with the Saintess?”
+—¿Hm? Todavía hay más de qué hablar...
 
-An idea struck me—”Has it passed midnight? It should be almost time, right? Actually, my birthday is the day after the Christmas Festival, haha… Right, Qifeng?”
+—¿P-podríamos continuar esto en otro momento?
 
-As I was smoothing things over, I secretly winked at Qifeng. That silly girl just stood there, dumbfounded, and after a long pause, only managed to say—”Ah…”
+—¿Qué, viniste aquí a pesar de estar ocupado hoy? Fue culpa Nuestra; lo dejaremos por ahora.
 
-Forget it, I can’t count on her for any divine assistance. As long as she doesn’t deny it, I’ll be thankful.
+—Mis disculpas, nos retiramos...
 
-Lian Qi had a moment of realization.
+Mika y yo salimos de la ciudad y usamos un objeto que nos llevó a casa sin depender del poder de Kanata. En cualquier caso, había mucho que asimilar.
 
-“So your birthday is the day after the Christmas Festival. No wonder you were staring so intently at the cakes in the display window when we were shopping. Why didn’t you say so sooner?”
+—...Nunca pensé que el Sr. Mitsuo fuera el Guía.
 
-“Because I knew Qifeng would give me a cake, so I didn’t need to buy one…”
+—Cierto, pero tiene sentido —respondió Mika mientras se rascaba la mejilla de una forma que también servía para apoyar su cabeza.
 
-I breathed a sigh of relief, secretly admiring my own quick-wittedness.
+*¿A qué se refiere con eso?*
 
-“Then I can take out my birthday present now,” Sister Ejielia said.
+—¿Por qué lo crees?
 
-“Eh…?”
+—Mira, ¿no absorbió al Dios Demonio en su propio cuerpo? Los dioses malvados con los que hemos luchado hasta ahora... toma a Samaeyl, por ejemplo. Ella poseyó a Karuna, una de las personas con el poder de encontrar al Héroe. ¿Y no poseyó Surtr a Shuu, uno de los Sabios? Por eso, era extraño que el Sr. Mitsuo, que no es ni Héroe ni Sabio, pudiera absorber a un dios malvado con tanta facilidad.
 
-As expected, Sister Ejielia hadn’t forgotten my birthday. To avoid exposing my identity as the Saintess, she must have been hiding the gift, afraid to give it to me. Now, she could finally take it out with confidence, right?
+—Si lo pones de esa manera...
 
-She took a beautifully wrapped gift box from her robe and handed it to me.
+Los dioses malvados no podían poseer a personas que no fueran Héroes, Sabios o aquellos con una predisposición relacionada con ellos... Si tal ley existiera, no habría habido forma de que el Dios Demonio fuera absorbido por el Sr. Mitsuo tan fácilmente, sin importar cuántas veces lo almacenara en Droprot. Vi todo el proceso, y en ningún momento hubo ningún rechazo visible. Si él era el Guía, entonces la facilidad del proceso tenía sentido.
 
-“Happy birthday, little sister.”
+*Je, je, Mika es tan lista como siempre.*
 
-“Thank you, sister…!” I said joyfully. “Can… can I open it now?”
+—Pero, ¿él mismo recuerda que es el Guía? —me pregunté—. Esto debe haber sido hace más de 100 años.
 
-“Mhm, open it and you’ll see.”
+—¿No nos dijo que durmió la mayor parte de ese tiempo? Si para él fue como Urashima Tarou, es posible que aún lo recuerde.
 
-I unwrapped the packaging, and before me was a—conch shell.
+—Vaya, me pregunto. Tendremos que preguntarle...
 
-“Huh? What’s this?”
+*Pero solo podemos ir allí cuando sea sábado en la Tierra. Y ese es el día en que prometimos ver el torneo prefectural de Shuu.*
 
-“It’s a communication conch. No matter where you are, if you speak into this conch, I’ll be able to hear you.”
+—¿Cuándo vamos a hablar con él?
 
-I felt my sister’s immense love and couldn’t help but give her a hug.
+—Creo que el lunes debería funcionar. Solo tenemos clases antes del mediodía hasta que terminen todos los torneos de los clubes.
 
-“Thank you, sister, I love the gift~”
+—¡Oh, es cierto!
 
-Judging by my sister’s expression, was she feeling healed by my reaction?
+*En ese caso, vayamos a preguntarle el próximo lunes.*
 
-“Speaking of birthday gifts,” Qifeng said, pushing the unicorn away again.
+Probablemente no habría tanta gente al ser un día laborable, lo que debería facilitar hablar con él. Aunque intercambiamos nuestra información de contacto, solo podíamos preguntarle directamente mientras el circo estuviera todavía en la ciudad.
 
-“There were already a lot of gift boxes in the yard when I arrived.”
+—El problema mayor es el dios malvado en la Tierra...
 
-“Eh eh eh? Where?” I asked, pleasantly surprised.
+—Cierto, esa es la parte más aterradora.
 
-“I put them on the steps—get away! Why is this unicorn always pestering me?”
+—La gente de este mundo parece pensar que no será un problema ya que no se puede usar magia allá... Si tan solo fuera así de simple.
 
-Actually, the reason was obvious…
+*¿Pero no significa eso que el dios maligno realmente ha quedado sin poder? Espera un momento…*
 
-It’s just that I was too embarrassed to say it out loud…
+"¿No ocurrieron todos estos extraños sucesos alrededor de la estatua de Jizou? Como esa bola de fuego que alguien vio".
 
-“Maybe you exude the fragrant aroma of a young maiden,” Lian Qi said quietly.
+"Oh, sí, así fue".
 
-“Huh????? What the heck is the fragrant aroma of a young maiden!?” Qifeng’s face turned red as she glanced at me. I found it strange. Why was she looking at me when she was embarrassed?
+"Y el Señor Jizou fue quien nos trajo a este mundo. Y por lo que nos contó Shuu, hubo una reacción cuando Rir realizó la oración de Anazuman".
 
-Meanwhile, Lian Qi kept her distance from the unicorn, probably afraid of revealing her identity as a girl. Since both Sister Ejielia and Qifeng thought she was a boy, it would be too strange if the unicorn was friendly with her.
+"Entonces, ¿lo que intentas decir es que podría ser posible invocar magia en la Tierra, Ayumu? En ese caso, esa bola de fuego podría haber sido el hechizo de principiante Bola de Fuego".
 
-As for the gifts on the steps, I probably didn’t notice them because it was too dark at night. I carefully circled around the unicorn to get to the presents. Unexpectedly, there were four of them.
+—Exactamente.
 
-“Huh? Who sent so many gifts?”
+La expresión de Mika se ensombreció. Si los fenómenos que acababa de mencionar estaban relacionados con Anazumu y la magia, entonces podría ser ya una causa perdida. No tendríamos idea de cuándo ni dónde resucitaría el dios maligno.
 
-Lian Qi, Qifeng, and Sister Ejielia all gathered around me at once.
+Los que habíamos visto hasta ahora utilizaban ataques dignos de la palabra "dios" en sus nombres, como dispersar partículas que causaban la muerte instantánea al contacto (ignorando cualquier obstáculo) o crear una dimensión diferente. Si un dios tan maligno apareciera en la Tierra, sin magia ni herramientas mágicas disponibles, el número de bajas sería inmenso.
 
-“They must have been sent here by people who knew I was at Fontainebleau Manor, right?”
+Nuestro nivel de desarrollo tecnológico no era tan malo, así que si las pistolas y las bombas fueran efectivas, se podría evitar la destrucción del planeta. Aunque aún así podría aniquilar a Japón y a varios otros países asiáticos.
 
-Thinking carefully, besides Sister Ejielia and Qifeng, there were four other people who knew I was here. Full of anticipation, I opened the largest box—did that reveal how greedy I was?
+"En ese caso, tenemos que encontrar ese vajra lo antes posible".
 
-What appeared before me was—a very cute khaki-colored outfit, in a style I had never worn before.
+"Pero no tenemos absolutamente ninguna pista de dónde está".
 
-“Huh? Isn’t this a Lolita-style dress?” Lian Qi recognized it at a glance.
+"Tal vez el Sr. Mitsuo sepa algo".
 
-“This dress must be very expensive.”
+"Bueno, puede que sí, o puede que no. Preguntémosle cuando tengamos la oportunidad".
 
-“Little sister, you’ll look so cute in it.”
+*Aun así, ¿realmente hemos estado en tal peligro hasta este punto? Vivir en una casa sin saber que hay una vieja bomba enterrada debajo ya es bastante malo. En cualquier caso…*
 
-“…” I silently closed the box. The image was too childish; I couldn’t bear to look.
+"¿Cómo trajeron siquiera el vajra a la Tierra?", me pregunté.
 
-“Hey? Why did you close it? Why not take a good look?”
+"¿Eh?"
 
-“No… it’s too embarrassing.”
+"Quiero decir, cuando vamos de Anazumu a la Tierra o viceversa, no podemos llevarnos nada con nosotros, ¿verdad? La única excepción fue cuando Shuu y los demás fueron invocados como Sabios".
 
-“Little sister, why don’t you go try it on now?”
+"Hm, es cierto. Pero parece que debería haber otras formas. Siendo este mundo como es, podría haber una función que podamos añadir al teletransportador Jizou".
 
-Whoa…! Even Sister Ejielia was saying that…
+Ciertamente, las cosas extraordinarias eran normales en este mundo. Si ella lo planteaba así, yo no podía refutarla.
 
-Without a doubt, this outfit was a birthday gift from Queen Tristine. The first time she saw me in a maid outfit, her eyes lit up. Could it be that some new preference had awakened in her?
+"Hm~… ¿Qué deberíamos hacer?"
 
-The problem is… how could I possibly pull off such a cute style…! Give me a break, I’m a boy! Why dress me up like a little loli…
+"No ha pasado nada hasta ahora, así que probablemente no tengamos que apresurar nuestra búsqueda. Lo primero es hablar con el Sr. Mitsuo, y luego le preguntaremos al Rey Rama sobre la investigación".
 
-I thought wearing the maid outfit was embarrassing enough, but I never imagined there was something even more embarrassing…
+"Tienes razón… Además, tendremos que decirle al Rey Rama en algún momento que no somos de Anazumu".
 
-“There are still three more gift boxes,” Qifeng said.
+"Mi instinto me dice que prácticamente te obligará a convertirte en el Guía en el momento en que se entere de eso".
 
-“Why don’t we all help open them…?” I suggested.
+"Sí..."
 
-“Sure, but no matter what’s in the next gifts, you’re definitely wearing that Lolita dress tonight,” Lian Qi said with a smile.
-
-“Eh eh eh!? I told you it’s too embarrassing for me to wear…!”
-
-“What if the next box has a swimsuit in it…?”
-
-I was speechless. I’d rather wear the Lolita dress… My sister had seen me in a swimsuit before. For her to say something like that, had some strange preference awakened in her as well?
-
-“Fei’er, I’ve decided not to leave tonight. I’m going to watch you change.”
-
-I shot a resentful glance at Qifeng—well now, you brat, even you’ve betrayed me~!
-
-In any case, the three of them all had expressions of gleeful anticipation. I heard the “rip, rip” sound of wrapping paper being torn to shreds, but my mind was completely occupied by that Lolita dress. I’m a boy, and even though I say it’s embarrassing, a part of me is still very curious. Am I a lost cause?
-
-It’s been three months since I found out I was a boy, and I haven’t even glanced at boys’ clothes. Instead, I’ve fallen deeper into the abyss of dressing as a girl, unable to escape… The sense of immorality that comes from wearing girls’ clothes while knowing I’m a boy strips away my male pride piece by piece, until only shame is left, leaving me as addicted as if to a drug, unable to stop…
-
-So, with a brand new Lolita dress in front of me, will I wear it or not?
+La intuición de Mika solía ser muy acertada, así que… la posibilidad de que el rey me reclutara como Guía era alta.
 
 +++
 
-# **3**
+# **611 – De vuelta en el circo**
 
-“What’s this? Scrolls?” Lian Qi opened the gift box, pouring out a pile of rolled-up parchment scrolls.
+Era lunes, y Mika y yo habíamos ido directos al circo. Obviamente llevábamos el pase vitalicio. Era un día laborable, así que no había tanta gente como la última vez.
 
-“Eh—? Those must be the teleportation scrolls Sister Nono gave me.”
+"Al final hemos vuelto aquí tan pronto".
 
-Remember the blue-haired, petite magician standing next to Sister Mouyue when I went to the Adventurers’ Guild that day? That’s Nono! She was also the one who left the unicorn at the gate yesterday morning and ran off.
+"No es que tengamos otra opción. Esta es la forma más rápida de encontrarnos con el Sr. Mitsuo".
 
-“The great magician Nono? She’s a rare talent. She must be a Platinum-rank adventurer by now, right?”
+"Cierto".
 
-I hummed in agreement. Sister Ejielia is the current principal of the Magic Academy, and Nono is still her student.
+Después de hacer cola un rato, llegamos a la taquilla donde se mostraban las entradas. Le presentamos nuestro pase a la mujer del mostrador.
 
-“Sister, the gift you opened is—” I hesitated, watching as my sister unwrapped the gift and pulled out a short sword. This thing? Is this really my gift?
+—¿Podemos usar esto?
 
-My sister held the short sword in her hand and examined it carefully. “It seems to be made from a dragon’s tooth. It’s pretty good for self-defense.”
+—¿Eh?... ¡ah, por supuesto! ¡Es válido! Por favor, vengan por aquí.
 
-“But I’m rather afraid of sharp objects,” I said weakly. That’s why I always condense the Holy Light into a hammer when I have to fight.
+Al parecer, debíamos salir de la fila e ir a otro lugar. Nos guiaron detrás del mostrador, donde la recepcionista nos encomendó a otro miembro de la compañía.
 
-I also figured this dragon tooth short sword was a gift from the Sword Saint, Miss Livi. She hates dragons with a passion, and even her birthday gift to me shows just how much she wants to tear dragons limb from limb… I looked over at Qifeng. She was holding a crown woven from branches, looking it up and down. I guessed this must be a gift from Sister Mouyue.
+—Supongo que son los invitados especiales de los que nos informó el líder de la compañía. Sean bienvenidos. Lamentablemente, él se encuentra ahora mismo en el escenario...
 
-“That’s an elven laurel, isn’t it? When the flowers on it wither, new ones will grow.”
+—Oh, entiendo.
 
-“Really?” Hearing Sister Ejielia say that, I took it back from Qifeng and eagerly tried it on. It was a pity there was no mirror.
+—Vinimos hoy para hablar con el Sr. Mitsuo —explicó Mika.
 
-“Hey, you’ve got grass growing on your head.”
+—En ese caso, por favor visítenlo cuando termine la próxima función —respondió cortésmente el miembro de la compañía—. Le informaré de que están aquí... Ya que hicieron cola, ¿desean ver la función? Desde los asientos VIP, por supuesto.
 
-“How is that possible…?” I quickly took off the laurel, only to find that Lian Qi was teasing me…
+—¡Sí, nos encantaría verla!
 
-“The people who know you’re at Fontainebleau Manor will send birthday gifts here, but what about the people who don’t know? Will they send gifts to your house?” Sister Ejielia suddenly asked me. I thought about it and realized it was indeed a possibility.
+—Podrán hablar con él después, entonces.
 
-Lian Qi sighed from the side—”I never knew you were so popular.”
+"Sí."
 
-All I could do was scratch my head and give a shy smile. After all, I’m the Saintess, so it’s not surprising that I have a wide network of connections, right?
+Parecía que este miembro de la compañía organizaría nuestro encuentro. Fue un alivio escucharlo, ya que teníamos muchas preguntas. Normalmente había un descanso de 30 a 40 minutos entre funciones, así que no sabía si sería tiempo suficiente para nuestra charla, pero debería bastar para las preguntas más importantes.
 
-“I’ll go back to the royal capital first and bring the birthday gifts from your house over for you,” Sister Ejielia said to me.
+Durante la pausa entre funciones, mientras los invitados entraban y salían de la carpa, nos llevaron a los asientos VIP. Luego nos dieron el menú de bebidas y aperitivos. Por el momento, pedimos dos refrescos de melón con una bola de helado encima.
 
-“Is that okay…? It’ll be a bother for you to make a trip. Why not use a teleportation scroll?”
+—De vuelta en el circo... ¿deberíamos haber traído también a Sakura y Kanata? —se preguntó Mika.
 
-“No need. I have my own magic. You should save the teleportation scrolls for yourself.”
+—Bueno, la razón por la que vinimos fue para confirmar nueva información y no quiero arrastrarlos a este asunto. Kanata probablemente se lanzaría de cabeza y Sakura lo seguiría.
 
-I couldn’t help but feel a warmth in my heart. My sister really does her best for me. I smiled at her and said, “We’ll wait for you to come back before we cut the cake!” She returned a faint smile, then turned into a whirlwind and disappeared.
+"Es cierto".
 
-Lian Qi, Qifeng, and I looked at each other, realizing that we had been so busy opening birthday gifts since we got back that we hadn’t even gone inside…
+De hecho, el cerebro de Kanata era mejor que cualquier ordenador, por lo que era de fiar, pero tendía a excederse. Y luego se bloqueaba.
 
-“Let’s not just stand at the door. Let’s go inside and wait,” I said, taking the key out of my maid outfit’s pocket. After entering the house, I activated the hearth’s flame magic crystal, and the warmth instantly created a birthday atmosphere.
+*Espera, ¿cuándo empecé a verlo como una especie de máquina? Es humano y es mi hermano menor.*
 
-At this moment, I was wearing the elven laurel from Sister Mouyue, holding the dragon tooth short sword from Sister Livi, the Lolita dress from Sister Tristine, and the teleportation scrolls from Sister Nono…
+—¡Oh, ya empieza! Estuvimos aquí hace poco, pero sigue siendo emocionante, ¿verdad?
 
-Oh, right, and there was also the pink bag with the AA-cup bras I bought for myself.
+—¡Lo es!
 
-Underwear and stuff… I feel a bit ashamed having them seen by them from time to time in the living room… especially with such a sad size as AA-cup.
+Tomamos las bebidas que nos trajeron y vimos el espectáculo, haciendo una pausa solo para pedir patatas fritas del menú. Bueno, las actuaciones obviamente eran las mismas que la última vez.
 
-So, I decided to put my things away in my room first. After saying hello to them, I was about to turn back to my room when Lian Qi suddenly stopped me.
+___
 
-“I didn’t know it was your birthday beforehand, so I didn’t prepare a gift for you. I’m really sorry…”
+—¡Ja, ha sido divertido!
 
-“The decision you made tonight is the best birthday gift for me,” I said with a smile.
+—Seguro que sí.
 
-Qifeng said nonchalantly from the side—”Fei’er, I’ll go with you.”
+Aunque fueran las mismas actuaciones, verlas seguía siendo emocionante. Esta vez estábamos un poco más acostumbrados al trato VIP y puede que pidiéramos demasiado. Esperábamos no haber dado la impresión de ser unos invitados maleducados.
 
-I guessed she had something she wanted to talk to me about. Could it be that my conversation with Lian Qi made her jealous…? But I also found it strange that this was Qifeng’s first time meeting Lian Qi, yet she was acting… a little too calm? You have to remember, last time she was clamoring to duel Lian Qi, and I could barely hold her back.
+—¡Hola, ustedes dos! ¡Veo que han vuelto! ¿Van al despacho del líder de la compañía?
 
-Next, we were walking side by side down the corridor. She startled me as soon as she opened her mouth—”The otherworlder gives me a rather effeminate feeling, not like a boy.”
+Era el mismo miembro de la compañía que me había llevado ante el Sr. Mitsuo el otro día.
 
-“Eh, eh, eh??”
+—Sí, ¿podría llevarnos allí?
 
-They had only just met… and she could already sense it?
+—¡Por supuesto, síganme!
 
-“Why would you think that…?” I asked weakly.
+Hicimos lo que nos pidió. En poco tiempo, siguiendo la misma ruta que la última vez, llegamos frente al mismo despacho.
 
-“When we girls were chatting, he blended in so naturally. A normal boy wouldn’t be like that.”
+—Eso es todo por mi parte.
 
-I was speechless. Is Qifeng using her professional skills here?
+—Muchas gracias por traerlos —le dijo el Sr. Mitsuo al hombre y luego se volvió hacia nosotros—. Me alegra verlos a los dos. ¿No han traído hoy a sus hermanos menores y amigos?
 
-“Also, today was the first time I met him, and he didn’t glance at my chest or legs even once from beginning to end.”
+—Sí, solo somos nosotros.
 
-“You… you even noticed that?”
+—Ya veo. Parece que tienen cosas que discutir. ¿Pasó algo?
 
-I secretly glanced at her C-cup chest and her white-stockinged legs…
+No debería haber nada por lo que el hombre se sintiera culpable, pero aun así parecía extrañamente nervioso.
 
-Back in Versailles, Qifeng had been paying close attention to Cardinal Rodrigo’s micro-expressions. This was the keen sense of observation she had developed as an inspector. It was clear she hadn’t missed a single one of Lian Qi’s movements either.
+*Bueno, como sea, mejor pongo las cosas en marcha.*
 
-“Actually… ahem, not every boy is a pervert, you know.” I insisted on covering for Lian Qi. After all, I promised to keep her secret.
+—No, queríamos hablar de algo curioso respecto a Anazumu.
 
-Qifeng stopped and faced me. I couldn’t help but swallow nervously. In a tone she would use to identify a criminal, she said to me solemnly—”The otherworlder is actually a girl, isn’t she!”
+—¿Ah, de verdad?
 
-“Eh, eh, eh? How did you suddenly come to that conclusion???”
+—Uhm, nos enteramos de que usted fue nombrado Guía del Reino de Bufura, hace unos 100 años, Sr. Mitsuo. Quedó un registro en ese país.
 
-“The pink bags with the underwear, there were two of them. If you had bought everything yourself, the clerk wouldn’t have packed them in two separate bags.”
+El payaso parecía confundido.
 
-I was shocked! Qifeng saw right through it with just one sentence! I’m utterly defeated… At this moment, I felt crushed, so weak, I wanted to fall to my knees…
+—Hace unos cien años... ¿fue así? ¿Lo confirmaron personalmente?
 
-“You even discovered that…” Lian Qi and I were indeed careless…
+—Sí, lo hicimos.
 
-“Hmph, don’t underestimate me. Not even the smallest detail can escape my eyes!”
+—Bueno... me duele decir esto, pero no tengo recuerdos de la época anterior a mi renacimiento para liderar a los demonios...
 
-I really wanted to say, _there’s another cross-dressing pervert right in front of you that you haven’t noticed_.
+"Ya veo…"
 
-“Help us keep it a secret…” I said weakly.
+*¿Así que eso es todo lo que recuerda...? Digo, fue hace más de cien años, así que supongo que tiene sentido.*
 
-“Of course I’ll obey the Saintess’s command. It’s just…”
+—¡A-Aun así, estoy seguro de que había algo extraño en mi pantalla de estado! —continuó apresuradamente, posiblemente notando mi desánimo—. Probablemente esa fue la razón por la que mis habilidades funcionaron contigo, incluso con tu nivel y estadísticas superiores.
 
-“Just what?”
+—Pensándolo de esa manera, tiene sentido...
 
-“Could you grant me one wish? Can I… pull your ponytail?” she asked, blushing and looking bashful.
+En aquel entonces, yo ya era bastante poderoso y me pareció extraño que su Contrato Forzado funcionara sin problemas.
 
-“Huh?”
+—Eso es todo lo que sé. Mis disculpas, no recuerdo mucho.
 
-Only then did I remember that I had my hair in a ponytail the whole time. I had tied it up before returning to Fontainebleau Manor to prevent Sister Ejielia’s magic from messing up my hair, and I had forgotten to take it down…
+—¡No se preocupe, eso fue hace más de cien años, así que es lógico! Me gustaría preguntar algo más, ¿todavía tiene tiempo?
 
-“Well, well, you have your own ponytail, don’t you? Why do you have to pull mine?”
+El Sr. Mitsuo miró el reloj y luego asintió.
 
-Instead of letting her pull my ponytail, I suddenly felt playful.
+—En ese caso... uhm, ¿conoce un vajra llamado Indra?
 
-“Come on, let’s have a ponytail fight.”
+—¿Un vajra...?
 
-We actually brandished our ponytails at each other for a few moments. Afterwards, I felt hopelessly childish.
+—En efecto, al parecer es el arma utilizada por el Guía para sellar al dios malvado...
+
+—Vaya, ya veo. No, nunca he oído hablar de eso.
+
+Mika y yo nos miramos. No parecía que el hombre supiera nada en particular.
+
+—Gracias por su tiempo, a pesar de que nos presentamos de repente para hacer preguntas extrañas.
+
+—Está bien, yo debería ser quien se disculpe ya que no fui de ayuda.
+
+—Eso era todo por lo que vinimos hoy.
+
+—Muy bien, por favor visítennos tan a menudo como quieran mientras estemos en esta ciudad.
+
+Mika y yo salimos de la oficina del líder de la tropa inclinando la cabeza ante el hombre. Desde afuera, pudimos oírlo ponerse de pie y sacar algo.
 
 +++
 
-# **4**
+# **612 – Hacia el lugar de Ayumu**
 
-The fact that Lian Qi’s identity as a girl was seen through by Qifeng taught me a valuable lesson. Even if I can rely on my natural talent to wear a women’s swimsuit without anyone discovering I’m a boy, I can’t let my guard down. Compared to Sister Ejielia, the keenly observant Qifeng is far more dangerous.
+Era el día después de que hiciéramos otra visita al circo. En otras palabras, martes.
 
-But we’re childhood friends. How could she not have discovered that the person closest to her is a cross-dressing… pervert…? Could it be true what they say—the most dangerous place is often the safest?
+Hoy, las clases también terminaron después de solo cuatro horas. Antes de empezar a salir con Mika, pasaba esos días sumergiéndome por completo en los videojuegos, pero ya no podía hacer eso. Ahora que lo pienso, apenas he jugado últimamente. Dicho esto, normalmente me regañaban si no hacía nada más que jugar.
 
-Three months ago, after I learned I was actually a boy, I did come up with some coping strategies. It’s embarrassing to even say it—I even prepared things like sanitary pads. Ahem, of course, they weren’t for me! They were for my sisters who came to visit.
+Nuestra escuela era estricta en cuanto al estudio, así que la gente estaba nerviosa con el final del trimestre a solo unas semanas de distancia. Bueno, sobre todo los profesores, y los de mayor rango.
 
-For example, if Qifeng came over and wasn’t feeling well, I could give her a pad. She would naturally think—_well, Kefei’er is a girl, so of course she’d have these things at home!_
+—Eso es todo por hoy. Nos ve~mos —la voz apática del profesor de guardia hoy resonó por la sala.
 
-On the contrary, if I didn’t have any… suspicions would arise over time. After all, you can’t always get away with the excuse, “Sorry, I just ran out.”
+Nos levantamos al unísono y nos echamos las carteras al hombro.
 
-However, the pads have been sitting there for three months without being used. It’s different now; I’m sure Lian Qi will ask me for one someday.
+—Nos vemos mañana, entonces.
 
-Oh, right. Qifeng really likes it when I wear my hair in a ponytail. It’s no wonder she herself has had a single ponytail since she was little. So she’s a ponytail-con? And she can’t resist trying to pull my ponytail. I suspect that every time I “punish” her by pulling her ponytail, she’s secretly overjoyed, even while crying out in pain.
+—¡Guau, nos vemos!
 
-Right now, I opened the door to my room and kept Qifeng outside.
+—Vale, hasta luego.
 
-“Sorry, you can just wait for me out here.”
+—Adiós a los dos.
 
-“Huh? You’re not letting me in because you want to try on the Lolita dress, right? Let me in, I can help you with the zipper or something…”
+Shuu y Rir tenían actividades del club ahora. Con el torneo de la prefectura a solo cuatro días, estaban entrenando con especial dureza. Yo confiaba plenamente en que Shuu se llevaría todo el protagonismo y se alzaría como campeón del torneo nacional.
 
-Didn’t hear that, didn’t hear that…!
+*Vaya, "Shuu se lleva el show", casi parece un juego de palabras*[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120026)*.*
 
-It’s so embarrassing to have someone expose your inner thoughts! I slammed the door shut with a bang.
+—¿Qué haremos hoy cuando lleguemos a casa? —preguntó Mika.
 
-“Phew…”
+—Hm, qué podríamos hacer…
 
-Leaning against the door, I couldn’t help but let out a sigh of relief. It feels so good to be back in my own little world, where I can change into any women’s clothing I want without worrying about being seen. I undid the cord tying my hair, letting it fall loosely, and gave a faint smile to my reflection in the full-length mirror. As expected, I still prefer myself with long, flowing hair. I can’t imagine that this person is actually a boy.
+Llevábamos tanto tiempo pasando el rato en nuestras respectivas habitaciones que empezábamos a quedarnos sin ideas. Casi siempre jugábamos a videojuegos. Últimamente, no sé si por nuestras estadísticas, Mika se había vuelto bastante buena. Desde el principio me superaba en los beat 'em ups y en los shooters en primera persona, pero ahora también me ganaba en los juegos de mesa virtuales.
 
-No one could imagine it, unless I took off my clothes.
+—¿Y si echamos una partida a un juego de carreras y el que pierda tiene que desnudarse?
 
-I unzipped my maid outfit and watched in the mirror as it slid off my body and onto the floor. At this moment, the boy in the mirror wasn’t completely naked, but was only wearing a pure white bra and panties, with black thigh-high socks on his legs. Whoa…! That feeling of shame is back.
+—No podemos hacer eso, no estamos en Anazumu…
 
-I’ve said it before, I buy lace-style underwear purely for myself to see. To have me wear lace-style clothes on the outside for others to see—like the lace trim on the thigh-highs that came with the maid outfit before, it was beyond embarrassing.
+—Ah, tienes razón.
 
-Because the white lace bra I’m wearing is an A-cup, the curve of the cup is just thick enough for me to fill out, but it’s just hollow inside. It feels like it would collapse with a gentle poke… do you know how tragic that is…
+De vez en cuando, Mika quería que jugáramos versiones eróticas de varios juegos. Yo ya sabía identificar las señales. Pero ahora estábamos en la Tierra, así que no podíamos hacer eso sin más.
 
-Oh, right, I bought new underwear today. But I’ll only wear close-fitting undergarments after they’ve been washed, so it’s a bit of a shame I can’t try them on.
+—Mmm.
 
-So…
+—¿Pasa algo malo?
 
-Next up…
+De repente, se detuvo en seco.
 
-Is it the Lolita outfit’s turn…?
+—No, es que acabo de tener un presentimiento.
 
-What should I do? I’ve never tried this style of clothing before. It’s too childish. I’m sure I’ll be overwhelmed with shame if I put it on. But they all want me to wear it. I have no choice. It wouldn’t hurt to try it on in private, right? If I feel too ashamed to even walk out the door after putting it on, I can always take it off.
+—¿Tu intuición? ¿Qué te dice esta vez?
 
-So, wearing only my underwear and thigh-highs, I tiptoed to my bed and, with a nervous heart, opened the box. The Lolita dress from Queen Tristine was before me again. Hmm… it’s khaki-colored? I rarely wear clothes of this color. It should probably be paired with white stockings, right? Luckily, the color of stockings I have the most of is white.
+—Que deberíamos visitar la estatua de Jizou, ya que ha pasado tiempo.
 
-I picked up the Lolita dress and held it up to the mirror. I found that it went very well with my white hair. Khaki naturally gives off a warm feeling, and with my long white hair, it looks very pure. This dress was right in front of me, tempting me step by step, and in the end, I couldn’t resist putting it on…
+En realidad visitábamos la estatua una vez por semana, pero acabábamos de pasar dos semanas en Anazumu, así que realmente se sentía como si hubiera pasado una eternidad.
 
-I looked at the shy, loli-like version of myself in the mirror and felt as if a door to a new world had opened. It feels like… a cute side of me has been discovered. I even forgot the fact that I’m a boy, transforming into a soft, adorable loli…
+—Vamos para allá, entonces.
 
-Although I’ve complained before about how there could be a 162-centimeter-tall loli, after putting on this dress, it feels like it has compressed my figure… it just has that kind of magic, it’s incredible. Standing still, I look like an exquisite doll. But how can a doll blush? The me in the mirror had a flushed face, as if I had put on blush.
+—¡De acuerdo!
 
-I lifted the hem of the skirt and twirled in front of the mirror, full of girlish charm. If I were to walk down the street in this outfit, no one would ever guess that I’m actually a boy, right?
+Así pues, dimos un rodeo para pasar por la estatua de camino a casa. Nos detuvimos frente a ella y juntamos las manos en oración, aunque no teníamos ni idea de si esa era la forma correcta de hacerlo.
+
+—¿Cuántos años llevamos viniendo aquí ya? —me pregunté.
+
+—A ver, yo vengo desde un año antes de que tu familia se mudara, así que… ¿16 años?
+
+—Eso significaría 15 años para mí.
+
+*El tiempo vuela… y la estatua sigue impecable, nunca dirías que tiene décadas o incluso siglos de antigüedad. Es increíble… como si estuviera hecha con material de Anazumu. Bueno, fue lo que nos envió allí, así que supongo que no es imposible.*
+
+—Mh, bien, volvamos a casa.
+
+"Sí".
+
+Estábamos a punto de irnos y miramos hacia atrás. En ese momento, un hombre con una capucha negra entró en mi campo de visión. No podía verle la cara.
+
+"Ya veo".
+
+—¿Cuándo ha…?
+
+Parecía que Mika también lo había visto, lo que significaba que no era una alucinación mía.
+
+—Eh… ¿qué pasa con ese tipo…?
+
+—Ni idea…
+
+¿Podría ser que hubiera venido a secuestrarnos? No es que estuviera seguro, pero habíamos pasado por situaciones en las que casi sucede, así que estaba extremadamente alerta.
+
+—Vaya… qué coincidencia.
+
+“…?”
+
+La forma en que hablaba en voz baja lo hacía parecer aún más aterrador.
+
+—El tiempo pasó rápido. Los dos han crecido y se han vuelto muy hermosos.
+
+—¿Q-Q-Qué está diciendo?
+
+Por su forma de hablar, el hombre parecía conocernos.
+
+*¿Pero de qué…?*
+
+—Ayumu, ¿no te habló de mí tu hermano menor?
+
+"Oh..."
+
+*Cierto, este debe ser el hombre sospechoso de la capucha negra que mencionó Kanata. El que sabe de nosotros.*
+
+—S-Sí, nos lo contó.
+
+—Ya veo, ¡ja, ja, ja, ja!
+
+*¿Qué le pasa? Parece súper emocionado… Además, antes dijo mi nombre. Incluso asumiendo que tenga alguna conexión con Anazumu, nadie de allí, aparte del Sr. Mitsuo, debería saber mi nombre.*
+
+"Y bien, ¿de qué se trata esto?"
+
+"Oh, solo quería ver vuestras caras. No hay otra razón."
+
+"Ya... ya veo…"
+
+"En cualquier caso, esto es un adiós por ahora. Seguramente nos volveremos a ver", dijo el hombre encapuchado y luego se desvaneció con un 'puf', como si fuera un fantasma.
+
+"…Acabaremos encontrándonos con él de nuevo, ¿eh?"
+
+"Probablemente."
+
+"De qué va todo esto…"
+
+"No hay nadie en Anazumu que nos conociera cuando éramos pequeños, ¿verdad?"
+
+"No debería haber nadie."
+
+Daba miedo no saber cuál era el objetivo de este hombre.
+
+*Ugh… ¿es por eso que Kanata nos dijo que estuviéramos listos para pelear?*
+
+"Por cierto, Ayumu."
+
+"¿Hm?"
+
+Por alguna razón, Mika parecía tímidamente feliz.
+
+*¿A qué viene eso?*
+
+"Uhm, gracias por intentar protegerme siempre."
+
+"Ah, claro."
+
+Ahora que lo mencionaba, tenía razón. A estas alturas, probablemente lo hacía de forma inconsciente.
+
+"Je, je, je…"
+
+Y aunque estábamos en público, me dio un beso en la mejilla.
+
+**Notas:**
+
+1. En el original, se da cuenta de que 翔が優勝 ("Shou es el campeón"), que se lee como "shou ga yushou", suena como un juego de palabras.
 
 +++
 
-# **5**
+# **613 – Hacia el lugar de Shuu (Shuu)**
 
-Unlike the shame that came with wearing a swimsuit, putting on the little Lolita dress even made me forget I was a boy.
+"¡Buen trabajo! Por lo que veo, ¡tampoco tendrás rival en el torneo de la prefectura!"
 
-The swimsuit was quite revealing, and just beneath that layer of fabric was the secret I was desperately trying to hide… The feeling was no different from the mortification of a boy wearing girls’ underwear, exposed to everyone’s gaze. I was in a constant state of fear.
+"¿Eso cree, instructor?"
 
-But wearing the Lolita dress allowed me to completely transform into a girl, a little loli. That’s right. I looked at myself in the full-length mirror, with my pure white hair cascading over my shoulders, my pure face flushed with a faint blush. The pure and beautiful khaki Lolita dress didn’t look gaudy on me at all, and the pure white stockings brought the loli aura to its peak~
+El entrenamiento había terminado por hoy. Las cosas iban de maravilla desde que ganamos el torneo regional tanto en la competición por equipos como en la individual. Incluso los profesores nos felicitaban al pasar.
 
-At this moment, I was a girl. The highest realm of cross-dressing is when even you yourself believe it. Mmm~ I’ve abandoned my pride as a boy, addicted to dressing as a girl and unable to pull myself away.
+"Oh, eso me recuerda, Fún. ¿Podría preguntarte algo?"
 
-Of course, the sense of shame was still there. If I were to suggest to my reflection, “It’s so shameless for a boy to dress up as a girl like this!” the feeling of immorality and that pathetic male pride would immediately crush me with shame until I couldn’t breathe.
+"¿Qué pasa?"
 
-_Knock, knock—_
+"¿Prefieres carne o pescado?"
 
-If it weren’t for the knock on the door at that moment, I couldn’t guarantee that I wouldn’t have actually done just that. After all, I’ve had the experience of my body becoming strange and getting inexplicably excited…
+"¡Carne, sin duda! ¡Absolutamente!", respondió emocionada la chica que originalmente era una wolfkin.
 
-“Fei’er, are you not ready yet? Is the zipper stuck or something… I can help you,” Qifeng said loudly from the other side of the door.
+"Carne, ¿eh? Muy bien, entonces en el de la prefectura… no, mejor que sea en el torneo provincial y en adelante. ¡Invitaré a comer Yakiniku a quien tenga un buen desempeño, ya sea en peleas individuales o grupales! Y si alguien logra ganar la competición individual en el torneo nacional, puede traer al miembro del club que elija. También los invitaré a ellos."
 
-She really doesn’t give up…
+"¡¿Vaya~~?!"
 
-“I’m ready now.”
+"¡¿En serio?! ¡¿En serio?!"
 
-I opened the door. Qifeng stood at the entrance, looking as if she had been waiting eagerly for a century. But when she saw me in the Lolita dress, her eyes looked like she wanted to eat me…
+Puede que se limitara a unas pocas personas, pero Gorilla Sensei seguía siendo bastante generoso. Incluso si fuera la variante de 'todo lo que puedas comer' por 2500 yenes, si los cinco lográramos buenos resultados en el torneo provincial, eso le costaría 12,500 yenes.
 
-“So… how is it?” I asked shyly. Although I felt quite cute myself, I still cared about what she thought of me.
+*Espera, ¿qué fue esa otra parte…?*
 
-I watched, wide-eyed, as she got a nosebleed… What the heck?
+"Gorilla Sensei, ¿cree que ganaré el torneo nacional?", le pregunté.
 
-“Ex-excuse me!” she quickly said.
+"¡Lo harás, si quieres que invite a Fún también!"
 
-I really can’t deal with her. I said, “Geez, what are you thinking about?” and went back into my room to get her a handkerchief. Ever since her only relative passed away three months ago, she hasn’t just been talking to me strangely and looking at me strangely, but the thoughts in her head are probably strange too.
+"…¡Sí, señor!"
 
-“We grew up together, how come you can’t control yourself just because I’m wearing a little Lolita dress today?”
+*No queda de otra, tendré que ganar el torneo nacional. ¿Podré hacerlo…? Supongo que tengo que esforzarme al máximo.*
 
-“You’ve worn the plain and simple Saintess robes almost your entire life, so…”
+"En fin, se está haciendo de noche, así que tened cuidado de camino a casa, vosotros dos", nos dijo Gorilla Sensei. "Aun así, supongo que necesitarían traer a todo un pelotón del ejército para derrotarte, Hino."
 
-“What the heck is ‘plain and simple’?” I shot her a reproachful glance. But she was right that I had worn the church robes for as long as I could remember. That’s why, after trying on various styles of women’s clothing recently, it felt like a door to a new world had opened…
+"No soy *tan* fuerte. Aun así, ¡gracias, instructor!"
 
-“Can I hug you?”
+"¡Muchas gracias!"
 
-Eek, what’s this? But since we’re “both” girls anyway, a hug doesn’t matter. I nodded, preparing myself to be embraced by her—wait! Why is she bending down?
+Rir y yo salimos de la escuela. El entorno estaba oscuro. Había una atmósfera agradable para caminar juntos a casa como pareja. Como algo que debería vivirse en la juventud.
 
-She hooked my legs, and before I could react, my feet suddenly left the ground. She had lifted me up completely.
+—Por favor, no te esfuerces demasiado, ¿vale, Shuu?
 
-“Hey, hey, hey? Wait, you didn’t say it was a princess carry!” My cheeks flushed crimson in an instant. I’m a boy! Being princess-carried by a girl! It’s too shameful…! This kind of role-reversal is not okay!
+—No lo haré, pero me aseguraré de que comas toda la carne que quieras. Paga el profesor Gorila.
 
-“I don’t care, y-you agreed anyway. I’ll carry you however I want.” She actually looked proud, as if she had accomplished something incredibly grand, which made me feel indescribably embarrassed…
+—¡Guau, gracias!
 
-What’s with this, a girl carrying a “girl”!
+Estuvo a punto de abrazarme del brazo... pero se detuvo. Parecía que no podía quitarse de encima la idea de que olía mal. Por eso, la atraje hacia mí a la fuerza.
 
-“You silly girl, put me down quickly!” I whispered, embarrassed.
+—¡Guau, el olor!
 
-“Saintess, please don’t move, be careful not to fall.”
+—¿El mío?
 
-What’s with this Prince Charming-like line…!? How… how come after putting on the Lolita dress, have I become even more submissive?
+—No, tu olor está bien, Shuu. Hablo de mí.
 
-“Trying to flatter me with formal titles won’t work either!”
+—Eres una chica superguapa, así que no me importa.
 
-“Let me just carry you to the living room like this.”
+—¡Guau...! —Se puso roja.
 
-“No—! I-I’m going to jump down, you know.”
+No entendía por qué un pequeño cumplido la hacía sonrojarse tanto después de todas esas cosas de adultos que hicimos en Anazumu... aunque era terriblemente linda.
 
-“Please don’t do that, it would be bad if you twisted your ankle. But… if you really do twist it, I’ll just carry you wherever you need to walk.”
+—L-lo siento, todavía estoy un poco sudada.
 
-I… was speechless. If I struggled in her arms, would I cause her to fall too? I hesitated, and in the end, I decided to indulge her just this once, letting her carry me for a short distance.
+—No me importa.
 
-“Put me down before we get to the living room, okay? I don’t want… anyone else to see,” I said in a small voice.
+Se aferró a mi brazo. A estas alturas, ya debería estar acostumbrado a sentir sus suaves pechos contra mi brazo... pero no. Por mucho tiempo que pasara, eso nunca parecía suceder.
 
-“Wouldn’t it be great if they saw? I’m declaring my sovereignty!”
+"¿¡Eh!?"
 
-“Who do you think you have sovereignty over…?”
+De repente, pareció notar algo y miró hacia atrás.
 
-Hmph, if I don’t teach this silly girl a lesson, she’ll get too carried away. I unleashed my ultimate move—the ponytail pull!
+—¿Qué pasa, Rir?
 
-“Ow, ow, ow…! Don’t grab my ponytail!” she cried out, her entire body going limp. I took the opportunity to slide out of her arms, landing safely on my feet.
+—Justo ahora, sentí como si hubiera alguien allí.
 
-Qifeng’s weakness is just too obvious.
+Miraba fijamente a un solo punto. Probablemente al darse cuenta de que lo habían descubierto, apareció un hombre sospechoso con una capucha negra.
 
-I returned to the living room. Lian Qi was sitting on the sofa, holding a teacup and staring at me without moving.
+—...No pensé que me notarías.
 
-“Is it nice?”
+—¿Por qué estás...?
 
-I placed my hands behind my back and gave her a shy smile.
+—¿De qué se trata esto? ¿Quieres algo? —exigí, dando un paso al frente e interrumpiendo a Rir.
 
-This is subtly different from a girl’s vanity. After all, I’m a boy. After putting on women’s clothes, I’m even more eager for others’ approval…
+De alguna manera, parecía que el hombre encapuchado estaba sonriendo.
 
-“I never thought it would suit you so well. It’s like I’ve opened a door to yet another new world in this otherworld.”
+—Vaya, tú eres Shuu, ¿verdad? Te recuerdo.
 
-Lian Qi took a sip of tea, a meaningful smile playing on her lips, which gave me a… bad premonition…?
+—...¿Y?
+
+—Ya eras varonil de niño, pero ahora pareces un guerrero curtido en mil batallas. Has crecido mucho.
+
+"¿¡Qué!?"
+
+Rir y yo intercambiamos una mirada momentánea. Si mi suposición era correcta, este era el tipo conectado con Anazumu que mencionó Kanata.
+
+—...¿Quién eres?
+
+—¿Quieres saber mi identidad? No te lo diré. Déjame preguntar a cambio: ¿esa chica es de Anazumu?
+
+—...Guau.
+
+Rir dio un respingo. Me coloqué de modo que ella quedara un poco detrás de mí y pudiera huir si fuera necesario.
+
+—Qué, no estoy tratando de comeros... Ya veo, probablemente eres de una de las tribus. Es raro que alguien de Anazumu venga a la Tierra. Puede que incluso seas la primera. Ese color de pelo, tu aguda percepción[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120028) y tus sentidos afilados... eres una mujer lobo, ¿verdad?
+
+—...¿Y-y qué si lo soy?
+
+—Hrm, parece que he dado en el clavo. Solo estaba adivinando.
+
+*¿Qué demonios le pasa a este tipo? ¿Está aquí para hacernos daño o no? Ugh, esto es frustrante.*
+
+—¿Pero qué demonios te pasa?
+
+—Hrm, no es el momento de que lo sepas. Puede que lo descubras cuando nos volvamos a ver... En cualquier caso, Shuu...
+
+El hombre encapuchado me estaba mirando fijamente... o eso parecía.
+
+—¿Y-y ahora qué...?
+
+—Parece que pasaste por una dificultad terrible. ¿Hubo algún momento en el que experimentaste una rabia ardiente?
+
+—...¿Qué?
+
+—No pasa nada si no lo recuerdas. Adiós, por ahora.
+
+El hombre encapuchado se desvaneció de una forma que debería haber sido físicamente imposible.
+
+—¿De qué demonios ha ido eso?
+
+"…Quién sabe. Más importante aún, no tienes por qué asegurarte de que yo pueda escapar. Estamos juntos en esto si algo sucede. En todo caso, debería ser yo quien actúe como cebo para darte a ti una oportunidad de huir…"
+
+"Rir, es el deber de un hombre proteger a la mujer que ama".
+
+"Shuu…"
+
+Ella, una vez más, se sonrojó adorablemente.
+
+**Notas:**
+
+1. En el original, esto es 気配への完治 ("restauración completa de/hacia indicación/pista"), lo cual es muy probablemente un error y debería ser 気配への感知 ("percepción de/hacia pistas"). 完治 y 感知 son homófonos.
 
 +++
 
-# **6**
+# **614 – ¿Qué está pasando?**
 
-Lian Qi drank her tea so calmly, completely unaware that her identity as a girl had already been seen through by Qifeng.
+"Ese bicho raro apareció ayer fuera de mi casa".
 
-Also… the tea she was drinking was the pot I had brewed before leaving in the afternoon; it was already completely cold. I really couldn’t do anything about her. She’s clearly a girl, yet she doesn’t like to drink hot tea. I’m just waiting for the day she comes to me clutching her stomach, asking for a sanitary pad…!
+"…Ya veo, así que a ti también te pasó, Shuu".
 
-But even so, I still took the teacup from her hand and brewed a fresh, hot pot of tea for her. I felt that letting her drink cold tea was a failure on my part as a maid.
+Ayer nos habíamos encontrado con el hombre de la capucha negra del que nos había hablado Kanata. Y, al parecer, no solo nos ocurrió a Mika y a mí, ya que Shuu y Rir también se tropezaron con él al caer la tarde.
 
-I also poured a cup for Qifeng and handed it to her. She blushed and thanked me. Was it because I looked cute brewing tea in a Lolita dress? It wasn’t just her; even Lian Qi watched me the whole time as I moved around in front of them in my little Lolita dress. Aren’t we all “girls”? Can there be attraction between members of the “same” sex?
+En este momento, estaba en la escuela dándole esta información a mi mejor amigo.
 
-Just then, the curtains were blown open by the wind, and a whirlwind swept into the living room. Sister Ejielia was back.
+"¿Qué te dijo?", preguntó Shuu.
 
-“Sister, here. Drink this while it’s hot.”
+"Bueno, más o menos que nos conoce. Y que lo más probable es que volvamos a verlo".
 
-I smiled and handed her a cup of tea.
+"Entiendo. Fue igual que la experiencia de Kanata; el tipo habló como si me conociera de cuando era niño. También adivinó por la apariencia y características de Rir que es una semi-humana".
 
-“Thank you, little sister. It’s quite cold outside. Eh…? You’re wearing…”
+"…Así que, además de conocernos a todos excepto a Rir, se dio cuenta de que ella es de Anazumu y no humana, incluso sin que sus orejas de animal y su cola estuvieran presentes".
 
-She paused for a full ten seconds, then a blissful smile spread across her face as she took a sip of tea.
+*Grml, no puedo recordar a nadie que encaje en esos criterios. Si ni siquiera Kanata, que puede recordar cosas de cuando estaba en el útero, reconoce a este hombre, entonces no hay forma de que nosotros lo hagamos.*
 
-“You really put it on.”
+"Oh, ahí están Rir y Mika…"
 
-“I couldn’t help it, every single one of you wanted me to wear it…” I said, scratching my cheek in embarrassment. That was a lie. It was my own secret desire to wear it, but I was blaming it on others. How shameless…!
+"Guau, es cierto".
 
-“How did I not notice before…”
+Parecía que estaban hablando de los eventos de ayer.
 
-“Not notice what?” I thought to myself. _Didn’t notice that I look good in a Lolita-style dress?_ Back in the day, my sister was a loli herself!
+"Y entonces, Ayumu se puso delante del hombre extraño, como para protegerme. ¡Se veía tan gallardo!"
 
-“Don’t take it off tonight, let me hold you while we sleep?”
+"¡Guau, Shuu hizo lo mismo! También me dijo que huyera si pasaba algo…"
 
-“Eh!?” My face instantly turned red. Does my sister see me as a doll?
+Parecía que estaban en un toma y daca, comparando cómo actuamos Shuu y yo en ese momento.
 
-“But I can’t sleep with clothes on,” I said weakly. When it came to sleeping, I still preferred the feeling of a thin silk nightgown gliding against my skin.
+"Bueno, eso es lo natural".
 
-“Fei’er,” Qifeng said bashfully, “It’s your birthday today, you know, I also want to be with you…”
+"Sí, completamente natural".
 
-I don’t know what you mean!
+Intentar proteger a tus seres queridos era obvio. Bueno, no es que el hombre hubiera mostrado indicios de atacarnos.
 
-“Why don’t you two play rock-paper-scissors to decide?” Lian Qi said, savoring her tea with great amusement.
+"…Por cierto, acabo de tener una idea sobre el hombre de la capucha negra".
 
-“Please consider the feelings of the person involved. Don’t use this as a bet.”
+"¿Guau?"
 
-I shot Lian Qi a reproachful glance. It was easy for her to talk. Just last night, she had experienced sleeping on the same sofa with me… and Sister Ejielia had also slept with me when we went to the hot springs. As for Qifeng, she had slept with me plenty of times when we were little!
+"Tal vez sea Lord Jizou… ¿no sería posible?"
 
-“Sister, were there any birthday gifts for me at home?” I asked, changing the subject.
+"¡Guau!"
 
-“There were. General ‘Crimson Flame’ Phylicia sent one for you from the northern battlefront. She didn’t know you were at Fontainebleau Manor, so it was sent directly to your house.”
+*¿Por qué nunca se me pasó ese pensamiento por la cabeza?*
 
-“Ah!? Sister Phylicia…!?”
+"Lo que acaban de decir Mika y Rir…"
 
-Hearing that name made me a little panicked. Even the thought of what kind of birthday gift she would send made me feel a little uneasy. Please… I hope it’s not something bizarre! To be honest, I’m a little scared of her… mainly because she can be a bit strict with me in certain aspects, not as tolerant as Sister Ejielia.
+"Lo escuché. Parece posible", asintió Shuu. "Ese dios… si es que puedes llamarlo así… os envió a ti y a Mika a Anazumu. Si nos ha estado vigilando desde que éramos niños, tendría sentido que nos conozca".
 
-“The northern battlefront? Your country is still at war?” Lian Qi asked.
+"¡Tienes razón, es eso! ¡Contactaré con Kanata!"
 
-“Yes. Although they call themselves a rebel army, to us, they are nothing but traitors. Their numbers are around one million.”
+La hora de tutoría aún no había empezado, así que probablemente no habría problema si lo contactaba. Usé la aplicación de mensajería para enviarle información sobre la teoría de Mika y el encuentro de Shuu. La respuesta llegó casi al instante.
 
-“Eh? Your queen doesn’t seem like a tyrant. I’m surprised someone would want to overthrow her.”
+⟦Yo también tuve ese pensamiento.⟧
 
-“Of course not…! Sister Tristine is no tyrant…!” I blurted out without thinking.
+⟦¿Ah, sí?⟧
 
-Even as the Saintess, I couldn’t find it in my heart to tolerate those who slandered Sister Tristine.
+Es cierto, habría sido más extraño que al genio no se le hubiera ocurrido antes. Fue otra derrota para mí como su hermano mayor. En cualquier caso, nunca lo había mencionado en nuestras charlas...
 
-“That’s a problem left over from the previous king’s era. The rebels probably think the new queen is inexperienced and that this is a once-in-a-lifetime opportunity,” Sister Ejielia said.
+⟦Cierto. Pero eso no puede ser verdad.⟧
 
-“I never thought your world had so many internal and external troubles. Not only a Demon King, but rebels too.”
+⟦¿No puede ser?⟧
 
-“General Phylicia is stationed at the northern battlefront, you don’t need to worry about it,” Sister Ejielia said, taking a gift box from under her robe and handing it to me. I took it; it felt cold in my hands.
+*Entonces, ¿está mal? La teoría de Mika parece bastante sólida... Me pregunto qué tiene de malo.*
 
-“I wonder what’s inside,” I said uneasily.
+⟦¿Miau por qué piensas eso?⟧
 
-“Wait… Fei’er, step back. Considering it’s a gift from General Phylicia, it might be some kind of prank. I’ll open it for you.”
+⟦Miau por qué, preguntas... Mira, ¿no parecía ese hombre impresionado de que hayamos crecido tanto?⟧
 
-I swallowed nervously and hid behind my sister.
+⟦Oh, miau que lo dices.⟧
 
-My sister didn’t open it with her hands either. Instead, she used her manipulation magic to untie the ribbon from a distance. The moment the box opened, a thick white smoke billowed out, which really startled me…! After the white smoke dissipated, a white crystal was revealed at the bottom of the box—no, it was a block of ice.
+⟦...¿Podríamos dejar ese lenguaje gatuno tan raro?⟧
 
-“It’s unmeltable ice from the permafrost,” Sister Ejielia recognized it at a glance.
+⟦Lo siento.⟧
 
-“Ah…” I breathed a sigh of relief.
+Solo estaba bromeando un poco, pero fue suficiente para que perdiera los estribos. Hmph. En cualquier caso, quería saber su razonamiento.
 
-“Look, there’s a butterfly inside the ice,” the sharp-eyed Qifeng reminded us. I leaned in to take a look, and there really was a colorful butterfly frozen inside the block of ice, perfectly preserved, as if it had been frozen in an instant while fluttering.
+⟦Solo este año, visitamos la estatua de Jizou varias veces, ¿no? Incluso antes de que nos enviara a Mika-nee y a mí a Anazumu. Si pudiera vernos aquí y allá... ¿por qué lo diría de esa forma tan extraña?⟧
 
-“It’s like amber, but it’s ice, not resin.” Lian Qi was quite curious about this gift. Could it be that her world didn’t have this?
+⟦Hrm, si lo miras de esa manera.⟧
 
-“Little sister, for General Phylicia to put so much thought into sending you this, it’s truly like the sun rising in the west.”
+El hecho de que mi hermano se hubiera dado cuenta de eso era una prueba de su inteligencia.
 
-“Yes, I’m quite surprised too…”
+⟦¿Y eso significa...?⟧
 
-“How many years has this butterfly been frozen? Could it be like an amber fossil, frozen for a hundred million years?” Lian Qi asked curiously.
+⟦Bueno, hasta ahí llegué.⟧
 
-“That’s hard to say.”
+⟦Entiendo... Siento haberte enviado un mensaje de repente.⟧
 
-I smiled at Lian Qi.
+⟦Miau, no pasa nada.⟧
 
-“You’re an otherworlder and don’t know much about our world. Actually… most of our world is covered in permafrost. There are many prehistoric creatures frozen in the ice.”
+*Puede que parezcamos chicas, pero seguimos teniendo esos tira y afloja típicos de hermanos. Aunque quizá solo seamos nosotros. En fin, como esa teoría parece ser un fracaso, tendremos que empezar de cero.*
 
-“Eh? Is your planet that cold? To be mostly covered in ice? My original world is mostly ocean.”
+"¿Qué dijo Kanata?"
 
-“Planet…?”
+"Dijo que, aunque hemos estado en la estatua hace poco, el hombre habló como si nos viera por primera vez en una eternidad, así que probablemente no sea el Señor Jizou".
 
-“Yeah, your world is round like the crimson moon in the sky. Maybe if you looked from the crimson moon, your world would be a white planet.”
+"Hah, tiene sentido. Y yo que pensaba que la idea de Mika era lógica".
 
-“_That person_ said something similar…” I mumbled.
+"Es raro que ella, con su precognición casi psíquica, se equivoque. De todos modos, parecen estar muy metidos en el tema, así que quizá deberíamos decírselo".
 
-“Ahem, let’s not talk about that for now.” As soon as _that person_ was mentioned, Sister Ejielia cut me off. “Besides the birthday gift from General Phylicia, there’s another birthday gift that I’d like to know who sent you.”
+"C-Cierto".
 
-“Eh? There’s another gift?”
+Shuu y yo les dimos a Mika y Rir la explicación que en realidad no explicaba gran cosa. Las dos pasaron de la emoción al desánimo.
 
-Sister Ejielia didn’t deny it. With a gentle wave of her magic robe, a glittering golden throne materialized in front of me. It wasn’t very large; I could just fit on it. If a boy were to sit on it, it would probably feel cramped, right? No, no… aren’t I a boy…
+"...Bueno, pensándolo bien, tiene sentido que a Kanata ya se le hubiera ocurrido lo mismo".
 
-My mouth fell open slightly in surprise. Unlike the golden table and chairs in Cardinal Rodrigo’s house, the style of the throne before me was very rough and unrefined…
+"Guau. Entonces, ¿qué está pasando realmente?"
 
-Sister Ejielia looked at me, pointed at it, and said—”This thing was made by piling up countless gold coins into the shape of a throne, and then forged with a single breath of dragon fire. Fei’er, I want to know who sent this to you.”
+"...¿Quién sabe?"
+
+No teníamos ni idea. No podíamos ni empezar a adivinarlo. Dado que el único que encajaba un poco en esos criterios era el Señor Jizou...
+
+"Siéntense, la clase va a empezar. Hoy las clases también durarán solo cuatro horas".
+
+Era la hora y el profesor había entrado en el aula. Fuimos a nuestros sitios de siempre y no nos quedó más remedio que estrujarnos el cerebro. Bueno, Kanata probablemente idearía algo.
 
 +++
 
-# **7**
+# **615 – El Torneo Prefectural de Judo – 1**
 
-When Sister Ejielia mentioned it was forged with dragon fire, I realized who sent this golden throne…
+Durante los cuatro días siguientes, seguí dándole vueltas a la identidad del hombre de la capucha negra en algún rincón de mi mente, pero no se me ocurrió nada, así que desistí hasta que encontráramos una pista.
 
-Around this time last year, a young red dragon who claimed to be a hundred years old was freeloading at my house. After finding out it was my birthday, she beat her flat chest and promised to give me a grand gift next year.
+Más importante aún, hoy era el torneo prefectural de Shuu. La parte por equipos, para ser exactos. Si ganaban eso, el torneo provincial sería el siguiente, y después el nacional. Llegar solo al torneo nacional ya era un logro increíble.
 
-Mm~ I still remember her name, Yuganalia.
+*¡Pero tengo fe en que Shuu puede ganarlo!*
 
-So… this throne made of piled-up gold coins is the so-called grand gift…?
+"¡Guau, han venido todos a animar!"
 
-I can’t even bear to look at it.
+"¡Oh, Rir!"
 
-From my human perspective, that creature is an out-and-out fetishist. She even likes to sleep on piles of treasure, so it must be her.
+Llevaba puesto un uniforme de judo que le sentaba bastante bien. Se podían notar sus pechos grandes a través de la fina tela. Seguramente esto hacía que a los otros miembros del club les resultara difícil mirarla. O tal vez ya estaban acostumbrados a estas alturas.
 
-But, but… there’s a generation gap between species…! Just because you like sleeping on gold doesn’t mean I like sitting on it!
+Aun así, el único con el privilegio de hacer realmente lo que quisiera con ella era Shuu, esa mole de músculos también conocido como mi mejor amigo. Probablemente la gente le tenía envidia. Yo no, por mi parte, tenía a Mika.
 
-Faced with Sister Ejielia’s questioning, I answered weakly, “Sister… actually… it’s from a friend I haven’t seen in a year. She’s a girl—!”
+"¡Cuando hablé con Gorilla Sensei, me dijo que podéis mirar desde los asientos de cerca! Os enseñaré el camino".
 
-I emphasized the gender at the end because I was worried my sister would misunderstand and think some boy was pursuing me or something… and had thrown money at me to send such a thing. Whoa… can someone please help me move this thing away…! Having it here makes me look so materialistic…!
+"¡Gracias!"
 
-“Oh, as long as it’s a girl.”
+Los cuatro la seguimos hasta los asientos reservados para el club de judo y los familiares que venían a animar al equipo. El ambiente aquí era estupendo.
 
-Listen to my sister’s tone, as if a heavy weight had been lifted from her heart. “As long as it’s a girl” sounds so strange… Could it be she’s afraid I’ll be snatched away by a man?
+"¡Gorilla Sensei! ¡He traído a las animadoras!"
 
-How is that possible—! I’m a boy.
+"Oh, Joujou y Magarigi. Y vuestros hermanos menores. Podéis sentaros aquí".
 
-“Little sister, I don’t want to interfere with you making friends, but I’m worried about you. You’re still young, only fifteen. You must be careful when you meet strangers,” Sister Ejielia said to me earnestly.
+Nos sentamos en el lugar que el instructor nos indicó.
 
-What’s with my sister… I was originally going to tell her about my friendship with a dragon, but the words died in my throat. What’s the deal? As long as it’s a girl, there’s no need to ask questions?
+"Al verte de nuevo queda claro por qué la gente empezó a llamar a Hino el Rey del Harén".
 
-“Mm…” I smiled. Just then, Lian Qi came to my side and said, “Alright, alright, it’s past midnight. Happy birthday, Fei’er. Let’s get ready to cut the cake.”
+"Je, je, je, ¿lo hacen?"
 
-Actually, midnight means my birthday is already over… but that’s okay. I thought Lian Qi was coming to smooth things over for me, but instead, she grabbed my hand and dragged me to the throne…
+"Sí, con Fun en el grupo, ahora está rodeado de cinco bellezas..."
 
-“Let’s have the birthday girl take her seat~!”
+"¡S-Soy un chico!", protestó Kanata, el segundo más varonil de nuestro grupo después de Shuu.
 
-“Eh, eh, eh? No, no—! I don’t want to sit on it!”
+Esto era lo habitual. Ahora que lo pienso, dentro de dos años, Kanata estaría bajo el cuidado de Gorilla Sensei, aunque solo fuera para las clases de judo.
 
-Just looking at the golden throne in front of me felt like sitting on pins and needles. Since it was forged with dragon fire, the seat wasn’t flat, and there were even a few bent, upside-down gold coins on the surface… which made me shudder. If I really sat on it, my butt would be done for!
+"¿Qué, eres un chico?"
 
-It’s too terrifying! You can’t trick me like this! Lian Qi deliberately held onto me, and I refused to move, staying rooted to the spot. We were at a standstill. I had originally turned to Qifeng for help, but I found that even Qifeng was covering her face, unable to look. We had just taken down a cardinal for hoarding gold, and now I was receiving a throne made of gold for my birthday… It was so tactless…
+"¡Sí, soy el **hermano** menor de Joujou Ayumu!"
 
-“Spare me…! Please, someone help me move it away!”
+"Vaya... sí que sois una pareja de hermanos extraña".
 
-I never thought such a strange gift would become a running joke at my birthday party…
+"Ja, ja, ja, la gente suele decir eso".
 
-This Lian Qi was deliberately bullying me. Relying on her status as the child of prophecy, she dared to mess with me so brazenly in front of Ejielia and Qifeng. Hmph! I’m really speechless. That girl has no sense of propriety…! Messing around with a “girl” like me… who would believe she was a boy—? I even suspect Sister Ejielia might have figured out she’s a girl too and just hasn’t said anything. Otherwise, she wouldn’t have such an amused look on her face.
+Realmente lo decían, y estaba claro por qué ocurría.
 
-“To… day… is my… birthday…!”
+A continuación, Gorilla Sensei centró su atención en Sakura.
 
-I had to play this card. Fortunately, Lian Qi let me go after hearing it. I sat on the ground in a sorry state, rubbing my eyes, on the verge of tears.
+"¿Oh? Siento que te conozco de alguna parte..."
 
-“Can I eat the cake now…?” I asked pitifully.
+"Ah, probablemente haya visto a mi hermana menor en la televisión".
 
-“Alright, I was just teasing you,” Lian Qi said, helping me up. She still had some conscience left.
+"¡Ah, es verdad! ¡Ese programa sobre la chica ciega y su genio amigo de la infancia...! Me alegro de que hayas recuperado la vista, de verdad... *snif*... de verdad me alegro..."
 
-We gathered around the birthday cake. Qifeng opened the box, and Sister Ejielia lit fifteen candles for me. The birthday cake was personally made for me by Qifeng. I originally thought she had official business today and wouldn’t come to celebrate my birthday. But, when I learned that she had been standing at the door waiting for me until late at night with the cake in her hands, I was truly moved…
+"G-Gracias".
 
-“Little sister, make a wish before you blow out the candles.”
+*Vaya, ¿es Gorilla Sensei fan de este tipo de programas de televisión? Qué inesperado.*
 
-Sister Ejielia placed the elven laurel that Sister Mouyue had given me on my head. It actually matched my Lolita outfit quite well. Then I heard Lian Qi interject—”Eh? You guys don’t sing the happy birthday song in your world?”
+"¡¿Entonces eso significa que el hermano menor de Joujou es ese niño prodigio?! Qué pequeño es el mundo".
 
-“Is there a happy birthday song in the other world? Why don’t you sing it for me?”
+"Estoy bastante seguro de que mostraron su apellido en los subtítulos en algún momento..."
 
-“Singing it all by myself is too embarrassing. Ahem, pretend I didn’t say anything…” she said, blushing and stammering. At that moment, I had successfully fought back, and I couldn’t describe how happy I felt!
+"No recuerdo esos detalles".
 
-I closed my eyes, made a wish, and then blew out the candles—eh? Wait… why is there still one left lit? So I blew again. I couldn’t even blow out all the candles at once, it was pathetically weak of me…
+*Parece que no prestó mucha atención mientras lo veía. Sí, eso encaja.*
 
-“Fei’er, what did you wish for?” Qifeng asked with a smile.
+"...Eso me recuerda, vosotros dos sois actualmente estudiantes de segundo año de secundaria, ¿verdad? ¿Asistís a la sección de secundaria de nuestra escuela?"
 
-“Mm… I wished for world peace, and for the war in the north to end.”
+"Sí, así es", respondió Kanata.
 
-Also… I was a little greedy and made two wishes. I also wished for Lian Qi to defeat the Demon King soon~!
+"Como eres el hermano menor de Joujou, estoy seguro de que te unirás al..."
+
+"Ah, lo siento. Estoy bastante ocupado, así que probablemente no tendré tiempo para unirme a un club".
+
+"Y-Ya veo".
+
+El corpulento profesor se desinfló. Resultaba bastante cómico.
+
+"D-Dejando eso de lado, ¿no deberían llegar ya los otros miembros del club? No serán solo los amigos de Hino, sino que también vendrán otros miembros del club a animar, ¿verdad? Aunque incluso si solo vosotros, Joujou y Magarigi, los animarais, estoy seguro de que su moral subiría por las nubes".
+
+"¡Claro, animaré con todas mis fuerzas!", respondí.
+
+"¡Yo también!", asintió Mika.
+
+*Aunque es posible que, al igual que en el torneo regional, ni Shuu ni el vicecapitán Gouda tengan oportunidad de lucirse hoy. Bueno... no me imagino que sean tan dominantes durante el torneo de la prefectura.*
+
+—Oh, por fin han llegado.
+
+Gorilla Sensei giró la cabeza. Allí estaban entrando los miembros del club de judo de nuestra escuela. Shuu iba al frente, formando la vanguardia con los otros miembros que participarían en el torneo.
+
+—Todo listo, Gorilla Sensei. Podemos irnos en cualquier momento.
+
+—Bien, Hino. Tus amigos han venido a animarte.
+
+—Ya lo veo. Gracias a todos.
+
+—¡Claro, lo prometimos!
+
+La expresión de Shuu era inusualmente aguda, lo que le hacía parecer bastante guapo. Si yo fuera una chica, podría haberme enamorado de él. Rir de hecho le miraba fijamente a la cara. Cuando se dio cuenta, fue a acariciarle la cabeza con una sonrisa amable.
+
+—Gorilla Sensei, ¿han venido a animar al jefe del club?
+
+—Sí, estoy seguro de que ya los habéis visto antes.
+
+Los miembros del club centraron su atención en nosotros. Entonces, sus ojos brillaron.
+
+—¡Vaya!, ¿¡en serio!? ¿¡En serio!?
+
+—¡Son Ali y Mika! ¡Wooo!
+
+—¿Qué, habéis venido a animarnos? ¿¡De verdad!?
+
+Así fue como ocurrió. Los chicos generalmente solo actuaban así cuando se trataba de Mika y de mí. Aunque recientemente, eso empezó a extenderse también a Rir y, según Kanata, también le pasaba a Sakura con los de secundaria desde que dejó de usar sus gafas. Éramos como ídolos de pleno derecho en este punto.
+
+—¡Eh, oh! ¿¡No salisteis vosotras dos en ese documental!?
+
+—¡Ahora que lo dices, tenían los mismos apellidos que Ali y Mika! ¡Nunca me di cuenta!
+
+—¡Estoy, estoy tan feliz de que puedas volver a ver!
+
+Efectivamente, definitivamente trataban a Sakura de la misma manera.
+
+—Con unas invitadas tan ilustres y Fún, que está aquí para animaros como siempre, estoy seguro de que no meteréis la pata, ¿verdad?
+
+"""¡No lo haremos!"""
+
+Gorilla Sensei había logrado subirles la moral con destreza.
 
 +++
 
-# **8**
+# **616 – El Torneo de Judo de la Prefectura – 2**
 
-I finally got to eat the birthday cake to my heart’s content, and the best part was that Qifeng made it for me herself. To be honest, I never thought she had the ‘kitchen maid’ attribute. In all the time I’ve known her, I’ve basically been the one cooking for her—wait, doesn’t that mean I have the ‘kitchen maid’ attribute…? Ahem, I’m a boy.
+Mientras hablaba con Shuu, un miembro del club de judo se nos acercó.
 
-In any case, it must have been difficult for Qifeng to secretly learn how to bake a cake.
+—¡Jefe del club!
 
-After eating the cake, it was almost one in the morning. Qifeng and Sister Ejielia both decided not to go back and to stay the night here. So, I arranged rooms for them.
+—Oh, él es nuestra vanguardia, Hoshino.
 
-“Um… um… can I borrow your nightgown?” Qifeng asked bashfully, blocking my doorway.
+—¿En serio?
 
-She was another person who couldn’t sleep without changing into a nightgown, just like me. I couldn’t bear to let her sleep naked, so of course, I chose to lend her one.
+Era el único de primer año en el equipo de Shuu. Pero aunque era más joven que yo, se veía increíblemente corpulento.
 
-“Wait a moment.” I turned back into the room and randomly picked out a white nightgown from the closet to lend her. She said thank you, her face flushed as if she were tipsy, and she held my nightgown up to her nose and sniffed it. I witnessed this scene. May I ask what the area of my psychological shadow is?
+—¡P-Pequeña Ali[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120136)! ¡E-Es un honor hablar contigo!
 
-“Fei’er’s scent is so nice.”
+—No hace falta ser tan formal. No soy nadie especial.
 
-“That’s the smell of laundry detergent.”
+—¡N-No, eres la estrella de nuestra escuela!
 
-I was at a loss for words. Please don’t say such strange things in front of me! You can say whatever you want when you go back to your room, I won’t hear it.
+Cierto es que la gente tendía a tratarme como a una princesa o una ídolo. Aunque oírlos hablar así todavía me resultaba incómodo.
 
-“Ehehe~ I’m not planning on returning this nightgown.” She gave a shy smile, turned, and ran off. I was powerless to stop the blatant thief who was stealing my sleepwear, letting her disappear into the dark corridor.
+—En cualquier caso, ¡da lo mejor de ti durante la competición por equipos! ¡Estaré apoyándote!
 
-“If you all take my nightgowns, what am I supposed to wear? Idiot—!”
+Usando las habilidades que cultivé en Anazumu para cautivar a aquellos que ya estaban encaprichados conmigo, tomé ligeramente su mano con las mías y le dediqué una sonrisa. Todo era para animarlo.
 
-I’m so mad.
+—¡L-L-L-Lo daré todo! —proclamó con la cara roja como un tomate.
 
-I returned to my room helplessly.
+*Espero que ganen el campeonato.*
 
-Lian Qi had already washed and returned the nightgown I had lent her when she got soaked. But I’d feel strange wearing it again. It would be embarrassing to wear something she’s worn… After all, there’s a difference between boys and girls.
+—Oye... no vayas seduciendo a mi junior, ¿me oyes? —Shuu, que había visto toda la escena, me reprendió.
 
-“Phew~ I’m so tired today~”
+Me di un golpecito ligero en la cabeza antes de sacar la lengua.
 
-I threw myself onto the bed. I was a little reluctant to take off the Lolita dress. I felt like sleeping in it…
-
-…
-
-…
-
-…
-
-I opened my eyes to a beautiful ceiling.
-
-It was already morning. Being attacked by _that person_, celebrating my birthday—that was all yesterday’s business.
-
-Great~! Today, I have to be full of energy—oh, right! I sat up in bed, suddenly remembering that I hadn’t told Sister Ejielia about Lian Qi wanting to learn magic yet.
-
-Lian Qi wasn’t just curious. She genuinely wanted to become stronger to defeat _that person_, which is why she wanted to learn magic!
-
-After washing up, I hurried out of my room. As the maid, I should have been the one preparing breakfast in the morning, but Sister Ejielia was already in the kitchen frying steak. I watched as the steak and plates flew through the air. My sister’s manipulation magic was truly masterful… I couldn’t help at all. She said she wanted to show off her skills, but she probably just didn’t want me to get tired…?
-
-So, the morning steak was warm and exceptionally delicious.
-
-After breakfast, we returned to the living room, and I told my sister about Lian Qi wanting to learn magic.
-
-“Is that true???” My sister put down her teacup excitedly. “You really want to defeat _that person_????”
-
-“Mm.” Lian Qi nodded blankly. My sister shot me a grateful look, as if she thought it was all thanks to me being by her side and supervising her that the Hero had finally come to her senses and gotten on the right track.
-
-Actually, I didn’t really do anything. If I had forced her to defeat the Demon King, it probably would have just made her rebellious. I only took her out for a walk, to get to know our world. I used a gentle approach to let her integrate into our world. I never expected that we would be attacked by _that person_ on our first outing, and as a result, she said she developed a desire to protect me…
-
-I… I don’t know if this counts as a honey trap? I could almost see Queen Tristine taking a sip of tea and saying with a dark smile, “Isn’t that the duty of the Saintess?”
-
-Whoa…! Thank the Holy Light, Lian Qi is a girl!
-
-“The Demon King must have transmigrated many years before me, right? Her magic must have reached its peak by now. I don’t know if it’s too late for me to start learning now…” Lian Qi said with some uncertainty.
-
-Sister Ejielia rushed over and placed her hands on her shoulders, saying ecstatically, “It’s not too late! _That person_ also started as a magic apprentice and became stronger step by step. We were even classmates back then. Don’t worry! I’ll teach you everything I know!”
-
-I gave a reminder—”Sister, Lian Qi’s magic has already awakened. Why don’t you let her show you?”
-
-“It’s awakened so soon!?” My sister gave me another approving look. I felt a strange sense of embarrassment, as if I had done something to facilitate it…
-
-Then, Lian Qi did as I said and released her magic. A thin layer of red magic covered her entire body.
-
-“Crystal Red!?”—Qifeng, who had just returned from washing the dishes, was shocked to see this. You have to know, Qifeng had been cultivating magic for several years to reach the Crystal Red level, which was already quite remarkable.
-
-It wasn’t just Qifeng; even Sister Ejielia, the principal of the Magic Academy, looked surprised.
-
-“To skip two levels on the first awakening, directly to… the third tier?” my sister said to herself.
-
-“It seems you really are the child of prophecy.”
-
-“Eh? Is it that rare to have a Crystal Red first awakening?” Lian Qi looked a little embarrassed.
-
-“It’s very rare, but not completely unheard of. The only person I know who reached Crystal Red on their first awakening was the Demon King.”
-
-“Ah?” Lian Qi was slightly stunned.
-
-I smiled in satisfaction. That’s why my sister said Lian Qi was truly the child of prophecy.
-
-“You guys keep talking about _that person_, _that person_—is the Demon King a man or a woman? I don’t even know.”
-
-“A woman.” “A girl, I think…”
-
-Sister Ejielia and I spoke in unison, then looked at each other.
-
-“When we were at the Magic Spire, we lived in the same dormitory and changed clothes together. She’s definitely a girl, it’s just that…”
-
-“Mm, but she said she was a boy before she transmigrated. I don’t believe it, anyway,” I said, picking up where Sister Ejielia left off and smiling at Lian Qi.
-
-+++
-
-# **9**
-
-“Eh? People really do gender-swap after transmigrating in real life?” Lian Qi said in surprise.
-
-“She only started saying things like that after she fell into the abyss of magic and went mad. You don’t have to take it seriously,” Sister Ejielia said with a wave of her hand, turning her back to us and walking towards the door. “Follow me. I will now guide you in the mysteries of magic.”
-
-Even though she wasn’t guiding me in magic, I was still excited. The moment had finally arrived, right? Seeing Lian Qi willing to improve for my sake made me so happy.
-
-After leaving the house, Sister Ejielia chose an open lawn, stopped, and turned to face Lian Qi. Qifeng and I watched from the side.
-
-I secretly glanced at Qifeng and whispered to her, “Ahem, where’s my nightgown? Remember to wash it and give it back to me.”
-
-“But I can’t bear to wash it, because it has your scent…” she said, her face flushed as if she were tipsy.
-
-“I told you, that’s laundry detergent…!”
-
-I was so helpless. How could Qifeng say such things in broad daylight? How could she be in a state as if she’d been drinking when she hadn’t? Does my nightgown contain alcohol? Really… it’s a good thing Lian Qi didn’t hear, otherwise, I don’t know what she would think of us.
-
-“Um…”
-
-Lian Qi looked around and said.
-
-“You said you were going to guide me in magic, but there’s no blackboard here.”
-
-“We don’t need a blackboard right now. Let’s go straight into practical combat,” Sister Ejielia said lightly.
-
-“Eh???”
-
-Then, my sister calmly released her magic. A thin layer of deep purple magic covered her body. It was much gentler than when she fought _that person_ last night, but the aura still blew the small blades of grass at her feet sideways.
-
-“Pur…ple magic…?” Lian Qi revealed a trace of surprise. She probably hadn’t seen it before, right? The way other people release their magic.
-
-“Don’t pay too much attention to the color of your opponent’s magic. In a real battle, it will affect your performance. For example, if you’re at the Crystal Red level and you encounter an opponent one level lower at the Crimson Gold level, you might get careless. If you encounter an opponent one level higher at the Star Blue level, you’ve already lost in terms of morale before the fight even begins. In fact, the color of magic only represents how close you are to the abyss of magic. There are many external factors that truly affect the outcome of a battle.”
-
-Lian Qi nodded. “I understand.”
-
-“Now, don’t mind the color of my magic. Just look at the appearance. What’s the difference between it and yours?”
-
-“The form seems to be the same.”
-
-“When you first awaken your magic, it’s in an unstable, eruptive state. The first step is to learn how to stabilize the magic on your body, just like you and I are doing now. It’s like your body is covered by a thin shield. This state is called ‘Magic Weave’.”
-
-“Understood, Magic Weave.”
-
-“When did you master Magic Weave?” Sister Ejielia asked.
-
-Lian Qi turned her gaze to me, and I quickly answered for her, “It was… a few minutes after she first awakened her magic? I just read the contents of your ‘Magic Grimoire’ to her once, and she… learned it.”
-
-Eh? I noticed a subtle change in my sister’s expression.
-
-“Is that so… almost no one can learn Magic Weave in such a short time, let alone by self-study. You’re quite a monster, and I mean that as a compliment.”
-
-“Even if it’s a compliment, I don’t want to be called a monster,” Lian Qi protested under her breath.
-
-“Now, watch closely. This is the advanced version of Magic Weave—”
-
-One second, my sister was calm and composed. The next, a powerful surge of magic erupted from her body! With a loud “bang,” even the ground beneath her feet sank by a foot. And the magic covering her body, which was originally just a thin layer, not only expanded several times but also turned into purple lightning that coiled around her.
-
-“Whoa…” Lian Qi exclaimed.
-
-“When you need to go all out, your magic will be released at maximum power like this. Of course, the consumption will also be several times faster. In short, Magic Weave is about wrapping magic around your body to protect you, increasing your defense while also boosting your strength.”
-
-Hearing my sister say this reminded me of that unbearable night. Lian Qi actually used Magic Weave to press me down… As a girl, how domineering can she be?
-
-“Of course, Magic Weave uniformly enhances your entire body’s defense and strength. You can also focus your magic on a single point, like this.”
-
-As my sister spoke, she raised one hand. After concentrating the magic in her hand, the layer of magic covering it was no longer transparent; its texture seemed to have solidified.
-
-“This state is called ‘Magic Armament’. Like ‘Magic Weave’, it’s a fundamental of the fundamentals, and it’s the next skill you need to master.”
-
-“Concentrate magic on one point?” Lian Qi stared at her own hand thoughtfully. “Can I concentrate it on any part of my body?”
-
-W-wait a minute—!
-
-At this moment, I was sweating cold bullets deep down. If Lian Qi learned ‘Magic Armament’, which concentrates magic on a single point, wouldn’t I be even more helpless when she bullies me in the future…?
-
-“Of course. To help you master the skill of controlling magic more quickly, let’s have a practical battle—?”
-
-My sister’s gaze shifted to Qifeng, who was standing beside me. She pumped her fist and said—
-
-“Qifeng, the Hero is at the same Crystal Red level as you. Why don’t you two have a duel?”
-
-“Me????” Qifeng pointed at her own nose, a dumbfounded look on her face.
-
-+++
-
-# **10**
-
-Qifeng was called out? I saw her point at her own nose, a dumbfounded look on her face.
-
-“Me????”
-
-“That’s right, you! Come over and have a spar with the Hero!”
-
-Sister Ejielia made a fist-pumping gesture of encouragement. I noticed that ever since Lian Qi decided she wanted to defeat _that person_, my sister has become much more cheerful. Thinking back, when I was little, my sister was a very sunny person. I often saw her fooling around with _that person_. I heard they were even called the ‘Loli Duo of Destruction’ at the Magic Spire…?
-
-Now she’s grown into a young woman, but why hasn’t _that person_ changed at all?
-
-“Fei’er.”
-
-“Mm… huh?”
-
-“Who do you want to win, me or the Hero?”
-
-…
-
-Silly girl, giving me such a difficult question so early in the morning.
-
-“Regardless of the outcome, I don’t want you to get hurt,” I answered with a smile.
-
-Qifeng…
-
-There she goes again, stroking her own cheek with a blissful expression.
-
-“Just hearing you say that is enough for me.”
-
-I gave a weak smile. If my words really carried that much weight, you’d have returned my nightgown by now.
-
-“Then let’s fight—!”
-
-Qifeng stood where Sister Ejielia had been, clapping her fists together, a fiery look on her face.
-
-“I won’t let you take Fei’er from me!”
-
-What kind of declaration is that—!
-
-My sister returned to my side and said softly, “It’s fine. Qifeng was a top student in her class.”
-
-“I’m not worried about Qifeng, I’m worried about the Hero…”
-
-Just listen to Qifeng’s declaration. That’s no ordinary spar; it’s turned into a duel with something at stake! It feels like two girls are dueling over me…
-
-“It’s fine. Qifeng’s magic leans towards support, so she’s a suitable opponent for the Hero.”
-
-Even if my sister says so… I still can’t rest easy. I’m not biased towards anyone, but compared to Qifeng, Lian Qi is still a novice. She hasn’t even learned any magic yet.
-
-Meanwhile, Qifeng and Lian Qi stood face to face, both releasing their red magic at the same time. They looked evenly matched, giving off the air of a duel between experts.
-
-“So… who goes first?” Lian Qi asked.
-
-“…What?”
-
-I saw the poised and ready Qifeng look surprised for a moment. Who asks that kind of question during a duel?
-
-“Of course I’ll give you the first move. You’re still a novice, after all,” Qifeng said to Lian Qi.
-
-“I don’t need you to let me win. Let’s decide with rock-paper-scissors.”
-
-And then, those two actually played rock-paper-scissors, and even tied twice without a winner…
-
-“Hehe, I win!”
-
-In the end, Qifeng threw scissors, and Lian Qi threw paper.
-
-“Then I’m coming.”
-
-Qifeng threw a punch covered in magic—
-
-Eh??? Then I saw something astonishing—Lian Qi grabbed her punching arm and threw her to the ground. The entire process was fluid and seamless.
-
-No way? Is this really the same Lian Qi who messes around with me all the time?
-
-“Qifeng! You’re letting your guard down against an otherworlder???” My sister watched with her arms crossed.
-
-“Tsk!” The moment Qifeng hit the ground, she pushed off with one hand and jumped away.
-
-“It would be great if _that person_ would also let her guard down against Lian Qi,” I said weakly.
-
-“Impossible. They’re both otherworlders. When Xubai sees her, it’s like seeing her past self. How could she possibly let her guard down against her past self?”
-
-“That’s true,” I whispered. “Lian Qi absolutely cannot meet _that person_ until she’s grown strong enough.”
-
-“Yeah. I’m hoping she’s the Transmutation type, with the potential for fighting above her level.”
-
-Speaking of the Transmutation type… isn’t Qifeng one?
-
-I saw Qifeng swing at Lian Qi several times, but Lian Qi dodged them all…
-
-“Lian Qi, you’re… so amazing. Are other worlds really full of warrior races?” I asked weakly.
-
-“I learned a bit of hand-to-hand combat in my original world,” Lian Qi answered during a lull. “But I didn’t have enough strength to deal with bad guys. Coming to your world, the boost from magic has allowed me to use it properly.”
-
-“So that’s how it is.”
-
-No wonder I was so easily pinned down by her multiple times. Her technique and explosive power are both very strong.
-
-But… in her original world, Lian Qi not only had to experience devilish training like being flipped upside down, weightlessness, and acceleration, but she also had to learn hand-to-hand combat. That organization she was in, called ‘Zhenguang Fuzhong’, sounds terrifying.
-
-“Qifeng! Can’t you be a little more serious!” Sister Ejielia shouted with her arms crossed.
-
-“I know—!”
-
-This time, Qifeng concentrated her magic on her feet. Her speed increased exponentially, and she rushed in front of Lian Qi in an instant!
-
-My sister sighed. “That child is too kind. She knew the Hero doesn’t know Magic Armament yet, so she didn’t use it herself just now.”
-
-“Uh… Qifeng?” I said.
-
-“But look—the Hero has already learned Magic Armament.”
-
-“Eh?”
-
-I saw Qifeng throw a punch. This time, her speed was too fast for Lian Qi to dodge at all. She could only cross her arms to block it. The gust of wind from the collision of their magic blew all the way over to me.
-
-“Lian Qi took it head-on.”
-
-“Look at her legs,” Sister Ejielia reminded me.
-
-I looked over and saw that in that instant, Lian Qi had concentrated magic on her legs. Eh—? Did she really learn Magic Armament in such a short time? But… why didn’t she choose to concentrate it on her arms for defense?
-
-“If she hadn’t concentrated it on her legs, the force of Qifeng’s punch would have made her lose her footing and fall, right? She chose to stabilize her base. She’s clearly trained.”
-
-“Is… is she that amazing?”
-
-But after hitting Lian Qi with a punch, Qifeng chose to jump back and create distance between them.
-
-“The moment I hit you, the match was already decided.” Qifeng smiled smugly, while Lian Qi looked completely baffled.
-
-I saw Qifeng jump in front of a large tree. She placed one hand on the tree and activated her magic—a golden chain appeared out of thin air, one end connected to Lian Qi’s arm, and the other to the tree.
-
-“!?” Lian Qi was shocked. The chain was pulled taut. She realized she was chained to the tree!?
-
-“This is the fundamental difference between skills and just raw magic power.”
-
-+++
-
-# **11**
-
-“The fundamental difference between magic and magic power, that’s not wrong. Whether it’s Magic Weave or Magic Armament, they are just the basics of the basics. Mastering these doesn’t mean you’re a real magician. That’s why some students at the magic academy who lack imagination or willpower can’t create magic, and they end up with a certificate of completion instead of a graduation certificate,” Sister Ejielia explained to me softly.
-
-I looked at Lian Qi. Her arm was chained to the large tree with a golden chain. This would restrict her movement, right? Is that why Qifeng said the match was already decided?
-
-“This is my magic, ‘Chains of Bondage.’ Any object I hit will be connected by the chain,” Qifeng said smugly with her arms crossed.
-
-I couldn’t help but remember what Sister Ejielia had said—”Never explain the principles of your magic in detail in front of an opponent.”
-
-…
-
-How could even Qifeng make this mistake?
-
-At that moment, Lian Qi tried to break free from the chain. “It’s useless,” Qifeng said smugly. “A chain that contains the meaning of ‘bond’ cannot be broken.”
-
-Then Qifeng looked at me, a mysterious blush on her face.
-
-“This is a magic I created while thinking of you, Fei’er~!”
-
-Whoa…! P-Please don’t say things like that in front of everyone…
-
-But Sister Ejielia explained with a straight face, “After all, magic is a miracle born from hope.”
-
-This is so embarrassing—!
-
-Hope for me??? Does Qifeng hope to tie me up with chains? Er… or for me to tie her up? Thinking back to when she was blindfolded with my black thigh-highs, she seemed to enjoy being treated that way? It must be the latter, right? Whoa… the amount of information in this magic of Qifeng’s is huge…
-
-Oh my gosh! What am I even thinking—! I heard Sister Ejielia whisper in my ear, “Fei’er, you see now. Even though Qifeng’s magic leans towards support, even a magician of a higher level than Qifeng would have a hard time if they were entangled by those Transmutation-type chains.”
-
-“So… is that why you said that Transmutation-type magicians have the potential to fight above their level.”
-
-And Lian Qi and Qifeng’s magic depth were both at the Crystal Red level. What’s more, Lian Qi was still a beginner. I felt like Lian Qi was being bullied… I felt a little bad for her.
-
-“The spar ends here. Hero, you understand what magic is now, right?” Sister Ejielia said.
-
-Perhaps my sister wanted Lian Qi to understand magic through practical combat? She really is a principal…
-
-“No, it’s not over yet.”
-
-“What—?”
-
-Even Qifeng was surprised. I didn’t expect Lian Qi to be so stubborn either. I saw her—concentrating magic in her hand, pulling hard on the chain.
-
-Qifeng waved her hand emotionally—”It’s useless! I said it’s impossible to break!”
-
-I noticed that the chain wasn’t wrapped around or locked onto Lian Qi’s arm, but rather passed through her skin as if it had phased through space, chaining her arm without causing any damage. So, it was impossible to pull it out by force.
-
-Then, with a crack, the large tree at the other end of the chain was uprooted!
-
-Lian Qi… she actually managed to do that!? I’ve known her for so long, and I never thought she was someone who gives up so easily.
-
-Lian Qi forcefully pulled the tree towards her. This slackened the taut chain. She concentrated magic on her legs to increase her movement speed, circling Qifeng like a gust of wind, one, two, three… I couldn’t count exactly how many times. When she stopped, Qifeng was tightly bound by the chain.
-
-“Eh eh eh eh???”
-
-Qifeng looked down at her body, bound by the chains, and couldn’t help but blush in embarrassment.
-
-I was baffled by Qifeng’s reaction, until I saw her graceful figure accentuated by the chains and imagined the feeling of being bound that only Qifeng herself could know. I sort of understood why she looked so ashamed.
-
-“Wh-why is it tied in such an embarrassing way!” Qifeng cried out to the heavens, on the verge of tears.
-
-“How should I know—!” Lian Qi also looked helpless. I knew she had just run in circles around Qifeng with the chain; she had no control over how it ended up tied.
-
-“Y-You want to trap me with my own chains? In… your dreams!”
-
-I originally thought Qifeng would immediately make the chains disappear or something, but after struggling for a few moments, she gave up resisting and knelt limply on the ground.
-
-“I can’t… I can’t, my body has no strength…”
-
-I stared at her flushed face, which was a mixture of shame and what looked like pleasure, and was at a loss for words. Was I right before? Then why on earth did she create this kind of magic?
-
-“Phew… so tired. I’m not fighting anymore either,” Lian Qi said and sat down on the ground. Her actions just now had really impressed me.
-
-Just then, Sister Ejielia clapped her hands—”Alright, the spar ends here. This match is a draw.”
-
-I guess even my sister didn’t expect it to end in a draw like this.
-
-I squatted down beside Qifeng. She glanced up at me and then lowered her head in shame.
-
-“D-Don’t, don’t look at me!”
-
-“Then just make the chains disappear,” I said helplessly.
-
-+++
-
-# **12**
-
-Qifeng is such a silly girl. She said no one could take me from her, but wasn’t she subdued the moment she was tied up by the chains? Looking at her now, kneeling on the grass in humiliation, bound by the chains, I feel embarrassed for her. And she’s shyly telling me not to look at her? Please, then just make the chains disappear. It’s your magic! Why are you tying yourself up?
-
-“If you keep dawdling like this, I’m going to leave. I’m ignoring you,” I said, feigning anger.
-
-She looked up at me, a hint of surprise in her dazed eyes.
-
-“Is this some kind of neglect play?”
-
-“Neglect play my foot! Don’t forget I’m also chained by your chains. You should untie me first,” Lian Qi said with a sigh.
-
-One end of the chain was tied to the tree (which had already been uprooted), the other to Lian Qi’s arm, and Qifeng was tied up in the middle. It was a very strange scene.
-
-“I know, I know, just let me catch my breath! Controlling magic requires concentration…!”
-
-“You’re probably the only person in the world who gets out of breath from being tied up,” I said helplessly.
-
-Qifeng gave me an embarrassed, silly smile. She still has the energy to smile at me? Alright then—! I raised my hand and pointed to the side—”The-the unicorn found you! It’s galloping towards you! Oh my—so much drool…”
-
-“Wh-what—!” Qifeng was so scared her ponytail stood on end, and she quickly made the chains binding her disappear.
-
-“Where? Where’s the unicorn???”
-
-Seeing her look around in fear, I couldn’t help but laugh and stick out my tongue.
-
-“Just kidding.”
-
-But it seemed to work quite well.
-
-“Don’t, don’t, don’t scare me like that! Keeping that pervert in the yard is going to be the end of us sooner or later.”
-
-Lian Qi coughed lightly at the word “pervert.” Haha, I actually think Qifeng’s description is quite fitting.
-
-Qifeng muttered to herself, “Well, maybe next time…”
-
-What? What did she just say? Did I just see her mouth the words “maybe next time you can tie me up”? Seriously… she’s always saying the strangest things out of nowhere. She smiled at me—”I did what I promised you. I didn’t get hurt.”
-
-“You say you’re not hurt, but look at you! Your arm is all marked up from the chains…!” I rubbed it for her, but it didn’t do much good. The marks from the chains would probably take a day or two to fade. I don’t know how she’s going to go out in public with those marks…
-
-“Ah… that tickles,” Qifeng breathed.
-
-“That’s because your blood isn’t circulating properly!”
-
-After the chains disappeared, Lian Qi examined her arm. “The chain clearly passed through my skin, but I didn’t feel any pain. Now that it’s gone, there’s not even a mark left. It’s amazing.”
-
-“That’s the special ability of this magic. It’s as if it grew on you, which is why it’s impossible to break free,” Sister Ejielia said as she made the uprooted tree float back into its hole, then controlled the earth to bury it again.
-
-“Qifeng, did you really create this magic while thinking of me? But isn’t the weakness against you a little too obvious?”
-
-“No, no… not at all! It was just a spar, after all! When facing a real enemy, I wouldn’t be unable to break free just because I’m tied up by chains.” Then she added in a whisper, “It was just because you were here.”
-
-Why would I make her feel embarrassed…? I looked at Qifeng silently, at a loss for words.
-
-“A Transmutation-type magician’s summoned treasure is a materialization of their subconscious. It’s because Qifeng herself was chained—”
-
-Sister Ejielia hesitated for a moment, as if she didn’t know how to phrase it.
-
-“Ahem, it’s because Qifeng has an indescribable sentiment towards chains that the effect of the summoned chains is so powerful.”
-
-“So the magic in your world isn’t recorded in magic books for everyone to learn? For example, like all magicians knowing Fireball or something…” Lian Qi asked.
-
-“Magic is different for everyone,” Sister Ejielia replied.
-
-“The Fireball you mentioned requires a magician of the Evocation school, and someone who can mimic the nature of the source of magic—the Holy Light—into flames.”
-
-As she spoke, she opened her palm and summoned a ball of wind.
-
-“Like me, I can only use Wind Ball.”
-
-“I get it. It’s great that everyone is different. So how can I learn magic?” Lian Qi asked eagerly.
-
-Seriously, I never thought Lian Qi would step into the realm of magic so quickly. Whether it was Magic Weave or Magic Armament, she learned them almost instantly. Of course, I wouldn’t describe her as a monster like Sister Ejielia did. In my eyes, Lian Qi is a genius!
-
-I smiled secretly at her side profile, feeling so gratified.
-
-“Let me ask you first, what kind of magic do you want to learn—answer me within three seconds, I want to hear your first instinct!”
-
-“3…”
-
-“Explosion Magic!”
-
-Lian Qi blurted it out.
-
-Qifeng and I looked at each other. It sounded so powerful…
-
-But I was puzzled. How could Lian Qi—? Her first reaction was—? That—?
-
-“That’s right! It’s Explosion Magic!” An indescribable excitement was on Lian Qi’s face. She pumped her fist, getting more and more excited as she spoke.
-
-“That BOOM—! feeling is what magic is all about, right? But I don’t want to cast it just once a day. I want to be able to cast it many times a day—Explosion Magic!”
-
-Qifeng and I stood side by side, watching her silently.
-
-“What is the Hero talking about…”
-
-“I don’t really get it… but it sounds amazing…” I said weakly.
-
-+++
-
-# **13**
-
-The Explosion Magic with the “BOOM—!” feeling…? I pictured it in my mind and roughly understood.
-
-Since Lian Qi wanted to learn Explosion Magic, I was of course supportive. I also looked forward to the day she could really use Explosion Magic to blast the Demon King away! I covered my mouth and secretly smiled at Qifeng—”The Hero says that ‘BOOM—!’ feeling is what magic is all about. In comparison, are your chains used to tie yourself up?”
-
-“What are you talking about! My magic, ‘Chains of Bondage,’ carries the bond between you and me—! It was born from the wish to tie us together…” Qifeng protested with puffed-out cheeks. She looked so cute I wanted to pinch them, but I resisted because her words were too mushy.
-
-I secretly nudged her waist with my elbow. She was ticklish just like me and flinched away. I said chidingly, “It’s fine if you think that, but don’t always say it out loud! It’s so embarrassing…”
-
-“Is that so? You think it’s embarrassing…?”
-
-“Of course,” I whispered.
-
-After all, I’m a boy. It’s impossible for me not to feel something when she says those things to me. It’s even weirder because we’re childhood friends. Hasn’t Qifeng always just seen me as a good sister? Relying on me like family, right?
-
-Just then, I heard Sister Ejielia say softly, “I see.”
-
-She nodded.
-
-“I understand your original wish now.”
-
-She really is a principal. Compared to Qifeng and me, who looked at each other blankly for a while after hearing it, had she already understood?
-
-“Then, can I really learn Explosion Magic?” Lian Qi’s tone revealed a hint of uncertainty.
-
-“Don’t forget, the miracle born from hope is magic. However, first, we need to find out which of the four major systems your magic type belongs to. Follow me.”
-
-Eh? Are we going back to the villa now? Qifeng and I followed behind Sister Ejielia. Along the way, Lian Qi was filled with a little anticipation and excitement. I could tell from her tone—”Could it be? Can I find out my magic type at home? I thought I’d have to go to a school to find out, wear a sorting hat or something, and have the hat shout at the top of its lungs—Gryffindor! Ah, no, I mean, Evocation!”
-
-I smiled weakly. “You’re speaking in a way I don’t understand again.”
-
-“Then what method do they use to test it? It’s not a finger prick, is it? Hey! Seriously, I think it’s just like blood types! Type A, B, AB, and O correspond perfectly to Evocation, Transmutation, Enchantment, and Control…”
-
-“Well… it’s said that the blood of the four major types of magicians is a little different.”
-
-“Is that really so? Then what does RH blood type correspond to?”
-
-“I don’t know…”
-
-“I hope I’m an Evocation type.”
-
-Lian Qi smiled with anticipation.
-
-“Preferably a fire-based Evocation type. It’s the closest thing I can think of to Explosion Magic.”
-
-“I didn’t realize you were so fixated on Explosion Magic,” I said with a smile. “But it’s okay. Didn’t you hear my sister say it? Magic is a miracle born from hope. If you keep Explosion Magic in your heart, it will surely come true.”
-
-“Are you always spreading positive energy to me? Cheering me on.”
-
-“Of course…”
-
-After all, I’m the Saintess. Spreading negative energy or anything like that doesn’t match my wavelength! Besides, my current identity is a maid… Ahem, cheering on the master is a traditional virtue of a maid. Back in the living room, while I was busy making tea, Sister Ejielia took a piece of white paper, tore it into shreds, and held it in her palm, letting it fall onto the coffee table like an hourglass.
-
-Lian Qi stared at the paper scraps, looking puzzled—”This is…?”
-
-“I don’t have the Holy Grail with me, so the blood-typing method for magic won’t work. I’m using these paper scraps as a medium for now. This method is ancient, simple, but very effective.”
-
-I thought to myself, I could actually just form a Holy Grail on the spot…
-
-“What I’m about to teach you now is the third basic skill after ‘Magic Weave’ and ‘Magic Armament’—’Magic Release.’ First, I’ll demonstrate it for you.”
-
-As she spoke, my sister reached out her hand towards the pile of paper scraps and released her magic. The magic took the form of a miniature tornado, sweeping up the scraps and making them spin on the tabletop.
-
-“See that? My magic type is wind-property Evocation. If ‘Magic Weave’ and ‘Magic Armament’ are basic magic for oneself, then ‘Magic Release’ is basic magic for external objects. When your magic leaves your body, it will reveal its true nature. The reason I chose paper scraps as a medium is that they’re very light, so even a novice’s magic can affect them. Secondly, the characteristics of all four major systems can be conveniently displayed on these small paper scraps.”
-
-Lian Qi nodded. “So I should release my magic onto the paper scraps now?”
-
-“Yes.” My sister came up behind Lian Qi, lifted her right hand, and taught her hand-over-hand—”First, open your magic, then focus your attention on the paper scraps, and imagine the magic leaving your body and landing on the scraps—that’s right, follow your feeling, yes—just like that. You really are a monster, in a good way.”
-
-Eh? I can’t believe Lian Qi learned ‘Magic Release’ in just one try. We all leaned in curiously to see what would happen to the paper scraps—we saw that at least half of the scraps were covered in a thin layer of red magic.
-
-Sister Ejielia looked at it and nodded. “Well, if it were Control, the paper scraps would float. If it were Evocation, they would be affected like mine just were. If it were Transmutation, magic crystals would appear on the scraps. In your case, a layer of magic is covering the surface of the paper scraps, which means your magic is—Enchantment.”
-
-“Ah, so it’s not Evocation? To be honest, Enchantment is the one I understand the least out of the four types of magic.”
-
-Lian Qi smiled and scratched her head. I thought she would be disappointed, but she seemed to accept it calmly.
-
-“But it doesn’t matter. Fei’er also told me that magic is a miracle born from hope. No matter what system it is, as long as it’s Explosion Magic, it’s fine. There’s always a way.”
-
-Could it be that my words of comfort beforehand really worked? I never thought my words held so much weight in Lian Qi’s heart.
-
-“Alright,” Sister Ejielia clapped her hands in indication. “You’ve mastered the basics of magic and you know you’re an Enchantment type. Next, as long as you learn your inherent magic, you’ll be a qualified magician. I’m going to give you an assignment now.”
-
-“What assignment?”
-
-“Enroll in the Magic Academy and get first place in the upcoming graduation festival.”
-
-+++
-
-# **14**
-
-“Eh eh eh??? Sister, you want Lian Qi to enroll in the Magic Academy now? And get first place in the upcoming graduation festival?”
-
-Wait a minute—let me process this.
-
-The upcoming… graduation festival… that means there aren’t many days left, right?
-
-“That’s right, as a transfer student, she’ll skip directly to the Upper Magic Division,” Sister Ejielia said, nodding with her arms crossed.
-
-Transfer student…? From what I understand, the Magic Academy is divided into the Lower Magic Division and the Upper Magic Division. This naming convention continues the system of the long-standing Magic Tower. Before the Magic Tower was toppled by _that person_, new students who were just beginning to learn magic would start their studies from the lower levels of the Magic Tower, which was the Lower Magic Division.
-
-And the students of the Upper Magic Division, who studied in the upper levels of the Magic Tower, were already quasi-magicians who had mastered magic…
-
-To let Lian Qi skip directly to the Upper Magic Division, Sister Ejielia’s principal privileges are truly invincible…
-
-“The junior students participating in this year’s graduation festival ranking competition from the Upper Magic Division should be quite strong, right?” Qifeng said.
-
-“Silly girl, the rank you got, I remember it was—”
-
-“Fourth place in my year,” she said with a shy smile, giving me a victory sign.
-
-“Even you were only fourth?” I looked at Sister Ejielia with watery eyes. “Whoa… Sister, how could you do this? The time until the graduation festival is so tight…! And you’re asking Lian Qi to get first place…?”
-
-“Back then, _that person_ also got first place. I believe she can do it too.”
-
-This… I knew that. Back then, _that person_ was first, and my sister was second. That’s true, but, but! There’s too little time for Lian Qi.
-
-“I will get first place.”
-
-Eh??? I looked at Lian Qi in surprise. Her face was full of determination.
-
-“I won’t lose to the Demon King.”
-
-“I have high hopes for you,” my sister said, patting Lian Qi’s shoulder.
-
-Lian Qi is clearly a girl, yet she’s so competitive… Why do I feel like she’s the boy and I’m the girl…?
-
-“But, if I skip a grade as soon as I enroll, will there be any problems with the procedures?”
-
-“Don’t worry, I’ll write you a letter of recommendation.”
-
-Right, Lian Qi still doesn’t know that the person who has been teaching her magic is the current principal of the Magic Academy. Maybe she guessed that my sister’s identity was unusual, but she probably couldn’t guess that she’s the principal, right? After all… my sister is still very young!
-
-“Sister, then I…” I asked weakly.
-
-“I was just about to ask. If I enroll, will Fei’er be left alone in the villa?”
-
-Eh? I secretly glanced at Lian Qi. We were thinking the same thing? She was thinking of me too.
-
-“Fei’er, you can just enroll with her as her maid.”
-
-I couldn’t have been more surprised!
-
-“Eh eh eh? Is that okay? Who brings a maid to school…”
-
-“Of course. You might not know, sister, but many children of nobles bring maids with them to study. So it’s not strange at all for you to accompany the Hero to school. People will just think she’s the child of some noble.”
-
-I gently patted my flat chest, calming myself down.
-
-“I feel much better now that you’ve said that.”
-
-“If Fei’er can go with me, then I’m definitely willing to go,” Lian Qi said with a smile.
-
-She… I hope Qifeng doesn’t get jealous when she says things like that. I quickly gave Qifeng an apologetic smile.
-
-“C-Can I re-enroll? I’m not kidding,” Qifeng asked Sister Ejielia, patting her chest.
-
-“Silly girl, don’t even think about it. I’ll only be at the school with Lian Qi for a short time. We’ll be back after the graduation festival.”
-
-“It’s settled then. I’ll go back to the academy to make some arrangements. You two can come and register at the Magic Academy tonight or tomorrow morning.”
-
-“Okay…! Thank you, sister,” I said with a smile.
-
-“No need to thank me. It’s all for the sake of defeating _that person_,” my sister said, giving me one last look, then at Lian Qi.
-
-“See you at the academy.”
-
-With that, she turned and left. I watched her back, hearing her say faintly, “Just you wait, Xu Bai. My student will defeat you one day.”
-
-“Your sister holds a deep grudge against the Demon King,” Lian Qi whispered to me.
-
-“I can’t blame her. After all, the better their relationship was, the more resentment there is now that they’ve fallen out, right?”
-
-“To think she was friends with the Demon King back in the day… it’s really something…”
-
-I glanced at Qifeng—”Silly girl, aren’t you going back to the church? Don’t you have a ton of church affairs to deal with?”
-
-“R-Right,” Qifeng said, scratching her head and giving me an apologetic smile. “Then I’ll head back now.”
-
-“I really don’t know what to do with you…” I said helplessly.
-
-Just as Qifeng reached the door, she suddenly stopped, turned around, and pointed at Lian Qi, a faint fang showing at the corner of her mouth—”Next time! Let’s have another match!”
-
-“We’re all on the same side, why are you still fighting…?”
-
-“Watch out for the unicorn on your way out!” I reminded her at the end.
-
-After Sister Ejielia and Qifeng had both left, Lian Qi let out a deep breath and flopped back onto the sofa.
-
-“Ah, I have to go to school again.”
-
-“Again…? Did you go to school in your original dimension too?” I asked.
-
-“Didn’t I tell you? What I’m wearing is a school uniform. The school is called Zhengguang Affiliated High School.”
-
-“Ah, how scary,” I said, covering my mouth in astonishment. “Not only do you have to participate in devilish training, but you also have to learn combat skills…”
-
-Lian Qi stared at me. Eh? Did I say something wrong?
-
-“Devilish training?”
-
-“From what you said, it’s about experiencing being tossed around, weightlessness, acceleration, and so on… isn’t that part of your school’s devilish training?”
-
-“You’re talking about the roller coaster? Well… the school organized a trip for us to go there.”
-
-Lian Qi paused for a moment and then said.
-
-“The truly scary thing is the five-year gaokao, three-year simulation. You haven’t seen anything yet.”
-
-+++
-
-# **15**
-
-“Ah…? Could it be even more terrifying than devilish training?”
-
-We looked at each other for a moment, and Lian Qi couldn’t help but burst out laughing. What’s so funny? I was being completely serious!
-
-“I feel like I’m communicating with a foreigner—no, an alien. You ask me if it’s terrifying? How should I put it… I can only say—it’s a good thing I transmigrated in time, hahaha…”
-
-“I couldn’t understand a lot of what you were saying anyway…!” I said, blushing. Her laughter was making me so embarrassed. I didn’t understand why she was laughing so happily. It seems that avoiding that five-year something and three-year something was really something to celebrate?
-
-“But you really are an alien. Your world has three moons. I wonder where it is in the universe?”
-
-“Please say something I can understand…”
-
-“Alright, no more joking. You know what I’m most worried about with enrolling in school?”
-
-“Hmph…? Is it that you haven’t learned BOOM—! Explosion Magic yet?”
-
-“That’s not it, and stop making such cute sound effects! Tell me, what am I supposed to do if they assign me to the boys’ dormitory?”
-
-Lian Qi stomped her foot in frustration. I never thought she’d act like this; it was such a contrast.
-
-“Ah… so that’s what you’re worried about.”
-
-If it were me, a boy in girl’s clothing, living in the boys’ dormitory wouldn’t be out of place. But Lian Qi is a genuine girl.
-
-“Why did you pretend to be a boy in the first place?” I asked weakly.
-
-I had only said that I understood her before, without asking for details, just like I understood myself dressing as a girl. Now that we were so familiar, she should tell me, right?
-
-“Pretend? When I transmigrated, it was your queen who first called me a young man. So unfair. My hair is a little short, but do I really look that much like a boy?”
-
-“Well… maybe it’s because in our world, very few girls have your kind of hairstyle?”
-
-I gestured to my own hair—”The shortest is usually to the shoulders. And it’s also because of the school uniform you’re wearing…”
-
-“I was stunned for a moment but I didn’t correct her. What if she said she was mistaken, that the otherworlder prophesied to defeat the Demon King couldn’t possibly be a girl? After all—do you believe a girl can save the world?”
-
-“I wouldn’t disbelieve it,” I answered with a smile.
-
-After all, the fact that the prophesied Saintess of the Holy Light is a boy is a much bigger problem—! Compared to that, the Hero being a girl is nothing.
-
-Alright, at least now I understand. It was just a beautiful misunderstanding, and Lian Qi just went along with it. In fact, aside from being a bit domineering with me, she hasn’t deliberately imitated male mannerisms, even in front of Sister Ejielia and Qifeng.
-
-That’s why Qifeng, with her sharp eyes, saw she was a girl at a glance. I even suspect my sister guessed it too, but just didn’t expose it.
-
-“Sigh, we’ve gotten off track. I’m not really going to have to move into the boys’ dormitory, am I—?”
-
-“No, no, of course not. Since I’ll be there studying with you, my sister would never arrange for me to be in a boys’ dormitory too. Maybe she’ll prepare a separate room for us or something…”
-
-“That’s true. After all, you’re a girl.”
-
-“Ha, ha, ha…”
-
-I laughed awkwardly, feeling ashamed.
-
-“By the way, your sister seems pretty powerful, doesn’t she? Enrolling as a transfer student and all seems like nothing to her.”
-
-“Well… to tell you the truth, my sister is the current principal of the Magic Academy, so she calls all the shots.”
-
-Since Lian Qi was going to enroll anyway, there was no point in hiding it anymore.
-
-“Principal?”
-
-She was surprised for a moment.
-
-“Such a young principal? I thought the principals of magic academies were all old men with white beards.”
-
-“Don’t be fooled by her youth. My sister is a very powerful figure. Along with General ‘Crimson Flame’ Filis, one represents civil and the other military, and they’re known as the Twin Pillars of the Kingdom.”
-
-“One of the Twin Pillars of the Kingdom is your sister… what’s the deal with your connections?” Lian Qi asked, frowning at me.
-
-“I-I’ll go make you a pot of tea.” I couldn’t answer her, so I quickly found an excuse to slip away.
-
-…
-
-…
-
-…
-
-Since we’ll be leaving Fontainebleau Manor for a while, I wrote a special letter to Queen Tristine, asking her to find someone to take care of the horses in the stable and that unicorn!
-
-The Hero from another dimension has finally realized the mission she carries and has decided to study magic in order to defeat the Demon King. I wonder what kind of expression Sister Tristine will have when she reads this letter?
-
-After that, I spent the whole day cleaning. It wasn’t until evening, covered in sweat, that I could finally take off my maid outfit and enjoy a nice, comfortable hot bath.
-
-I’ve been dressing as a girl for fifteen years now, haven’t I? During the day, when I’m wearing women’s clothes, if I don’t constantly remind myself that I’m a boy, I might very well forget that fact. It’s only when I’m completely naked and bathing that I can truly face who I am.
-
-And because of that… I’m ashamed to look at my own body, and I certainly couldn’t let anyone else see it, not even Qifeng.
-
-I stood under the shower, the water washing over my body.
-
-If only I could turn into a girl just by washing like this.
-
-But speaking of which, bathing is really comfortable… The hot water soothes the skin with a fulfilling sensation… so blissful…! If only I didn’t have to be so on edge while bathing.
-
-CRACK! The doorknob crashed to the floor! I could hear it even over the sound of the shower! It nearly scared me to death! I gasped and ended up choking on water… it was so embarrassing!
-
-“Ah… I’m sorry, I think I broke the door.”
-
-Eh eh eh eh? Is that Lian Qi’s voice!? It has to be her! Did she accidentally open the door with her hand covered in magic? She could uproot a tree, so a small door lock would naturally be fragile to her!
-
-Whoa…! What do I do!? I’m facing away from her, afraid to turn around. Even with the steam and water as cover, she can still see my naked back, can’t she!?
-
-She saw everything! My pure, untouched body that I’ve hidden for so many years has been seen by her… not even Qifeng, my childhood friend, has ever seen it!
-
-Lian Qi hadn’t said another word yet. Maybe she was stunned by the sight of my naked back as I was bathing. After all, when I walked in on her bathing, I was stunned for a long time too.
-
-In short, only a few seconds had passed since she pushed the door open, but my mind was racing. No, no—! Calm down! Calm down! Even my butt is no different from a girl’s…! As long as I cover the front, my identity as a boy won’t be exposed, right?
-
-In my desperation, I covered my completely flat body with a layer of Holy Light and at the same time, I turned around—the pure white light blinded Lian Qi’s eyes.
-
-“Whoa…! What is this light…?! My eyes are blinded!” she yelled, covering her eyes.
-
-I took the opportunity to wrap myself in a bath towel.
-
-Phew… Thank goodness for the Holy Light. Even if her eyes weren’t blinded, her sight couldn’t possibly have penetrated that layer of Holy Light to see my body…!
-
-I never would have thought I could be so quick-witted in a critical moment.
-
-+++
-
-# **16**
-
-But… while I was relieved that my identity as a boy hadn’t been exposed, I started to worry about Lian Qi’s eyes. They had been flashed by the Holy Light…
-
-“Are-are you okay?”
-
-I rushed over, wrapped only in a bath towel. From any angle, this was undoubtedly a risky move.
-
-“I’m fine, I’m fine. Why does your body glow? Oh, my eyes…”
-
-Lian Qi crouched on the ground, rubbing her eyes. Seeing her tears well up from the irritation, I couldn’t help but feel guilty. Did I overdo it?
-
-But my eyes were also “flashed,” not by a light, but by the fact that when Lian Qi pushed the door open, she was already naked and wrapped only in a bath towel. As she crouched on the floor, from my standing position, I had a perfect view down past her collarbones to her soft parts…
-
-I quickly averted my gaze. It was too embarrassing!
-
-Although I had already seen her completely naked when I first walked in on her bathing, it-it didn’t mean I would be calm seeing her a second time…! What’s more… this time, the towel concealed and revealed just enough to make me feel even more awkward.
-
-I didn’t know where to look… I could only stare down at my own flat chest under the towel, feeling incredibly shy…
-
-But Lian Qi didn’t notice anything was amiss with me and just kept rubbing her eyes. The scene before me was two girls wrapped in bath towels, one standing and one crouching—in short, a very strange situation… Ahem, and one of them was a boy.
-
-“Hey, I broke the lock… I thought the door was stuck, and I accidentally…”
-
-She steadied herself with the door and was about to crouch down to pick up the doorknob. Worried her towel would fall, I quickly picked it up for her. I wonder if I can stick it back on with Holy Light later…
-
-“That’s not it, I was taking a bath.”
-
-“Oh? Don’t you usually wash in the suite’s bathroom?”
-
-“Because I had just finished cleaning this bathroom, so I just…” I scratched my cheek, saying embarrassedly.
-
-“I see. So what was that light just now?”
-
-“It’s my magic… When someone bursts in suddenly, my instinct is to cover myself.”
-
-I can’t exactly say I’m the Saintess, so I use the purest form of Holy Light, can I?
-
-“But I still saw it. Very perky.”
-
-“Wh-what are you talking about…!?”
-
-My face flushed red instantly. How could she say something so embarrassing!?
-
-“Hey, you’re blushing. So cute.”
-
-“I… I wish I could just curl into a ball right now.”
-
-Ugh… what’s more embarrassing, seeing her naked, or having her see my naked back? In any case, the combination of the two situations sent my embarrassment levels through the roof…!
-
-“Actually, I guess we’re even now, right? Don’t forget, the first time we met, you walked in on me bathing.”
-
-She looked at me with one hand on her hip, her towel-clad body showing off her curves. I was genuinely worried about what would happen if her towel accidentally slipped in that pose!
-
-A guy seeing that wouldn’t be able to control himself! No, no—I am a guy…!
-
-“Do we have to be even on this too…?” I said weakly.
-
-Even if we were, I still felt like she, as a girl, got the worse end of the deal.
-
-She walked past me in her towel—”Hey? You filled the bathtub?”
-
-“Yes… I figured you’d want a bath later, so I prepared it for you.”
-
-“You truly are a good maid.”
-
-“The water temperature should be just right now. You should go have a soak. I’m already done, so I won’t bother you—” Eh eh eh??? She suddenly grabbed my hand.
-
-“Don’t go. Bathe with me. That’s an order.”
-
-Wai-wai-wait—hold on! How is that okay??? She dragged me by the hand, nearly pulling me over. I quickly used my other hand to hold onto my towel, terrified it would slip and expose me…
-
-The situation was quite dire for me! No, no. It was also terrible for Lian Qi. She had no idea she was dragging a boy into the bath with her!
-
-“Mmm~ bathing feels so good. I feel like my body is being healed,” Lian Qi said, looking completely relaxed as she soaked in the tub, even the ahoge on her head seemed to have softened.
-
-As for me… I was so embarrassed I wished I could sink completely under the water. Even bathing in the hot springs with Sister Ejielia wasn’t this embarrassing…!
-
-“Hey? Why do you keep staring at the bathwater? Is there something in it?”
-
-“N-No…!”
-
-I lifted my head in embarrassment, mustering the courage to look directly at Lian Qi for the first time since getting in the tub. She sat across from me, her skin gradually turning a warm red from the heat of the water, steam rising from her body…
-
-Then I saw the water rippling across her chest~ back and forth~ Ugh…! I hid in embarrassment again.
-
-“You don’t seem to dare to look at me directly, huh? No way. We’re both girls and you’re still shy? You’re too cute.”
-
-“Because, because… I’m not very confident about my body, so…”
-
-“Huh? Even I make you feel insecure? Just how sad is your chest? Want me to take a look?”
-
-“No, no…! Don’t—!”
-
-I pushed the water away frantically, my reaction so strong that even Lian Qi was startled.
-
-“In short… you’ve outshone me into the water.”
-
-To hide my recent gaffe, I embarrassedly submerged even my face into the water.
-
-“Hey, Fei’er, aside from being a little flat, you’re a perfect girl.”
-
-Yeah…
-
-I wanted to cry but had no tears. Aside from the fact that I’m a boy, I’m practically a perfect girl.
-
-“Coming clean” face-to-face with Lian Qi, combined with the hot steam, the atmosphere was making me increasingly dizzy. But I didn’t dare relax for a moment. If I was exposed now, it would all be over.
-
-As expected, bathing is a physical and mental relaxation for others, but for me, in order to hide, I had to keep my legs clamped shut and even hug my chest tightly with my arms, forever doomed to a fate of constant anxiety…
-
-“Fei’er, did you and Qifeng used to study at the Magic Academy?”
-
-“No, no, that’s not it. Qifeng did, but I didn’t.”
-
-I was grateful that Lian Qi could chat with me about other things at this moment, to distract me from my embarrassment.
-
-“Oh? So did your sister teach you all your magic?”
-
-“Actually, Sister Ejielia isn’t very willing to teach me magic. She always prefers to see me as the one to be protected. Sister Filis is the complete opposite of Sister Ejielia; she always wants to train me,” I answered with a smile.
-
-Speaking of which, I couldn’t help but remember when _that person_ taught me how to play whack-a-mole as a child.
-
-+++
-
-# **17**
-
-“Who made you look like you need to be protected from birth?” Lian Qi said to me, her face flushed from the swirling steam.
-
-I gave a weak smile. It was too embarrassing for a boy to be told something like that.
-
-“Maybe it’s because I’m too young?”
-
-“No, I think it’s an innate temperament. You and I are the same age, right? And so is Qifeng. If the three of us stand together, who looks like they need more protection? It’s obviously you!”
-
-“If you put it that way…”
-
-I was speechless. Maybe I really do look a bit weaker?
-
-Why am I like this when I’m clearly a boy?
-
-But speaking of which, how long does Lian Qi plan to soak? If she doesn’t leave first, I don’t even dare to move! We’ve been bathing together for so long, she won’t get pregnant, right?
-
-…
-
-…
-
-…
-
-The next morning, it was time to report to the Magic Academy as agreed with Sister Ejielia. For once, Lian Qi got up without me having to wake her. With the birthday gift from Nono—the teleportation scroll—we arrived in the royal capital in the blink of an eye.
-
-We gazed at the ruins of the Magic Tower from afar.
-
-“What’s this—? A completely toppled Leaning Tower of Pisa?” Lian Qi asked in surprise.
-
-“This is where Sister Ejielia used to study—the Magic Tower. But it was knocked down by _that person_.”
-
-“Huh? I always thought students who threatened to blow up their school were just joking. I can’t believe someone actually did it. Why would the Demon King knock down their own school?”
-
-“My sister said she fell into the abyss of magic and went mad.”
-
-Actually, it wasn’t just my sister who thought so. Even I felt she had become a bit strange. Or maybe she was always like this and I just didn’t know?
-
-Lian Qi stared at the ruins of the Magic Tower for a long time without looking away. I was worried that, as the Demon King’s fated enemy, she would feel pressured seeing the masterpiece of the Demon King’s violence. I quickly dragged her away.
-
-“Stop looking, or we’ll be late. The Magic Academy is next door.”
-
-We looked at the castle next to the ruins. I originally thought Lian Qi would be surprised by its grandeur, but instead she said—”Did you not build it in the shape of a tower again because you’re worried the Demon King will knock it down again?”
-
-“N-No, that’s not it…!”
-
-She’s still thinking about the Magic Tower… I pulled her hand and we arrived at the main gate. This time, we weren’t greeted by guards, but by a red-haired girl.
-
-“Sister Meilin!?”
-
-She was one of the three sisters I met when Sister Ejielia took me to the hot springs. I was surprised. Why her? W-Will she reveal my identity as the Saintess???
-
-“Hello, little sister Fei’er. Hello, Otherworlder. It’s a pleasure to meet you. I am Meilin, your Enchantment-type teacher.”
-
-“Um… hello.”
-
-Sister Meilin was very excited to shake Lian Qi’s hand. It was no wonder. After all, Lian Qi is the one prophesied to defeat the Demon King. Everyone sees her as a savior.
-
-“The principal has asked me to guide you through your enrollment. Please follow me.”
-
-“The teachers at the magic school are so young,” Lian Qi whispered to me.
-
-“Yeah…” I gave a weak smile. I didn’t know how to tell her that all the older generation of teachers who once worked at the Magic Tower were defeated by _that person_…
-
-“Your true identities are known only to the principal and me in the entire school. If anyone asks, just say you’re the child of some noble. And little sister Fei’er, you don’t have to worry about feeling out of place. Many children of nobles at the school have maids accompanying them to study.”
-
-“Okay, I understand.”
-
-As Lian Qi nodded, I secretly breathed a sigh of relief. It seems my sister also specifically instructed them to hide my identity as the Saintess.
-
-“I’ll take you to the Upper Magic Division now. Although the current Magic Academy retains the old system of Upper and Lower Divisions, the Upper Division is no longer in a higher place.”
-
-“Yeah, after all, the school isn’t a tower anymore,” Lian Qi whispered.
-
-Sister Meilin led us into the castle and stopped in front of a large bell.
-
-“This is the Magic Test Bell, commonly known as the Knocking Bell. According to ancient tradition, every student promoted to the Upper Division or every transfer student must ring this bell before stepping into the Upper Division.”
-
-Eh??? I’ve never studied at the Magic Academy, so I had no idea about this tradition. And neither Qifeng nor Sister Ejielia ever mentioned it to me.
-
-“It kind of feels like I’m announcing my arrival…” I gave a weak smile.
-
-It’s so high-profile. Doesn’t it seem like a provocation to others?
-
-“Little sister Fei’er, it’s understandable that you feel like you’re announcing your arrival. After all, the competition in the Upper Division is fierce. Everyone is a rival in the graduation festival’s ranking competition.”
-
-I was speechless…
-
-“So I have to ring this bell, right? No problem.” Lian Qi bumped her fists together, looking eager to try. Her gesture was quite boyish. I secretly tried to imitate her but couldn’t…
-
-“Yes, you can use your magic to ring it. Any form of magic is fine.”
-
-“Then I’ll use my fist.” Lian Qi said, opening her magic and punching it!
-
-CLANG—! CLANG—! CLANG—!
-
-I couldn’t help but cover my ears. The sound of the bell echoed throughout the entire castle. Probably everyone in the Magic Academy now knows a transfer student is coming… This is way too high-profile!
-
-After a while, the bell still hadn’t stopped ringing. I saw male and female students from every floor poking their heads out to look at us. This is so embarrassing…!
-
-“I’ve been a teacher for so many years, and I’ve never seen the Knocking Bell ring for this long,” Sister Meilin said in surprise.
-
-+++
-
-# **18**
-
-“Your magic has already reached the third tier? No wonder. The average level for students just entering the Upper Division is the second tier.”
-
-Just as Sister Meilin finished speaking, with a crack, the Magic Test Bell split in two right in front of us.
-
-No way…?
-
-It actually broke?
-
-Lian Qi and I were dumbfounded.
-
-“…This shouldn’t be my fault, right?” Lian Qi whispered.
-
-To think we broke someone else’s property right after arriving… I was at a complete loss. Was this Magic Test Bell too fragile? That couldn’t be right…? Or was Lian Qi too strong?
-
-“Ah!” Sister Meilin’s face lit up with realization. “Four years ago, when the Demon King wreaked havoc at the Magic Tower, she split the Magic Test Bell in half with a flick of her ponytail. We repaired it and kept using it. It’s possible that your punch just now reopened the repaired crack.”
-
-“Does the Demon King also have a problem with this bell? Wait… a ponytail can split a bell in half?” Lian Qi had an incredulous expression. I could only give a weak smile. Not long ago, I saw _that person_ block a blade with her ponytail…
-
-“But it’s also because your magic is too strong that the Magic Test Bell’s old injury relapsed. Please follow me. I’ll take you directly to the dormitory.”
-
-The Magic Test Bell ringing for so long was already high-profile enough, and now it was broken… Many students were staring at us with their mouths agape. I swallowed nervously and followed Sister Meilin.
-
-When I first stepped into the dormitory, it was a bit unexpected. It was much larger than I had imagined—a suite with two bedrooms, a living room, and a bathroom, decorated in a noble style. It’s hard to believe this is a school. I also saw an exquisite tea set on the coffee table. Great, I can still make tea for Lian Qi even at school.
-
-“Eh? Are Lian Qi and I the only ones living here?”
-
-I thought to myself, this is great. Lian Qi doesn’t have to worry about what to do in the boys’ dormitory anymore.
-
-“Are all the dormitories at the Magic Academy like this?” Lian Qi looked incredulous.
-
-“Not really. Because there are many children of nobles among the students, dormitories like this are designed to meet their needs…”
-
-“I see.”
-
-“Sister Ejielia is so good to us…!” I exclaimed sincerely, pulling open the curtains. Eh? The dorm even has a balcony? This will make drying clothes so much more convenient. But, Lian Qi and I… the thought of hanging our underwear and things together is quite embarrassing…
-
-From the balcony, I looked out and saw some people bustling about below the castle, seemingly building a stage. Sister Meilin came to my side and said with a smile, “That’s for the graduation festival’s ranking competition.”
-
-“Oh…”
-
-Sister Meilin pulled a form from under her robe and handed it to Lian Qi.
-
-“The Magic Academy uses a course selection system. This is this month’s schedule. You can take a look first and just put a checkmark next to the classes you want to attend. Although the minimum requirement is fourteen classes a month, there’s not much time left before the graduation festival. I hope you attend classes every day.”
-
-“Only fourteen classes a month?”
-
-“Because magic is something you need to create yourself during your self-study time. The term for this process is ‘facing the wall,’ and it’s definitely not an easy task,” Sister Meilin said meaningfully.
-
-Lian Qi nodded. “Just hearing the words ‘facing the wall’ gives me a pretty good idea of what that’s like.”
-
-“Yes. Sharing your process of creating magic with others is considered taboo among magicians. Even teachers don’t necessarily know what kind of magic a student will create on their own. That’s why we have the graduation festival’s ranking competition, to rank students based on their strength.”
-
-“Magic sounds a bit like a graduation thesis or a final project.”
-
-“Right. In short, you can graduate from the Magic Academy once you’ve created your own magic. You have to work hard,” Sister Meilin said with a smile.
-
-So the condition for graduating from the Magic Academy is to create your own magic? I couldn’t help but think of what Sister Ejielia had said—”Magic power is just the foundation. Learning to control it doesn’t mean you’re a real magician. That’s why some students who lack imagination or willpower can’t create magic, and they end up with a certificate of completion instead of a graduation diploma.”
-
-“I won’t let the principal down,” Lian Qi said, not forgetting to glance at me.
-
-“Well, if there’s nothing else, I’ll be going. The school uniforms are in the closet. If you have any problems, you can come find me anytime.”
-
-“Okay.”
-
-“Thank you, Sister Meilin,” I said with a smile.
-
-“You’re welcome. It’s all for the sake of defeating the Demon King.”
-
-With those final words, she left the room.
-
-“Let me see—”
-
-I took the course schedule from Lian Qi’s hand and looked it over. The courses were roughly divided into four categories, the familiar ones—Enchantment, Manipulation, Evocation, and Illusion. Then, each class seemed to have a different theme. Also, I only just learned today that students can attend classes outside of their own specialization.
-
-“Hmm… Eh? There’s an Enchantment class this afternoon. Do you need me to sign you up?”
-
-“You seem even more excited than I am.”
-
-“Well…” I stuck out my tongue and smiled.
-
-“You, come with me first.”
-
-Lian Qi grabbed my hand and pulled me into the bedroom.
-
-She opened the closet, and what came into view were many identical school uniforms. They weren’t the drab magic robes, but vibrant, youthful uniforms.
-
-Lian Qi was clearly conflicted looking at the rows of boys’ uniforms for a moment—”This really wasn’t my intention,” she said, reluctantly pulling one out.
-
-She had to brave it and wear it to hide her identity as a girl. I was quite curious to see how handsome she would look in it.
-
-“It looks a lot like a uniform from a noble’s school,” she said, looking it over.
-
-“Yes. Sister Ejielia redesigned the school uniforms after she became the principal of the Magic Academy,” I said to her with a smile.
-
-I think the girls’ school uniform is quite pretty.
-
-Then, I watched as she took out a girls’ school uniform.
-
-“Eh? Do you want to try on the girls’ uniform?” I asked.
-
-“No—”
-
-She held the girls’ uniform out to me.
-
-“I want you to try it.”
-
-“Eh eh…???”
-
-+++
-
-# **19**
-
-Lian Qi held the girls’ uniform in front of me. “What are you hesitating for? Hurry up and change.”
-
-The unique feminine power of the girls’ uniform forced me to take half a step back.
-
-Don’t do this…
-
-I’m a boy.
-
-Wearing a maid outfit and a Lolita dress is embarrassing enough. Don’t make me try on a girls’ school uniform…!
-
-Although I thought Qifeng looked cute in her uniform when she came back from school, but…
-
-Don’t let me fall even deeper into the abyss of cross-dressing! Thinking back on the past fifteen years, I’ve almost always worn the “abstemious” church robes, as Qifeng put it. But after finding out I’m a boy, I’ve tried all sorts of girls’ clothes, like maid outfits, swimsuits, and Lolita dresses. Some I was forced to wear, others I couldn’t resist. In short, it’s gotten out of hand…
-
-“But… I’m not a student at the Magic Academy, just a maid accompanying you…”
-
-That’s right, I was still putting up a final struggle.
-
-Lian Qi gave a sly smile. “If you attend classes with me in a maid outfit, people will think I’m some spoiled rich kid. It’s better to be low-key, don’t you think?”
-
-“You do have a point…”
-
-I was convinced in an instant. What the heck!?
-
-Thinking about it, I would attract a lot of attention walking around the school in a maid outfit. If I changed into the girls’ uniform, it wouldn’t be so embarrassing, right? Yes, yes…! It’s decided.
-
-“So, what’s your choice?”
-
-“I choose to be low-key.”
-
-I snatched the girls’ uniform from Lian Qi’s hand and rushed into the next bedroom without looking back—!
-
-“Hey—! We’re both girls, what does it matter if you change in front of me?”
-
-Didn’t hear, didn’t hear…!
-
-I won’t give her the chance to order me to change in front of her again! Just like last time when I was forced to change stockings in front of her. When I’m in my maid role, it’s hard to disobey my master’s orders…
-
-I closed the bedroom door and even carefully locked it.
-
-“Hmm…”
-
-I shook out the girls’ uniform and examined it carefully. The uniform Sister Ejielia designed had a rather cute tie. As for the deep blue pleated skirt… I blushed in embarrassment. It’s so short…! It was half as short as my maid outfit’s skirt. Aren’t female students these days afraid of being exposed…? If it were me, I’d have to wear safety shorts.
-
-Otherwise, if a lecherous gust of wind blew by… what’s under my skirt would definitely be more shocking than anyone else’s…! You couldn’t beat me to death and get me to admit I’m the Saintess…!
-
-Without realizing it, I had already taken off my maid outfit, wearing only my white underwear, black over-the-knee socks, and nothing else. It’s a good thing I wore black socks today; they match the uniform better. Or at least, that’s what I personally feel… When I was passing by the castle, I saw some female students wearing white stockings, and they seemed to look pretty good too?
-
-As I was thinking, I put on the uniform skirt and zipped it up at the waist, only to realize a very serious problem!
-
-There’s no full-length mirror in this room!
-
-Without a full-length mirror, I don’t know what I look like in the uniform. I feel so insecure…!
-
-But Lian Qi is still waiting for me outside. She’s going to complain about how long it’s taking me to change. At this point, I can only put it on first and see later. I put on the uniform top and patted my chest—it caved in…
-
-My chest is so flat…
-
-If I don’t wear pads, will people mistake me for a boy?
-
-Even though I am a boy, I don’t want to be exposed for cross-dressing…
-
-In short, after putting on the girls’ uniform, I couldn’t see what I looked like. I could only walk out of the bedroom with a red face. I saw that Lian Qi had also changed into the boys’ uniform.
-
-She looked at me, I looked at her. A cross-dressing boy and a girl in boy’s clothes stared at each other. In short, it was a very strange picture.
-
-“You, what do you think of me in a boys’ uniform?” she asked, her tone a little uncertain.
-
-“Very handsome, and even more delicate than the average boy,” I said with a smile.
-
-“Honestly, this is my first time wearing boys’ clothes. Are there any flaws?”
-
-“Eh? Isn’t your school uniform from your other world boys’ clothes?”
-
-“No! Boys and girls all wear the same thing! I’m asking you if there are any flaws.”
-
-“Well…”
-
-“Tell me your most honest thoughts. That’s a master’s order.”
-
-“Because I’ve seen your… naked body, even if you dress like this, I wouldn’t think you’re a boy,” I said weakly.
-
-“Tch! Fine…” Lian Qi sighed. “Pretending to be a boy was never my intention anyway.”
-
-“Actually, I’m curious to try dressing you up in a more girlish way. Like… with a wig, and a girls’ school uniform,” I said with a smile.
-
-Lian Qi looked at me in surprise—”So you have such thoughts?”
-
-I don’t know why I have the urge to dress up Lian Qi. Maybe my girlish heart is overflowing? Oh… so embarrassing…
-
-“Let’s not talk about me. Ahem, you’ve already put on the girls’ uniform.”
-
-She took a step closer to me and looked me up and down. I was so nervous that a bead of cold sweat trickled down my forehead.
-
-Please don’t look at my chest! It’s too flat, there’s nothing to see.
-
-Also, please don’t lift my skirt…!
-
-“The uniform really suits you,” she said sincerely.
-
-I smiled shyly… “Thank you for the compliment.”
-
-As a boy, am I hopeless for seeking validation for my cross-dressing?
-
-“But there’s no full-length mirror, so I don’t know what I look like in the uniform…”
-
-“That’s easy to fix.”
-
-Lian Qi took out the object called a cell phone from the pocket of her discarded pants. Oh right, this thing can record images.
-
-“Let me take a picture for you. Strike a slightly embarrassing pose.”
-
-“I can’t do that…!” I said, blushing.
-
-Even in front of a full-length mirror, I wouldn’t make an embarrassing pose… let alone in front of her…!
-
-“Done.”
-
-“Done…? So fast?”
-
-“Yeah, take a look.” She handed me the phone.
-
-“Wow… so clear.”
-
-In the picture, I was covering my mouth with the back of my hand, my eyes shyly glancing to the side. It was really quite embarrassing…!
-
-This uniform is actually very pretty. It gives off a youthful and beautiful student vibe. After all, I’m only fifteen.
-
-I inadvertently swiped the screen, and the picture changed to me making a wish in front of a cake in my Lolita dress.
-
-“Eh…? When did you secretly take a picture of me?”
-
-I swiped again. Wh-what—is this! It’s a picture of me changing stockings in front of her!?
-
-My face instantly turned beet red.
-
-“Don’t—don’t look at the previous ones—!” Lian Qi hurriedly snatched the phone from my hand.
-
-“So you’ve been secretly taking pictures of me all this time…”
-
-“There are only a few,” she said, ignoring my accusing glare. She then put her arm around my shoulder and held up the phone with her other hand.
-
-“Here, look at the camera~”
-
-“Eh…?”
-
-I was completely unprepared but obediently did as she said.
-
-And just like that, a picture of me in a girls’ uniform and her in a boys’ uniform was recorded by this device.
-
-“This is our second photo together,” she said with a grin after lowering the phone.
+—Je, je.
 
 “…”
 
-I looked at Lian Qi with a red face, reached out, and straightened the tie on her uniform.
+Shuu me lanzó una mirada francamente gélida.
+
+*Ya veo, puede que me haya pasado un poco…*
+
+—Él sabe que soy un chico, ¿verdad?
+
+—Quién sabe. Al parecer, la mitad de los de primer año creen que eres una chica.
+
+—¿Por qué pensarían eso si llevo el uniforme de chico?
+
+—Probablemente sea por tu cara.
+
+Durante nuestro toma y daca, otros dos chicos corpulentos se acercaron a Shuu.
+
+—Ah, Hino, estoy seguro de que hoy tampoco te tocará el turno.
+
+—Lo mismo para el subdirector del club.
+
+Efectivamente, esos eran los dos miembros restantes del equipo. El segundo y el del medio.
+
+—Son de fiar, ¿no? —le pregunté a Shuu.
+
+—¡Vaya que sí! —confirmó él.
+
+—¡Oh, Pequeño Ali!
+
+—Vaya...
+
+Aunque eran de otra clase y no los conocía, ellos obviamente me conocían a mí. Al parecer, no había nadie en la secundaria, la preparatoria o la universidad de nuestra escuela que no supiera de Mika, Shuu y de mí... y de Rir también, a estas alturas. Kanata y Sakura, que habían salido en la televisión, ni se diga. Todo el mundo los conocía, excepto aquellos que estaban completamente en las nubes como Gorilla Sensei. Ya había alcanzado una escala demencial.
+
+—¿Cómo se llaman?
+
+—Se llaman Futayama y Nakagawa. No tienen ninguna resistencia a las mujeres, así que se desmoronarán si haces cualquier cosa.
+
+"Ya veo".
+
+Era bueno saberlo. En ese caso, tenía que asegurarme de que dieran lo mejor de sí.
+
+—¿Uhm, Futayama y Nakagawa?
+
+—¿Q-Q-Qué pasa, Pequeño Ali?
+
+—Puede que no siempre tengamos tiempo para animar a nuestro amigo de la infancia, ¡así que, por favor, asegúrense de apoyarlo ustedes también!
+
+*Je, je, tal vez eso funcione con esos dos.*
+
+Me colé entre los dos y rápidamente les pasé los brazos por los hombros. Luego les susurré al oído a cada uno con una voz intencionadamente seductora.
+
+—Futayama, Nakagawa, ustedes pueden guiar a Shuu... no, a todos hacia la victoria. Sé que pueden hacerlo.
+
+Les guiñé un ojo, di un paso atrás y les palmeé la espalda. Con eso, ya había terminado.
+
+—Daré... lo mejor de mí.
+
+—Hino, ¿así es como se siente cuando un dios te gasta una broma?
+
+—Pero si es un chico. Y es incluso más alto que tú, Futayama.
+
+—No quiero oír eso de ti.
+
+Más tarde me enteré de que Futayama medía 165 cm, lo que significaba que yo era más alto con mis 170 cm. Los hombres solían decir que el hecho de que la mujer fuera más alta les daba una sensación extraña, pero no era tan inusual que las chicas midieran más de 175 cm.
+
+—Ya es hora de que los participantes suban al escenario —anunció Gorilla Sensei—. No me importa que se deshagan en elogios con Joujou, pero no se excedan.
+
+—¡Sí, señor!
+
+En cuanto oyeron eso, se pusieron serios de inmediato. Fue bastante genial y me ayudó a entender mejor cómo se sentían las chicas a las que les gusta ver deportes.
+
+Por otro lado, parecía que los demás habían estado hablando con Gorilla Sensei. Bueno, si Mika hablara con los miembros del club, acabarían completamente agotados como trapos escurridos. En mi caso, las personas que sabían que yo era varón podían mantener algo de compostura, pero en sus manos eran como plastilina.
+
+Lo que es más importante, los participantes habían empezado a subir al escenario mientras yo no miraba. Todos los feroces combatientes que superaron el torneo regional estaban ahora reunidos en el centro. Vaya... algunos parecían medir cerca de dos metros. ¿Cómo era eso posible? En cualquier caso, Shuu se veía tan gallardo que destacaba bastante. Era un poco incómodo llamar guapo a mi amigo de la infancia, pero era la verdad.
+
+Poco después, la ceremonia de apertura terminó y los que no participaban en el primer combate regresaron a sus asientos.
+
+"¡Muy bien... el siguiente será el primer combate...!"
+
+"...Uhm, estaba pensando en ir solo para el primer combate, si es posible".
+
+"...¿Puedes hacerlo? Este es el torneo de la prefectura".
+
+Fue Hoshino quien hizo esa petición descabellada. Asintió con firmeza ante la pregunta, pareciendo haber tomado una decisión.
+
+"De alguna manera, siento que hoy podré hacerlo".
+
+"...Está bien. Da lo mejor de ti".
+
+—¡Sí!
+
+¿Quién podría haber predicho este resultado? Nadie imaginó que Hoshino llevaría a cabo su declaración.
+
+**Notas:**
+
+1. En el original lo llama "Ayu-chan-san" y ni siquiera sé por dónde empezaría a intentar localizar eso, así que opté por su apodo conocido "(pequeño) Ali" en su lugar.
 
 +++
 
-# **20**
+# **617 – El Torneo de Judo de la Prefectura – 3**
 
-Lian Qi stared blankly, watching me in silence.
+"Ja, ese idiota realmente lo hizo".
 
-“You tidying my tie… gives me a strange feeling.”
+Hoshino, de primer año, había aniquilado al equipo contrario durante el primer combate, desde su vanguardia hasta su capitán, él solo.
 
-“A strange feeling?”
+El lugar se había vuelto terriblemente ruidoso.
 
-“Yeah, that gesture is a bit too intimate. Isn’t it usually something a wife does for her husband?”
+"I-Increíble..."
 
-Was she implying that my actions were like those of a little wife?
+"Sí, es el segundo que logra conseguir eso durante el torneo de la prefectura".
 
-D-Don’t be ridiculous. I’m a boy, although my mannerisms and mindset do lean a bit more feminine.
+"Eh, Gorilla Sensei, ¿quién fue el otro?"
 
-Speaking of which, after putting on the boy’s uniform, Lian Qi’s really gotten into character…
+"Hino".
 
-“If you went out with your tie crooked, people would see it and think I’m incompetent as a maid.”
+Ahora que lo pienso, recordaba a Shuu haciendo algo parecido. Competí en el torneo de lucha en Anazumu cuando todavía era débil, así que podía notar lo anormal que era eso.
 
-Just as I said. It was understandable that Lian Qi, having never worn a boy’s uniform before, might have a crooked tie or an unbuttoned button. It was up to me to be attentive.
+"Hoshino... siempre fue impredecible".
 
-After fixing her tie, I moved my hands away from her collar, took a step back to look at her, and nodded. Much more perfect.
+"Shuu, ¿qué quiere decir con eso? Suena un poco como si tuviera mal genio[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120338)".
 
-“Now we can go out,” I said to her with a smile.
+"Él no es así... Para decirlo sin rodeos, su vigor y poder difieren según el momento y la situación".
 
-Of course, my job as an accompanying maid was more than just helping my master with her appearance. I also urged Lian Qi to sign up for a few more classes on the schedule. After all, even Sister Meilin had said there wasn’t much time left before the graduation festival’s ranking battles, and she hoped Lian Qi would attend classes every day.
+"Ya veo".
 
-But what worried me most was that Lian Qi still hadn’t created her own magic. That required her to comprehend it through “facing the wall” in self-study. Generally speaking, more time spent in class meant less time for self-study. It was my responsibility to help her find a balance.
+Sin interrumpir la conversación de Shuu y Rir, Gorilla Sensei continuó.
 
-Just then, I accompanied Lian Qi to submit the completed course schedule. There was an Enchantment class that very afternoon, which was perfect since Lian Qi was an Enchanter.
+"Al parecer entrenó Judo desde que estaba en el preescolar, pero sus talentos no florecieron. Incluso cuando llegó a la preparatoria, todavía tenía ese complejo de ser débil. Pero ahora eso cambió".
 
-As we walked out of the registrar’s office, a maid stopped us.
+"Bueno, Gorilla Sensei prácticamente descubrió sus fortalezas de inmediato", explicó Shuu, "y una vez que se aseguró de elogiarlo lo suficiente, se volvió así de fuerte".
 
-“Eh…?”
+Escuchar lo increíbles que eran las habilidades de liderazgo de su instructor confirmó lo gran maestro que era el hombre.
 
-I saw that she wasn’t very old, probably around our age. She had medium-length, grass-green hair, wore a headband, and her maid outfit was even more embarrassing than the one I usually wore…
+"¡Es increíble, Gorilla Sensei!"
 
-How could she walk through a crowd of students in such a shameful maid outfit without batting an eye? I definitely couldn’t do that.
+"¿Eso crees? ¿No es natural que un profesor dé lo mejor de sí?"
 
-“Excuse me, you must be the transfer student who shattered the Magic Test Bell with a single punch?”
+"Vaya".
 
-She bowed to Lian Qi with perfect etiquette. I could see the professionalism of a dedicated maid in her.
+Este tipo era probablemente el profesor más genial de nuestra escuela. Incluso con esa cara suya.
 
-“No, that bell was already broken.”
+Mientras hablábamos, Hoshino regresó con una enorme sonrisa.
 
-“I am the maid of the student council president, Ounisit. The president invites you for a meeting at the student council. I wonder if you could spare a moment?”
+"¿Vieron eso, todos?"
 
-“The student council…?”
+"Sí, estuviste asombroso".
 
-My first thought was that the student council president actually had a maid. Could he be the child of some noble family?
+"¡Eso fue increíble, Hoshino! ¡Lo hiciste genial!"
 
-“But we have a class this afternoon…” I said.
+De hecho, si los elogios lo hacían tan fuerte, entonces hacían falta más cumplidos. Aprendí bien cómo manejar a la gente en Anazumu.
 
-“It will not take much of your time,” the other party replied.
+—N-No es para tanto... ja, ja...—
 
-I looked at Lian Qi. Of course, the decision was in her hands.
+—¡Lo fuiste! ¡Eres realmente fuerte!—
 
-Lian Qi smiled. “We must have been too high-profile when we entered the academy, right? Someone has already taken notice of us.”
+—N-N-No soy tan genial... Je, je, muchas gracias.—
 
-“You mean…?”
+Parecía bastante feliz mientras regresaba a su lugar.
 
-“Of course we’ll go and see what this student council is all about. If I don’t go, people will think I’ve chickened out, right?”
+Shuu me estaba fulminando con la mirada.
 
-The maid curtsied. “Please don’t say that. My master—the student council president—admires you very much.”
+—Te has vuelto buena en eso, ¿eh?—
 
-Admires her? Hearing that, I seemed to understand. Was the other party trying to extend an olive branch to Lian Qi?
+—A estas alturas, siento que podría convertirme en la mejor hostess de Ginza.—
 
-“Please, follow me.”
+—Hostess, no host, ¿eh...?—
 
-…
+—Sip.—
 
-…
+___
 
-…
+*"¡Y el equipo de la preparatoria — se lleva el campeonato! Ahora le cedemos la palabra a su capitán, Hino Shuu—"*
 
-We followed the maid to the so-called student council. Just as we pushed open the lavishly carved wooden doors, before we even stepped inside, we heard the pleasant melody of a piano. The playing seemed to be on par with my own. I followed the sound of the piano and saw a blond boy playing. Since I’m also a boy, I just thought he was reasonably handsome, nothing more.
+Al final, los dos combates restantes terminaron sin que ni siquiera el vicecapitán del equipo tuviera su turno. Noté que otros empezaron a llamar a nuestra escuela la "Preparatoria de los Monstruos".
 
-I shifted my gaze elsewhere. This student council even had a grand piano, and the interior was indeed quite aristocratic. It made a newcomer like me wonder if the student council was an organization for the children of nobility.
+*Shuu es lógico, pero ¿por qué algunos me señalan a mí? ¡No lo entiendo, no soy un monstruo!*
 
-“He seems to play okay,” Lian Qi whispered to me. “Better than a level ten pianist.”
+*"Por supuesto, aunque no he tenido nada que hacer como parte de mi equipo hasta ahora, así que no hay mucho que pueda decir. Aun así—"*
 
-When the piece was finished, the blond boy closed the piano with a look of rapture. The other student council members around him applauded. “Is that ‘Ethereal Garden’?” I said softly.
+Era una lástima que Shuu tuviera que hacer la entrevista a pesar de no haber peleado en absoluto. Los tres miembros que participaron en los combates y lo dieron todo —especialmente Futayama y Nakagawa— sonreían de oreja a oreja.
 
-“Oh? This maid actually knows what I’m playing? Interesting.” He glanced at me, then his gaze shifted to Lian Qi.
+*"Conocemos sus logros en los combates individuales. Uno se pregunta por qué su escuela produce tantos atletas sobresalientes".*
 
-“You’re the transfer student who broke the Magic Test Bell with one punch, right?”
+*"Esto es sin duda gracias a nuestro instructor, Gorilla Sen— ah, me equivoqué—"*
 
-“No, that bell was already broken,” Lian Qi emphasized to him again. Actually, Lian Qi could have taken credit for breaking the bell, but she didn’t, which showed she wasn’t a boastful person. I rather admired that about her.
+El instructor pareció avergonzado cuando a Shuu se le escapó su apodo. Ciertamente, un gorila luciendo incómodo, aunque probablemente era una forma dura de decirlo.
 
-“Allow me to introduce myself. I am the president of the Magic Academy’s student council, Allen Ounisit, son of Minister Ounisit. May I ask for your esteemed name?”
+*"Finalmente, ¿podría mostrar su entusiasmo por el torneo provincial?"*
 
-I sensed that he was trying to probe Lian Qi’s background. After all, in their eyes, a transfer student like Lian Qi, accompanied by a maid, must also be the child of some noble or high-ranking official.
+*"Bueno, no me siento diferente a como me sentía al principio, ya que todavía tengo que pelear mi primer combate en la competición por equipos, ¡pero lo daré todo!"*
 
-But Lian Qi simply replied, “My name is Lian Qi. That’s it.”
+*"¡Por supuesto, gracias por sus palabras! A continuación, unas palabras del competidor que más llamó la atención; el estudiante de primer año Hoshino de la preparatoria —"*
 
-The minister’s son was slightly taken aback, and the other student council members exchanged glances. Perhaps in their eyes, a noble scion who didn’t announce their illustrious family name was unheard of.
+Después de que terminó la entrevista de Shuu, él solo se acercó a nosotros.
 
-“Brother Lian Qi, you don’t have to keep it a secret. We all know,” the blond boy said, gesturing with an open hand to his fellow student council members.
+—...Hah~.—
 
-“You’re one of us. Everyone standing here is a future pillar of the kingdom. As a transfer student hand-picked by the principal, your family background must be extraordinary. But what I admire more is your own strength. Our student council needs people like you. I hope you will join us, and we can prosper together.”
+"¿Qué pasa?"
 
-He extended his hand to shake Lian Qi’s, but she ignored him. The scene became awkward.
+—No es nada, solo estaba pensando... ¿por qué tengo que dar esta entrevista cuando no he hecho nada hasta ahora?—
 
-“Who’s one of you? Sorry, I’ve never been one to fit in.”
+—Ya, ya.— Le di unas palmaditas en la espalda.
 
-She turned to me and said, “Fei’er, let’s go.”
+*Hm~, no hay ni una sola gota de sudor. Al final, él es el más genial solo cuando puede darlo todo.*
 
-Eh eh eh??
+—Lo siento, después de que viniste hasta aquí para mirar.—
 
-I quickly followed Lian Qi, leaving the student council members behind, probably all stunned.
+—Para nada, tu equipo ganó, así que eso es algo bueno. Puedes lucirte mañana—, le dije.
 
-We just arrived and now we’re leaving. What just happened?
+—Cierto, lo haré.—
 
-I walked out of the student council with her and couldn’t help but ask, “Why did you refuse his invitation so quickly?”
+—¡Oh, no puedo esperar!— coincidió Mika.
 
-“The people around him—”
+Shuu y yo nos levantamos el pulgar mutuamente. Mika se unió e hizo lo mismo.
 
-“You mean the other noble students?”
+—Oye, ¿eso significa que la esposa de Hino es Fún, y Ali y Mika son sus amantes?—
 
-“No, I’m not talking about the ones who were sitting. The others standing guard at the door like bodyguards are probably his lackeys, right? Three of them were the drunkards who hit on you in front of the cake shop window on the night of the Christmas Festival.”
+—Supongo que sí.—
 
-“Eh eh????”
+Me pareció oír un comentario extraño, pero probablemente fue mi imaginación. Sí, definitivamente mi imaginación.
 
-“The moment I saw them, I lost all good impression of the student council,” Lian Qi said coldly.
+—¡Eh! ¿Qué están haciendo ustedes tres? ¡Yo también quiero entrar!— Rir se unió a nuestra conversación sonando algo entusiasmada.
 
-I had a feeling that Lian Qi had refused their invitation without hesitation because of me…
+De hecho, era como si hubiera formado parte de nuestro grupo desde siempre... Ahora que lo pienso, ¿qué pasó con mi hermano menor y mi futura cuñada? Giré la cabeza hacia donde deberían estar sentados.
+
+"...Me-Me alegra tanto que puedas ver de nuevo..."
+
+"Gr-Gracias por decir eso..."
+
+Estaban rodeados de mucha gente que probablemente los vio en la televisión y parecía estar pasándolo mal.
+
+**Notas:**
+
+1. En el original, ella se pregunta si Hoshino tiene un lado lascivo. No se me ocurrió una forma de traducir eso al español manteniendo el otro significado
 
 +++
 
-#  **21**
+# **618 – La Competición Individual del Torneo Prefectural – 1**
 
-That night of the Christmas Festival, I was staring at the birthday cakes in the shop window when three drunk men approached me, wanting to hit on me. At that moment, it was Lian Qi who stood in front of me and chased them away.
+Los cuatro y todos los miembros del club de judo nos habíamos reunido en el mismo lugar que ayer.
 
-That was the first time I realized—huh? Lian Qi wasn’t just someone who bullied me; she actually had such a reliable side to her.
+"Hoy es la competición individual."
 
-As for the three men, I didn’t remember their faces very well. I was quite surprised to hear Lian Qi say that those three were actually students from the Magic Academy. And members of the student council, no less.
+Habíamos venido una vez más para animar a Shuu. Como se mencionó hace un momento, eran los combates individuales, ¡así que finalmente veríamos a Shuu en acción!
 
-“The student council will definitely participate in the graduation festival’s ranking battles, right? Trying to win me over at a time like this, I wonder what they’re up to,” Lian Qi said.
+"Siento haberlos arrastrado aquí dos días seguidos."
 
-I accompanied her down the stairs. Speaking of which, there were many staircases in the castle, some wide and grand, others narrow and small.
+"Está bien, somos amigos, ¿no?"
 
-“Because you’re very strong, Lian Qi. It would be unwise to make an enemy of you rashly. I think… they most likely want to find out about your background. Right now, your identity is a mystery to them.”
+"Exacto".
 
-I could already imagine these spoiled brats secretly using their networks of connections to find out which noble or high-ranking official’s child Lian Qi was. But it would be useless~ Lian Qi is an otherworlder. Only a very few people know her identity.
+"Heh-heh-heh."
 
-“Yeah, they must see me as a thorn in their side.”
+Por alguna razón, se rió, luciendo extremadamente feliz. En ese sentido, preparamos una sorpresa para hoy.
 
-“Another undeniable point is that your arrival, Lian Qi, is like a drop of water that has fallen into a deep pool, creating ripples. You’ve already disrupted their rhythm.”
+"Eso me recuerda, ¿trajeron cajas de almuerzo hoy, todos?"
 
-“From the looks of it, that student council president is dead set on getting first place in the ranking battles. So it’s useless for me to join them. We’ll still meet on the stage in the end, unless they’re trying to win me over to make some kind of deal.”
+"Rir hizo la mía... pero viniendo de ella, es todo cosas fritas..."
 
-I agreed with what Lian Qi said. Allen Ounisit is the son of Minister Ounisit and the president of the student council. He must have had his eyes on the top spot for a long time. The student council, as a club for spoiled brats, has probably already reserved the top three places.
+"Creo que el mío es onigiri", respondió un miembro del club.
 
-Right then, I accompanied Lian Qi back to the first floor of the castle. Along the way, I noticed that we had a very high rate of turning heads when we walked together. From time to time, some boys would stare at me. It’s a good thing I wasn’t wearing my maid outfit today, so it wasn’t as embarrassing…
+"Igual yo", añadió otro.
 
-Honestly, they have no idea they’re actually staring at a boy.
+*Ya veo, es tal como predijo Mika. Que Rir hiciera comida frita para Shuu también estaba dentro de lo esperado. Eso significa que podemos invitar a todos.*
 
-And those girls staring at Lian Qi, don’t you all know that Lian Qi is actually a girl?
+Tras intercambiar miradas con Mika, saqué una gran caja de comida de una bolsa cercana.
 
-“Let’s go back to the dorm first. We still have class this afternoon,” Lian Qi said to me, and I nodded.
+"Oigan, ¿por qué no comemos todos juntos al mediodía?"
 
-…
+"""¿¡Eh...!?"""
 
-…
+"Lo preparamos nosotros, ya ven. Ya que Rir solo hace comida frita."
 
-…
+"Mika y yo hicimos algo diferente. ¡Y tenemos un montón!"
 
-In the afternoon, Lian Qi attended her first class after enrolling. As her accompanying maid, I sat next to her.
+Los miembros del club parpadearon sorprendidos.
 
-After entering the classroom, I found that accompanying maids weren’t as rare as I had originally thought. In this “Enchantment” magic class, there seemed to be two others. Including me, that made three, except I wasn’t wearing a maid outfit. It seems that the children of noble families still make up a certain proportion of the students at the Magic Academy.
+"¡Por supuesto, es todo cocina casera de Mika, Sakura, Rir y mía!", continué. "¡Lo planeamos y nos levantamos temprano por la mañana para hacerlo!"
 
-When it was time for class, Teacher Meilin, who taught Enchantment magic, walked into the classroom. I don’t know if it was because of the upcoming graduation festival, but the class was full of students. I wonder how many of them were actually in the Enchantment specialization?
+"Ahora que lo pienso, Rir parecía ocupada por la mañana...", reflexionó Shuu, "así que era por eso."
 
-Teacher Meilin stood at the lectern, cleared her throat, and began to speak: “Given that there isn’t much time left before the graduation festival, in order to prepare for the upcoming ranking battles, this class will focus on combat for Enchantment magicians.”
+Los miembros del club tragaron saliva.
 
-Eh? I had already prepared my pen and notebook in anticipation, so hearing her say that today’s lesson was on Enchantment combat caught me a bit off guard. Lian Qi had just learned the basics of magic power. To go directly into hearing about Enchantment combat seemed like a bit of a big leap…
+"U-Uhm, ¿de verdad podemos comer la comida que tienes en esa caja al mediodía?"
 
-“Fei’er, you’re really good at pen spinning,” Lian Qi whispered in my ear. The breath she exhaled tickled my ear like a hundred claws scratching at my heart.
+"¡Claro! ¡Pueden comer el onigiri que trajeron como plato principal con los acompañamientos de esto! La oferta obviamente incluye a Gorilla Sensei."
 
-“Eh? I just unconsciously… Please pay attention in class…!” I gently nudged her with my elbow and whispered back.
+"¿En serio? ¡Eso es genial!"
 
-I’ve gotten used to spinning pens like I spin my hammer…
+Por alguna razón, un fuego parecía arder en lo profundo de los ojos de los miembros del club. Esta había sido otra táctica para aumentar su motivación.
 
-I heard Teacher Meilin say: “First, let’s talk about the defense of the Enchantment specialization in actual combat. As we all know, the defensive methods of the four major specializations are different in actual combat.”
+*Heh-heh-heh.*
 
-“I don’t know that…” Lian Qi whispered in my ear again. Whoa…! Her breath was tickling my ear again. I could only endure it without showing any expression, but the handwriting in my notebook became crooked…
+"Yo... estoy tan feliz de practicar judo."
 
-Teacher Meilin asked a question—”Which student can tell us what the differences are?”
+"Sí, quién hubiera pensado que llegaríamos a comer comida casera de tres bellezas de clase mundial y una hermana menor... ¿es esto un sueño? Debe ser un sueño."
 
-A group of people eagerly raised their hands.
+*¿Hm? ¿Por qué mencionaron a Sakura por separado después de "tres bellezas de clase mundial"? Mika, Rir y Sakura deberían ser esas tres, ¿no?*
 
-“Miss Lola, you can start by telling us how the Manipulation specialization defends against attacks.”
+"¿Kanata no cocinó nada?", preguntó Shuu mientras yo reflexionaba. "Normalmente, estaría todo entusiasmado por hacer algo como esto."
 
-A short girl with glasses stood up and answered timidly: “A Manipulation magician can interfere with the movement of objects through willpower. For example, they can bend an incoming sword, deflecting the attack, and can even create a shield that reflects attacks.”
+"Él dijo: 'la comida que ofreces a los demás debería ser hecha por chicas, así que no seré tan desconsiderado de unirme a ustedes' y se abstuvo de cocinar nada".
 
-“That’s a very correct answer. You must be from the Manipulation specialization, right?” a student pointed out on the spot, which led to other students heckling—
+"Pero al final sí te uniste a la cocina, ¿no?"
 
-“A Manipulation student eavesdropping on an Enchantment class!? A spy!”
+"¡Sí, confío en mis habilidades! Desde que fui a Anazumu".
 
-“Get out! You’re not welcome!”
+"…¿De verdad estás bien con eso?"
 
-Many students hissed, making the girl’s face turn red, until Teacher Meilin coughed a few times and the classroom quieted down.
+"¿Eh?"
 
-“So, the defensive ability of the Manipulation specialization is one of the best among the four major specializations. Now, let’s talk about the Evocation specialization—students, you don’t need to raise your hands.”
+"…Oh, como sea. Supongo que *sí* eres un idol".
 
-“The defense of an Evocation magician themselves is not high. They mainly rely on magic shields corresponding to their own elemental attributes to protect themselves.”
+No entendí muy bien a qué se refería. ¿Cuál era exactamente el problema? ¿Fue un error prepararlo ya que yo no era una chica y no cumplía con las condiciones de Kanata? Pero Shuu solía comer cualquier cosa que yo hiciera con una gran sonrisa en su rostro. ¿Hm~?
 
-“Teacher, no matter how weak, it can’t be weaker than the Illusion specialization, right? Legend has it that Evocation can elementalize the body,” a boy said.
+"Sí, animar el espíritu con cajas de almuerzo está muy bien, pero ya casi es la hora", intervino Gorilla Sensei.
 
-“An Illusion magician sacrifices their own defense while creating powerful, weapon-type inherent magic. Therefore, their physical defense is the weakest among the four major specializations,” Teacher Meilin explained.
+"Oh, lo olvidé por completo", respondió Shuu. "Me iré a preparar, entonces".
 
-“And compared to Manipulation, Evocation, and Illusion—the way the Enchantment specialization defends against attacks is much simpler and more direct—in most cases, you just have to tank it. Due to the characteristics of the Enchantment specialization, cultivating ‘Magic Aura’ and ‘Magic Armament’ is twice as effective as for other specializations. Therefore, attacks of general intensity can hardly shake the defense of an Enchantment magician.”
+""¡Cierto! ¡Da lo mejor de ti!"", le dijimos Mika y yo.
 
-“So the advantage of my Enchantment specialization is that I’m more durable?” Lian Qi whispered in my ear.
+""Tú puedes, Shuu"", coincidieron Kanata y Sakura.
 
-Whoa…! Please stop breathing on my ear…! My legs are going weak…
+"¡Por favor, da lo mejor de ti, Shuu!", exclamó Rir.
 
-“But I must emphasize one point. The true essence of Enchantment lies in imbuing other objects with magic, not just strengthening your own body. I find that most Enchantment students have too narrow an understanding of Enchantment, at most only thinking of enchanting the weapons in their hands. Alas—”
+"Lo haré."
 
-Teacher Meilin sighed.
+Al ver que estaban frente a otros, Rir se contuvo un poco mientras lo abrazaba. Tras separarse de inmediato, Shuu mostró una sonrisa mientras desaparecía tras el escenario. Rir también mostró una pequeña sonrisa al sentarse junto a Mika.
 
-“This has led to the Enchantment specialization not producing any outstanding magicians for several decades.”
+"Guau, podremos ver a Shuu en su mejor momento. A esto es a lo que vinimos".
 
-“What are you doing?” Lian Qi asked me curiously.
+"No te equivocas. Pero también deberíamos animar a los otros miembros del equipo, ¿verdad?"
 
-“I’m taking notes for you. There’s a lot of information in class, and I’m worried you’ll forget it easily. If I write it down, you can look at it anytime you want when you get back.”
+"¡Obviamente! Pero aun así lo animaré a él con todo mi corazón".
 
-As I spoke, the pen in my hand kept scribbling across the paper.
+Shuu realmente era amado… Por eso él y Rir siempre recibían miradas de odio cuando se abrazaban en la escuela. La gente obviamente tenía envidia.
+
+"En cualquier caso, se siente un poco repentino que Shuu esté en la primerísima pelea".
+
+"Cierto, hay una razón para ello".
+
+Gorilla Sensei se había unido a nuestra conversación.
+
+"¿A qué te refieres?"
+
+"Es porque no tuvo rival en la competición regional. Si este torneo los tuviera, sin duda habría sido cabeza de serie. Bueno, es un remanente de eso. Están intentando avergonzarlo".
+
+"Ya-ya veo".
+
+Eso significaba que realmente mostró un desempeño sin igual. Era alguien capaz de acabar con una banda peligrosa por sí solo, así que si se esforzaba al máximo, probablemente podría dominar todo el torneo él solo.
+
+"Ahí está. Je, je, je, se ve tan genial".
+
+Mientras se anunciaba su nombre, preparatoria y año académico, Shuu entró al ring. Seguido por su oponente.
+
+Bueno, al final, Shuu era bastante guapo. Mirándolo aquí, parecía muy diferente.
+
+"…Está empezando".
+
+El árbitro llegó a su lado. Los competidores juntaron sus manos cerca de sus obis y se inclinaron.
+
+*"¡Comiencen!"*
+
+___
+
+**Nota del autor:**
+
+Cometí otro error relacionado con la investigación: la competición individual en los torneos de judo interescolares no consiste en un torneo de eliminación directa, sino que utiliza un sistema de puntos (probablemente relacionado con el número de victorias). Para mi pesar, terminé dejándome llevar por el aspecto competitivo de la historia.
+
+En cuanto a ejemplos pasados como gafas que permiten a los ciegos ver lo suficiente para su vida diaria, están muy alejados de la realidad. Podrías considerar la Tierra en mi ambientación como una realidad alternativa, incluso antes de que ocurra la primera reencarnación en otro mundo (aunque podría ser el futuro de nuestra Tierra).
+
+Mis más sinceras disculpas. De ahora en adelante, ignoraré tales cosas arraigadas en la realidad.
 
 +++
 
-# **22**
+# **619 – El Torneo Prefectural: Competición Individual – 2**
 
-Lian Qi is the worst…! Openly breathing on my ear in class! We were just whispering, did she really have to send so many ticklish breaths into my ear? Whoa…! I don’t even know if she was doing it on purpose…
+*"¡Un punto completo!"*
 
-I could only endure it… I still had to take notes for her, but every time she breathed, my handwriting would get all crooked. I couldn’t get used to it.
+"Como pensaba, se acabó en un instante".
 
-I finally made it through class. Holding my notebook, I flowed out of the classroom with the crowd. That Lian Qi…! She held my hand the whole way, acting as if she had no idea what she had just done in class.
+"Hah… guau… hah, hah… guau…"
 
-“The teacher said the Enchantment specialization hasn’t produced any outstanding magicians in decades,” she said to me.
+""""¿¡Qué!?""""
 
-“They probably all choose to become warriors after graduation…” I gave a weak smile. “The teacher also said that the Enchantment students have too narrow an understanding of their specialization, at most only thinking of enchanting the weapons in their hands.”
+No pude evitar mirar dos veces. Los que habían soltado el grito de sorpresa al mismo tiempo fuimos Mika, Kanata, Sakura y yo.
 
-“Yeah, strengthening the body with magic, then strengthening the weapon, isn’t that just a close-combat melee class? No wonder the teacher sighed and said she’s been training warriors these past few years.”
+No es que no pudiera ver lo que había pasado. Gracias a la Técnica Marcial Secreta, tenía las habilidades de un luchador profesional. Pero incluso desde esa perspectiva, Shuu era anormal. Más bien, era prácticamente un monstruo.
 
-However, it was understandable that the vast majority of Enchantment students chose to become warriors after graduation. After all, that was the characteristic of the Enchantment specialization. There was no need to rack your brains to create inherent magic; you just had to keep training to enchant your body and weapons. Simple, brutal, and effective.
+Solo habían pasado unos escasos segundos desde que empezó el combate. Hasta el momento en que los dos luchadores se agarraron, todo era normal. Después, sin embargo, fue como si hubiéramos entrado en otra dimensión y, antes de que me diera cuenta, el árbitro, con algo de retraso, estaba cantando el punto completo.
 
-That’s why it had evolved into the awkward situation of “the Enchantment specialization has no magicians.”
+"Así que las cosas seguirán igual incluso en el torneo prefectural".
 
-“Lian Qi is an Enchantment magician too. It’s up to you to break this situation,” I said with an encouraging smile.
+"Hah… hah… *glup*".
 
-“Of course, I don’t want to be a warrior. I’m determined to be a magician of explosion magic!” Lian Qi said, clenching her fist.
+Hice que Shuu luchara contra montones de judokas robóticos (y a veces incluso contra expertos de otras disciplinas marciales) y este fue el resultado.
 
-“I’m relieved to see you’re so determined. After all, the more obsessive you are, the more likely you are to create the inherent magic you desire.”
+"Nuestro amigo de la infancia ya no es humano".
 
-—That voice!?
+"Cierto. Ya no soy capaz de distinguir qué está pasando".
 
-Was it Sister Ejielia?
+"En cualquier caso, Rir ha estado actuando raro desde hace un rato".
 
-Lian Qi and I stopped. Just then, Ejielia had walked out of another classroom and happened to overhear our conversation.
+"¿Eh?"
 
-Lian Qi sighed and said, “But I have no idea how the Enchantment specialization can learn explosion magic…”
+Cuando miré hacia ella, sus mejillas estaban rojas de la emoción, respiraba agitadamente con la boca entreabierta y su mirada estaba fija intensamente en Shuu. Parecía que le costaba respirar, con una mano apretando su pecho y la otra entre sus muslos. Si tuviera que describir su aspecto en pocas palabras, diría que estaba en celo. Sentí lástima por mi mejor amigo.
 
-“Eh? Sister, is your class over?”
+"Rir, ¿estás bien?"
 
-I noticed it was the Illusion classroom.
+"Shuu es tan genial… hah~… demasiado genial… hah~… hah… Oh, lo siento, chicas".
 
-“Yeah, Fei’er. My school uniform design is not bad, right? I think you look very cute in it,” Sister Ejielia said with a smile.
+Pasó bastante tiempo hasta que pareció darse cuenta y nos respondió. Su expresión no se parecía a nada que nos hubiera mostrado antes.
 
-I blushed and didn’t answer.
+"¿Por qué estabas en ese estado?"
 
-“As the principal, you have to teach too?” Lian Qi asked. “And you’re teaching—eh? Illusion. I remember you said you were in the Evocation specialization.”
+"C-Como mujer wolfkin… una hembra de una tribu guerrera, yo, este, me encanta cuando dos hombres luchan así".
 
-My sister said helplessly, “I have no choice. No one dares to teach Illusion because the class is cursed. I’m the only one who can teach it.”
+—Oh, entiendo.
 
-“Eh? Cursed?”
+Respiró hondo. Parecía que tenía más que decir.
 
-Lian Qi and I were both surprised.
+"Así que, cuando mi amante Shuu, con su físico esbelto pero gran densidad muscular —la encarnación misma de la musculatura, que me hace desfallecer con solo mirarlo— lo hace tan bien en este torneo… es decir, ¡aplasta a un oponente, que es al menos más fuerte que los que enfrentó en el torneo regional, con una diferencia de habilidad abrumadora…! Es demasiado genial… Yo simplemente… no puedo…"
 
-“Yeah, ever since the former principal—my teacher, Larnitis—refused _that person_, whoever teaches Illusion gets killed by _that person_.”
+"Vaya, cálmate, Rir".
 
-“The Demon King is truly insane,” Lian Qi murmured.
+Mika le frotaba la espalda a Rir, mientras esta última se perdía cada vez más en sí misma.
 
-I looked at her in horror. “Then Sister, you…”
+*Ya veo, desde su perspectiva, Shuu es el hombre perfecto. El ideal entre los ideales.*
 
-“Don’t worry, little sister. See? I’m fine.”
+No podía imaginar que nadie esperara que ella actuara así. Aun así, tenía un vocabulario increíble en japonés. Había mejorado muy rápido.
 
-My sister ruffled my hair.
+"¿Está bien Fún?", preguntó Gorilla Sensei con preocupación.
 
-“Knowing that you’re the one teaching Illusion, I can’t help but want to take the class,” Lian Qi said, looking at me. “Fei’er, did you schedule the Illusion class for me?”
+"…Debería estarlo."
 
-“I did. There’s one tomorrow,” I answered quickly.
+"Está bien, ya actuó de forma similar después de que Hino ganara el torneo anterior… aunque esta vez fue peor."
 
-Honestly… Lian Qi doesn’t even know what classes she’s scheduled for. It’s a good thing I’m by her side…!
+"Ya veo…"
 
-“That’s great.”
+"Cierto. Afortunadamente, los otros miembros del equipo están demasiado absortos en el combate como para darse cuenta, pero sería un gran problema si alguien la viera así."
 
-My sister smiled. “You’re welcome to attend my class tomorrow. You’d better attend the classes of all four major specializations, because any of them—Illusion, Manipulation, or Evocation—could be your opponent in the ranking battles.”
+Sí, si alguien más que nosotros o adultos con buen autocontrol como Gorilla Sensei la viera ahora, podría terminar estimulado de varias maneras. Las inclinaciones de los miembros de tribus belicosas parecían bastante problemáticas.
 
-Lian Qi nodded in understanding. “I understand. Know yourself and know your enemy, and you will never be defeated.”
+Mientras todo esto ocurría, su futuro esposo regresó con nosotros.
 
-“Then we’ll see you tomorrow. Fei’er, I’ll come find you later.”
+"¡Gané! ¡Dos más y me voy al torneo provincial!"
 
-“Okay… Sister, you go ahead and get busy,” I said with a smile.
+"Buen trabajo."
 
-After seeing Sister Ejielia off, Lian Qi put her arm around my shoulder and pulled me closer…
+"¡Hiciste un gran trabajo!"
 
-I felt embarrassed. T-Too bold…!?
+"Shuu… Shuu, estuviste increíble hace un momento…"
 
-“People are watching…” I whispered.
+"¿E-Eso crees? Espera, Rir, ¿por qué tienes la cara tan roja? Resalta mucho porque tu piel suele ser muy clara…"
 
-Lian Qi was wearing a boys’ uniform!
+"Ah~…"
 
-And I was wearing a girls’ uniform. I felt that us being so chummy wasn’t quite right… It was a little embarrassing to be seen by other students…
+Mika se movió silenciosamente del asiento junto a Rir al que estaba frente al mío. Shuu se sentó entonces entre su novia y yo. En el momento en que lo hizo, ella se aferró a su brazo.
 
-“What’s the big deal? We’re both girls anyway.”
+"¿Y-Y ahora qué? De alguna manera, siempre actúas así de raro después de mis combates."
 
-Lian Qi had a carefree attitude. I was speechless. She had no idea where my embarrassment came from…! I’m a cross-dressing boy, and she’s a girl in boy’s clothes. The roles are completely messed up… It feels a bit perverted…
+"No te preocupes por eso… Ahora mismo, podríamos hacer cualquier cosa incluso delante de los demás. Incluso podríamos escaparnos y tener un rapidito. Si quieres, podrías atarme y ponerte rudo…"
 
-“But you’re wearing a boys’ uniform after all…” I said weakly.
+"¡N-Nunca hemos hecho cosas así!?"
 
-“Eh? So it would be fine if I were wearing a girls’ uniform?”
+*No, no escuché nada.*
 
-Lian Qi looked at me in surprise, a sly smile gradually appearing on her face. Seeing that smile, I knew something was up…
+Por suerte, parecía que solo Mika y yo escuchamos sus palabras justo ahora.
 
-“Fei’er… you… don’t tell me… you’re into yuri…?”
+"Hah… En ese caso, puedes esperar con ansias lo de mañana."
 
-Eh eh eh eh????
+"E-E-Está bien."
 
-“Th-This question… I don’t know how to answer you…” I stammered.
+Parecía que estarían muy ocupados durante nuestra próxima semana en Anazumu.
 
-I’m a boy, so it’s normal for me to like girls, right? But I can’t tell her the truth.
+"Oye, Rir."
 
-“Hmph, there’s no need to point out what’s already obvious.”
+"*Jadeo*, ¿qué pasa, Shuu?"
 
-She giggled and kept her arm around my shoulder.
+"Por ahora, cálmate. Esta no fue mi última pelea."
 
-“Come on, let’s go get dinner.”
+"…¡Guau!"
 
-“W-Wait, after dinner, don’t forget to study when we get back to the dorm.”
+Ella lo abrazó con más fuerza aún. Cuando los otros miembros del club finalmente notaron lo que estaba pasando, una tonelada de celos se dirigió hacia ellos. Mika de repente también abrazó mi brazo.
+
+"…Me puse celosa de Rir, así que déjame hacer esto, ¿vale?"
+
+"Por mí está bien…"
+
+*Incluso nos dio celos a Mika y a mí…*
+
+Con ese pensamiento, miré a mi alrededor y vi que los demás nos lanzaban miradas cálidas. ¿Qué estaba pasando ahora?
 
 +++
 
-# **23**
+# **620 – La Competición Individual del Torneo de la Prefectura – 3**
 
-“W-Wait, after dinner, don’t forget to study when we get back to the dorm, okay?” I said to her.
+"Por ahora, todos los miembros del club que avanzaron al torneo de la prefectura en los combates individuales han terminado su primera pelea."
 
-If only Lian Qi would pay more attention in class instead of whispering in my ear, blowing on my ear, or secretly watching me spin my pen. That’s why I couldn’t help but urge her on.
+Eran los cinco miembros del equipo que participaban en el combate por equipos más otros tres miembros del club que habían llegado hasta aquí. Y cada uno de ellos había ganado su primera pelea. Se confirmó, una vez más, lo fuerte que era el club de judo de nuestra escuela.
 
-“I know,” she said, ignoring the envious gazes of the passersby, and walked with her arm around my shoulder.
+"¡Es hora de almorzar!"
 
-Actually, I think it’s perfectly normal for girls to hug and be close; it’s just Lian Qi wearing a boy’s uniform that makes me feel awkward.
+""""¡Eaaa~~~!""""
 
-I often subconsciously classify myself as a girl. Am I a lost cause?
+Todos parecían increíblemente entusiasmados. Verlos tan emocionados por nuestra comida me hizo feliz.
 
-A hint of smugness appeared on Lian Qi’s face as she said to me, “Look, so many people are envious of me.”
+"¡Les enseñaremos lo que hay ahí dentro, entonces!"
 
-“I always feel like you’re hugging me to experience what it’s like to be a boy…” I said helplessly.
+Abrí la caja de comida que había traído conmigo. Mika y Rir también abrieron las cajas que habían traído.
 
-Besides, what’s there for those passersby to be envious of… Lian Qi is just hugging a boy…
+"""¡Hala~~…!"""
 
-“After all, this is my first time wearing a boy’s uniform. You never know until you try it that having a beautiful girl in your arms is such a prestigious thing. But shouldn’t boys act a bit more crudely?”
+A todos se les iluminaron los ojos al ver los platos servidos frente a ellos. La caja de Rir contenía todo tipo de frituras, desde gambas, pescado y calamares hasta minicroquetas. La mía consistía en platos guisados como huevos sazonados, y raíces de loto y konjac. Mika y Sakura habían preparado platos refrescantes a base de verduras, como ensalada de patata, espárragos envueltos en bacon y pequeños sándwiches. Y finalmente, cada uno de nosotros trajo también karaage y huevos enrollados.
 
-“This… I wouldn’t know even if you asked me.”
+¿Que cuánto costó? Por alguna razón, Kanata había sacado un montón de dinero, diciéndonos: "Me imaginé que algo así podría pasar, así que reservé varios miles de yenes para que los usen como quieran". Casi se me sale el corazón por la boca cuando lo soltó sobre la mesa.
 
-Even though I’m a boy, I can’t give her any advice.
+Sinceramente, no me gustaba depender tanto de mi hermano menor, pero él insistía en que no nos preocupáramos, así que eso fue lo que acabamos haciendo. Según dijo, ganó esa cantidad de dinero en un abrir y cerrar de ojos.
 
-But even if Lian Qi dressed up as a pirate, put her feet on the table and drank from a bottle, I wouldn’t think she was a boy. After all… I’ve seen her naked body; the impression is already deeply ingrained.
+*Ya no sé ni en qué dimensión estoy viviendo.*
 
-Before I knew it, we had arrived at the cafeteria. I picked up a tray and asked her what she wanted to eat, pointing at the various meat cutlets, roasted chicken, sausages, roasted potatoes, potato chips, and so on. But she said she wanted a sandwich made by me!? What the heck…
+Toda la gente a mi alrededor, incluido Shuu, eran auténticos monstruos. A estas alturas, Kanata probablemente ya habría ganado cientos de millones de yenes.
 
-Fortunately, the Magic Academy’s cafeteria is self-service. I grabbed some bread slices, ham, a fried egg, lettuce, and other things and made a “sandwich” for her on the spot. I’m so clever~
+—Esperen, cálmense todos. Primero mostremos nuestro agradecimiento a las cuatro personas que vinieron primero a animar y que ahora incluso nos han preparado el almuerzo.
 
-Lian Qi and I found an empty table and sat down with our trays. Gradually, more and more students came to the cafeteria for dinner, and every table was quickly filled. However, I noticed something strange—many students would rather squeeze together than sit at the table next to ours.
+—¡¡Muchas gracias!!
 
-I mentioned this to Lian Qi, and she also found it strange. Many students consciously avoided this table as they passed by with their trays. Was there something wrong with this table?
+Como era de esperar de un club deportivo, su coordinación y volumen al dar las gracias estaban a otro nivel. También inclinaron la cabeza profundamente.
 
-A girl with glasses appeared and placed her tray on that table. I initially thought someone had finally taken the table, but then I realized she had only put her tray there temporarily so she could bend down and tie her shoelace.
+—... ¡Muy bien, a comer!
 
-Just then, I noticed a tall boy walking over with a tray, on which was a heaping plate of spaghetti bolognese.
+Se oyó un golpe seco cuando Gorilla Sensei juntó las manos. Todos los demás hicieron lo mismo.
 
-The girl with glasses had just finished tying her shoelace and looked up, only to be overshadowed by the tall boy’s figure.
+—¡¡¡¡Gracias por la comida!!!!
 
-“How dare you occupy my exclusive spot?” the boy said, staring down at her with a blank expression.
+Tras estas palabras, comenzó la competición por las guarniciones. Bueno, trajimos suficiente para que no se acabara tan fácilmente. Cada uno cogió libremente su karaage y otros platos y los puso en platos de papel.
 
-The girl was startled and quickly stood up, answering timidly, “N-No! I was just tying my shoelace and put my tray here for a moment—”
+Alguien fue el primero en probar un bocado.
 
-_Clatter!_
+—... ¿¡Mh!?
 
-Without another word, the tall boy swiped the girl’s tray off the table right in front of Lian Qi and me! Food scattered all over the floor.
+—Oye, ¿qué pasa?
 
-The girl flinched in fear and didn’t dare to speak again. The entire cafeteria fell silent, and the girl became the center of everyone’s attention.
+—... Prueba el karaage.
 
-“So unruly. Is your tray even worthy of being placed on my exclusive table?” the tall boy said coldly.
+—Eh, claro... ¡¿mh!?
 
-“No! It’s really not—! I really didn’t want to sit in your seat! I was just tying my shoelace…”
+Todos se quedaron quietos tras probar el primer bocado. Parecían haberse quedado sin palabras.
 
-The girl started to cry, large tears rolling down her cheeks. The tall boy, on the other hand, gave a triumphant, cold smile.
+¿No sabía bien?
 
-“Why didn’t you put your tray on the floor while tying your shoelace? It suits trash like you.”
+—¿P-Pasa algo malo?
 
-“I’m sorry, I really didn’t think of that!” the girl said, crying.
+—¿Sabe mal?
 
-The tall boy casually slammed his own tray onto the “exclusive table” and sat down with a swagger.
+—N-No... al contrario... —murmuró Hoshino mientras temblaba—. Esto está mejor que la comida de mi madre... incluso para alguien que no suele comer fuera, se nota que esto es algo que te darían en un restaurante de tres estrellas.
 
-“Today, I’ll teach you some manners.”
+—Exacto, esa es la sensación. Esto no sabe al típico almuerzo para llevar que encuentras en cualquier sitio. ¡Se parece más a la comida de un restaurante con una lista de espera de un mes que te cuesta varias decenas de miles de yenes...!
 
-As soon as he finished speaking, his two lackeys grabbed the girl’s shoulders and forced her to sit across from him. Then, they picked up the tray that had been knocked to the floor and placed it in front of her.
+—Es la primera vef que como algo tan delifiofo... guau~.
 
-“Eat it. Lick it clean,” the boy said coldly. “Trash like you only deserves to eat food picked up from the floor.”
+Me hizo recordar cuando mis padres probaron mi comida por primera vez. Reaccionaron de forma similar.
 
-“Let’s add some extra seasoning for you.” The two lackeys sneered, grabbing a handful of the scattered food from the floor and “spicing up” the tray in front of the girl. The girl kept crying. There was a large crowd watching, but no one dared to step forward.
+—En cualquier caso, me alegra que les guste.
 
-How could such an arrogant and domineering person exist at the Magic Academy? It was an eye-opener… I would never have imagined it if I hadn’t seen it with my own eyes.
+—¡Qué rico! ¡Esto está increíblemente bueno!
 
-By the way, what was this tall boy’s background? Why were all the students afraid of him?
+—No hace falta comer con tanta ansia, tenemos mucho más.
 
-“Lian Qi—huh?”
+—¡Si no nos lo comemos, se escapará!
 
-I turned my head, only to find that Lian Qi was gone.
+Siempre era una alegría que alguien dijera que tu comida está deliciosa y luego se la comiera, sin importar dónde, cuándo o con quién ocurriera.
 
-“Eat,” the tall boy commanded.
+Mientras todos devoraban el almuerzo que preparamos, Mika me tocó suavemente el hombro.
 
-“It doesn’t matter if you don’t have a fork. I’ll teach you a way to eat.”
+"¿Qué pasa?"
 
-He leaned a little closer to the girl from across the table, a smug smile on his face. “Like a dog—”
+—Tu karaage está realmente bueno, Ayumu.
 
-Before he could finish, Lian Qi slammed his face into the spaghetti bolognese.
+—Gracias por decirlo.
+
+—Pero el mío no se queda atrás. Di 'ah'.
+
+—Ah.
+
+*Sí, muy bueno.*
+
+___
+
+—Hah… hah… ah~…!
+
+Terminamos de almorzar y se disputaron varios combates más, lo que nos trajo a lo que acaba de suceder...
+
+*"Un punto completo".*
+
+—¡Lo logró!
+
+Shuu había ganado la final.
+
+Como era de esperar, el último oponente fue lo suficientemente formidable como para evitar una derrota instantánea, pero aun así terminó en una victoria decisiva sin que Shuu estuviera nunca cerca de perder el control.
+
+De los ocho miembros del club que participaron, cinco llegaron al torneo provincial. Obviamente, esos eran los miembros del grupo que participaba en la competición por equipos.
+
+—¡Shuu…! ¡Shuu!
+
+—Oye, Ayumu. ¿Soy yo, o Rir parece que está en celo?
+
+—Pensé lo mismo.
+
+Cuando Shuu ganó, su corazón parecía latir con fuerza y sus ojos se veían ardientes. Estaba tan conmovida que sus ojos se humedecieron. Exudaba tanta energía sexual que otros podrían asaltarla si la vieran en ese estado. Esa era la razón por la que Mika la había estado vigilando durante un rato.
+
+—En cualquier caso, terminaste ganando como se predijo, Shuu.
+
+—Supongo que otra celebración es necesaria.
+
+—¡L-Lo mismo digo! ¡Prepararé algo rico de nuevo para ti, Shuu!
+
+—Claro que sí.
 
 +++
 
-# **24**
+# **621 – En Anazumu tras el torneo de la prefectura**
 
-Lian Qi moved so fast. By the time I turned my head, she had already slammed the boy’s head into his noodles.
+—Aquí estamos.
 
-The whole room was stunned. The two lackeys were dumbfounded, and even the boy himself probably never imagined someone would dare to publicly smash his face into his own food. The entire place was silent, with students holding their breath to see how Lian Qi would handle the mess she’d created. On the contrary, I found the sight of his face planting into the plate both comical and hilarious.
+Como siempre, regresamos a Anazumu sin incidentes. No parecía faltar nadie. Mika y yo, Kanata y Sakura, y finalmente, Shuu y Rir. Toda la banda estaba aquí.
 
-“Why don’t you demonstrate how a dog eats?” Lian Qi said with a smirk, pressing his head down firmly without letting go.
+—En primer lugar, ¡lo hiciste genial en el torneo de la prefectura! —exclamé.
 
-As expected, he flew into a rage! He unleashed an astonishing amount of magic, shaking the tray on the table. I heard some girls scream in fear! They were overreacting. The blast merely blew Lian Qi’s tie up a bit, but she held his head down without moving an inch.
+—Buen trabajo, Shuu —añadió Mika.
 
-Seconds ticked by. He struggled desperately to lift his head, but Lian Qi gave him no chance; his face remained firmly planted in the plate.
+—Felicidades por tu victoria —dijo Kanata.
 
-It was only then that the two lackeys realized their boss couldn’t handle it himself and needed help. They rushed over, punching and kicking at Lian Qi!
+—Tú… ¡estuviste increíble! —balbuceó Sakura.
 
-However, I didn’t need to worry about her. The full force of their magic was only a nascent yellow, two whole tiers below Lian Qi’s. It was like watching two three-year-olds trying to fight an adult. Their attacks couldn’t even touch her clothes, completely blocked by the red magic enveloping her body.
+Cada uno de nosotros dijo lo suyo. Una vez que terminó el torneo, Shuu prácticamente fue colmado de elogios, ¿pero a quién no le gusta que lo mimen?
 
-Lian Qi didn’t move a muscle. It was as if they were punching an unshakeable reef.
+—Ja, ja, ja, gracias, de verdad. Solo salió tan bien porque vinieron a animarme.
 
-“Boss! This kid seems to be from the Enchantment specialization! And his magic is so strong! We can’t even touch him!”
+—¿Qué dices? Ni siquiera sudaste.
 
-Their boss’s face had been pressed into the plate for a full two minutes now.
+—N-No es así. Algunos de mis oponentes eran bastante fuertes, si me preguntas.
 
-None of the students dared to speak, silently watching him be humiliated. It was probably a once-in-a-lifetime sight.
+Pero Shuu seguía siendo abrumadoramente más poderoso. En Anazumu podíamos hacer lo que quisiéramos, así que hoy celebraríamos como la última vez.
 
-The boy roared, “Damn it! Do you have a death wish? Do you know who my dad is!”
+—Entonces, ¿qué te gustaría comer hoy?
 
-“Nope.”
+—Oh, ¿vas a cocinar de nuevo? En ese caso, sushi.
 
-His head had barely lifted before Lian Qi slammed it back down.
+—Claro que sí.
 
-“My dad is the captain of the Royal Capital Guard—!”
+Ayer comió principalmente alimentos fritos, así que me di cuenta de que quería comer algo de pescado crudo a cambio. Eso era lo que prepararía, entonces.
 
-His head was pushed back into the plate again, and he choked on a mouthful of noodles.
+—Sigue así y ganarás el torneo nacional.
 
-“Don’t know him. Is that a high-ranking official? Does the son of the Guard’s captain get to run wild in school? I hate people like you who bully their classmates. You’re unlucky to have run into me,” Lian Qi said coldly.
+—¡Vale!
 
-“What’s it to you—! Who are you? Do you think you’re on the disciplinary committee? Mind your own business!”
+—¿Eh? Me acabo de dar cuenta, ¿pero qué pasa con Rir?
 
-“Oh? The disciplinary committee? I was about to ask.” Lian Qi turned her gaze to the crowd of students. “Is anyone here on the disciplinary committee? Does this prestigious Magic Academy have no rules at all? How can such a rotten-to-the-core student go unchecked?”
+Ahora que lo mencionaba, la que normalmente sería la primera en cantar las alabanzas de Shuu no había dicho ni una sola palabra.
 
-No one dared to speak.
+—Si la buscas, está aquí.
 
-I was just wondering how I was going to get Lian Qi out of this mess when an idea suddenly struck me! I took out the birthday gift Sister Ejielia had given me—the conch shell—and whispered into it, “Sister… Lian Qi wants to join the disciplinary committee right now. She said… um… it’s part of the plan to defeat the Demon King.”
+Se dio la vuelta, mostrándonos su espalda donde la encontramos aferrada a él como un parásito. Ahora que lo pienso, todo lo que vi de ella antes fueron sus brazos.
 
-My sister should be able to hear that, right?
+—Rir, ¿qué estás haciendo?
 
-After I finished, I put the conch away and acted as if nothing had happened, waiting to see what would unfold. A few moments later, a female student squeezed out from the crowd. She came to Lian Qi’s side, opened her palm, and presented a brand-new armband to her, saying, “The principal just told me to give this to you.”
+"...Guau, abrazando a Shuu".
 
-Only then did Lian Qi release the boy and take the armband from the female student.
+"Lleva haciendo eso desde ayer".
 
-Finally, the boy lifted his head pathetically, his face covered in noodles, which made everyone snicker. Right in front of him, Lian Qi put on the disciplinary committee armband. Now he was stunned, seeming to realize that Lian Qi was not only powerful but also had an extraordinary backer.
+*¿Eh... todo este tiempo?*
 
-Even a fool could guess that Lian Qi had a connection to the principal, but they would certainly never guess she also had a connection to the Saintess, right?
+Mika mostró una sonrisa momentánea. Parecía tener el mismo pensamiento que yo.
 
-“Starting today, I am a member of the disciplinary committee.”
+"¿Ha estado haciendo eso constantemente desde que llegaste a casa?"
 
-Lian Qi placed one hand on her hip and pointed at him, proclaiming loudly! Her aura was like the embodiment of justice.
+"Sí, excepto durante la cena y la hora del baño".
 
-“I’m going to break this rule today. From now on, anyone can sit at this table.”
+"Hrm".
 
-“You’ve got guts!”
+*Entonces, ¿no se bañaron juntos? Bueno, la madre de Shuu suele estar en casa, así que no pueden hacer algo así.*
 
-The boy wiped the noodles from his face, and after spitting out those words, he walked away with a defiant look. His two lackeys scurried after him.
+"Así que, mientras estábamos en mi habitación, ella no paraba de abrazarme".
 
-The crowd of onlookers gradually dispersed. Lian Qi sat back down across from me, and I waved the girl who had just been bullied over to sit with us. She sat beside me, took off her glasses, and rubbed her red, swollen eyes.
+"Me pregunto, ¿de verdad solo se han estado abrazando?"
 
-“Your name is Laura, right? We were in the same Enchantment class just now. Your tray was knocked over, you should go get a new one,” I said to her with a smile.
+"Obviamente no, en un momento dado él—" respondió Rir, con la cara aún enterrada en la espalda de Shuu.
 
-“It’s okay if I don’t eat. You… you two… aren’t you afraid of retaliation from the student council?”
+"No, ni se te ocurra decirles eso".
 
-“Oh? Was that guy from the student council too?” Lian Qi took a sip of her juice, a look of indifference on her face.
+"Mph".
 
-Laura nodded. “That was Wood! Everyone at the academy knows his name. His father is Oka of Steel, the captain of the Royal Capital Guard! You really don’t know him?”
+Antes de que ella tuviera oportunidad de terminar la frase, él la apartó rápidamente y la abrazó por delante para silenciarla. Pero ya era demasiado tarde por lo que ella alcanzó a soltar.
 
-“Nope,” Lian Qi said blankly.
+"Oye, Mika, estos dos se van a divertir hoy en su habitación, ¿verdad?", pregunté burlonamente.
 
-I gave a helpless smile. “We just enrolled today, so there’s a lot we don’t know…”
+"Lo harán. ¿Y nosotros, entonces?"
 
-“So you’re the transfer student who shattered the magic testing bell with one punch!?” Laura looked at Lian Qi with astonishment.
+"Me apunto si tú te apuntas".
 
-“I told you, it was already broken,” Lian Qi said, sighing as she put her hand to her forehead.
+Tuvimos este intercambio con sonrisas en el rostro justo delante de Shuu. En cuanto a Kanata y Sakura, ya estaban hartos de nuestro numerito y se habían marchado con un breve "estaremos en nuestra habitación".
 
-“You’re nobles, right??”
+"...S-Sobre eso", tartamudeó Shuu.
 
-“I guess so… Don’t mind the uniform, I’m actually her maid,” I said with an embarrassed smile.
+"Sí, hoy también tendré un regalo especial para ti", respondió Rir.
 
-“Eh…? As nobles, you chose not to join the student council? And you openly oppose them…”
+"¿No fue suficiente con lo que pasó ayer?"
 
-“They invited me, but I refused,” Lian Qi said, glancing at me proudly. “My intuition is pretty sharp, isn’t it? I could tell they were bad news at a glance.”
+"No, eso significaría que hice menos que la última vez. No querríamos eso, ¿verdad?"
 
-“You’re amazing…” I whispered.
+Nunca imaginé que tendría este tipo de conversación con mis amigos de la infancia. Bueno, aún éramos jóvenes.
 
-Laura looked around, and after making sure it was safe, she lowered her voice and said to us, “Wood is terrible, but he’s just the tip of the iceberg in the student council. Allen Onist, the student council president, has another right-hand man besides him named Ivan. He relies on his father being a member of the Magic Academy’s board of directors to toy with women. His nickname is the ‘Silver-Speared Little Tyrant’.”
+"Entonces mejor nos separamos y que cada uno se divierta, ¿no?"
 
-“Ugh…” Lian Qi asked with a look of disgust, “That student council president isn’t any good either, is he?”
+"¡Guau! Hagamos eso".
 
-“The student council president, Allen Onist, is the son of Minister Onist. He secretly runs a casino, using the graduation ranking battles as betting stakes.”
+"R-Rir, por favor no te vuelvas más loca de lo habitual... es más, no te vuelvas loca en absoluto".
 
-“What…? There’s such a thing?” I was extremely surprised!
+Así, las dos parejas nos separamos y fuimos a nuestras respectivas habitaciones.
 
-“No wonder he wanted to pull me into the student council. Could it be he wants to manipulate the results of the ranking battles?” Lian Qi said.
+"Uf..."
 
-I wondered if I should tell Sister Ejielia about this.
+"¿Qué pasa, Mika?"
+
+"Solo estaba pensando en Rir", respondió mientras preparaba un poco de zumo y se sentaba en el sofá.
+
+"¿Hay algún problema? Parecía tan locamente enamorada de Shuu como siempre".
+
+"Fue la primera vez que la vi tan emocionada en el otro lado... me preguntaba si yo me veo igual cuando estoy contigo, Ayumu".
+
+¿Hubo alguna vez en que ella actuara como Rir ayer? Me hizo preguntarme cómo nos veían Kanata y Sakura.
+
+"Bueno, ¿importa tanto? Mientras nos queramos, todo irá bien".
+
+"No esperaba que dijeras eso. Pero tienes razón, no hay problema", respondió con una sonrisa antes de beberse el líquido.
+
+Al momento siguiente, su cuerpo cambió a su apariencia de 16 años.
+
+"Je, je, je, dicho esto, Ayumu~. ¿Es hora de besuquearse?"
+
+"Sí, lo es".
+
+Yo también recuperé mi apariencia adulta de inmediato. Tiré de la mano de Mika, que seguía sentada en el sofá, y la acerqué a mí. Tenía un olor agradable. Siguiendo el ritmo de las cosas, la levanté en brazos como a una princesa.
+
+*Muy bien, a la cama como de costumbre y luego nosotros...*
+
+⟦¡Alim, Mika! Tenemos noticias[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-120374)!⟧
+
+Por ahora, bajé suavemente a Mika a la cama. Nos lanzamos una mirada en silencio antes de suspirar.
+
+En efecto, como de costumbre.
+
+**Notas:**
+
+1. Llamaron de la residencia de ancianos. Quieren que les devuelvas el chiste.
 
 +++
 
-# **25**
+# **621.5 – La recompensa de Rir tras el torneo de la prefectura**
 
-“People really can’t be judged by their appearance,” I said to Lian Qi as we strolled back to the dorm.
+—Guau, guau.
 
-“Are you talking about the student council president? You… think he’s handsome?”
+Rir soltaba gemidos mientras seguía aferrada a mi espalda.
 
-I was completely baffled. “??? No?”
+En la Tierra, después de que terminó el torneo y volvimos a casa, siguió comportándose así. No paraba de abrazarme o, mejor dicho, intentaba que le tocara el cuerpo. Así que la complací y le manoseé las partes que más me gustaban de ella. Lo que no esperaba era que intentara informar alegremente de esto a mis amigas de la infancia.
 
-“Isn’t it because you think he’s handsome that you’re lamenting how people can’t be judged by their appearance?”
+—Shuu, te quiero.
 
-“That’s not it!” What was Lian Qi thinking? I was actually trying to say—I didn’t expect the Magic Academy to have such turbulent undercurrents. I quickly explained, “I meant that he looks righteous on the surface, but he’s secretly running a casino…”
+—Sí, lo sé.
 
-“Hmph, I could tell there was something wrong with him from the first glance. As for you—”
+Ese era su estado. Me hacía preguntarme qué tendría planeado esta vez. La última vez empezó con un masaje, luego se puso el delantal sin nada debajo y terminamos teniendo sexo como de costumbre.
 
-She put on a proud expression and lifted her chin.
+*Lo del delantal... para ser sincero, eso fue increíble. Si pudiera, haría que siempre se lo pusiera, pero mejor me quito eso de la cabeza por ahora.*
 
-“I’m your master. You only need to think about me.”
+—Rir.
 
-I felt so helpless, but I also wanted to laugh. Hearing those words from a girl like Lian Qi seemed to have a special charm.
+—¡Guau, guau~, auuu!
 
-“Then is it okay if I think about Sister Qifeng and Sister Ejielia…?”
+—Rir...
 
-“Girls are fine. It’s perfectly normal for them to be your best friends, but boys are off-limits.”
+No me importaba que me abrazara, pero ¿qué se suponía que debía hacer con esto?
 
-Boys… off-limits…?
+En cualquier caso, Ayumu y Mika me advirtieron que Rir se excitaba peligrosamente cuando veía mis combates. Con su amplia experiencia de todo tipo con hombres, sin duda tenían razón al juzgar que si alguien con malas intenciones la veía en esos momentos, la asaltaría. Prometí protegerla por el resto de su vida, pero era como empezar la casa por el tejado si se ponía así solo con verme.
 
-I smiled at her. “You sound just like Sister Ejielia when you say that.”
+Dicho esto, no podía simplemente distanciarme. Tenía que lidiar con esto.
 
-“The principal is just looking out for you.”
+—Hah... hah... ¿guau?
 
-“That’s true.”
+—¿Pasa algo?
 
-The implication was that she was also looking out for me. Does Lian Qi have a particular issue with any male who enters my field of vision? I couldn’t explain to her that I’m actually a boy and have no feelings for the same sex.
+—Ah... me acabo de dar cuenta de que ya estamos en nuestra habitación. Estaba tan concentrada en ti que no me fijé.
 
-Speaking of not judging a book by its cover—
+Tras recuperar repentinamente el sentido, miró la hora. Luego me soltó... lo que también significó que esa sensación de suavidad desapareció de mi espalda.
 
-That describes me pretty well, doesn’t it? Who would have thought I’m actually a boy?
+—Y bien, Shuu. ¿Qué hacemos? ¿Me darás un masaje en los pechos como ayer?
 
-We were now back in the dorm. The space where I was in close contact with Lian Qi had shrunk from a large manor to a two-bedroom suite. You could say that my private life was almost completely exposed to her, so I had to be even more careful with my cross-dressing life. I absolutely couldn’t let my secret slip.
+—No... me abstendré por ahora.
 
-On the other hand, Lian Qi was a real girl, and her private life was also exposed to me. Was that really okay…?
+—¿Guau? ¿Sabes que estoy dispuesta a cualquier cosa, siempre que sea contigo? ¡Dime si hay algo que te gustaría hacer! ¡Planeaba hacer más que la última vez, así que si tienes alguna petición, lo haré!
 
-“Wow, you took so many notes in just one class?” Lian Qi said, sitting on the sofa and flipping through my notebook.
+—Estás muy entusiasmada, ¿eh...?
 
-“Of… course.”
+—Guau. ¡Es porque quiero hacerte feliz! —respondió con una sonrisa exquisita.
 
-Seriously, did she even pay attention to what the teacher was saying? She was either blowing on my ear or secretly watching me spin my pen. Thank goodness I took notes.
+*Eso no es bueno, podría morir de tanta ternura. Eso solo ya es recompensa suficiente.*
 
-I picked up the teapot, ready to get some hot water to make her tea, but then I realized—huh? I didn’t bring any tea leaves at all!
+*Bueno... ya que estamos aquí...*
 
-“Your handwriting is really beautiful. It looks like a girl’s handwriting at first glance.”
+—Por ahora, ¿podrías darme un masaje?
 
-“Is… that so.” I gave a weak smile. I was originally a bit embarrassed about others looking at my handwriting, and her praise made me feel much more at ease, but I couldn’t be happy about the phrase “looks like a girl’s handwriting at first glance”!
+—¿Guau, uno de verdad? O tal vez...
 
-It felt like I was a lost cause from the inside out, even down to my handwriting…
+—Uno de verdad.
 
-“But why are some parts written so crookedly?”
+—¡Déjamelo a mí!
 
-“It’s… it’s because—”
+Me di cuenta de que estaba insinuando algo lascivo con el otro tipo de masaje. Ni siquiera tuvo que terminar la frase. Definitivamente.
 
-I blushed and whispered, “You were blowing on my ear…”
+—Entonces, ¿qué tipo de disfraz debería ponerme?
 
-But she actually looked completely oblivious. “I didn’t blow on your ear. I just got close to your ear to whisper during class.”
+—¿Eh? ¿Un disfraz?
 
-“Oh… then maybe my ears are too sensitive—”
+—¡Exacto! ¡Iba a cambiarme por algo diferente, como aquel delantal de la última vez! ¿Qué te gustaría? También podría elegir algo al azar.
 
-Wait!
+—Ehm...
 
-I subconsciously realized I had said the wrong thing—I shouldn’t have said that…!
+*Así que va a elegir algo de todas formas. No se va a rendir con esto, ¿verdad?*
 
-Sure enough, Lian Qi looked at me with a playful smile.
+—¿Supongo que todos esos atuendos son sugerentes?
 
-“Is that so? It seems I’ve discovered some incredible information.”
+"Por supuesto. Esas son las que te emocionan... ¿verdad, Shuu? Solo dime si me equivoco".
 
-Whoa…!
+Ya que tenía la oportunidad, bien podría preguntar algo que me había estado preguntando. Por qué se comportaba tanto como una exhibicionista, o como sea que se llame eso, cuando estaba conmigo.
 
-You can’t take back spilled water.
+"Rir, siempre que estamos haciendo algo, siempre te estás desvistiendo y enseñándome tu ropa interior, ¿verdad?"
 
-I looked at her with apprehension. The way she smiled while flipping through the notebook seemed to be brewing some mischievous ideas…
+"Lo hago. ¿Es eso un problema?"
 
-“I’m going to take a shower. Want to join me?” she suddenly asked.
+"No, está bien si soy el único que está contigo. Es más, me gusta cuando lo haces".
 
-What? Take a shower together!? No way! Just spare me from anything that would instantly reveal my identity…!
+Esta era la verdad. Para ser sincero, si ella usaba atuendos sugerentes, o nada en absoluto, y me tocaba... eso era exactamente lo que quería. Nunca pensé que me convertiría en un degenerado así.
 
-“I’m used to showering by myself…” I said weakly, silently praying in my heart for her to let me off the hook this time.
+"Aun así, ¿no te estás presionando demasiado a cambio? Solo por mi bien".
 
-“I see. I just thought since we’re both girls, it wouldn’t be a big deal.” She stood up and started taking off her clothes as she walked, not avoiding my gaze at all.
+"Al final, eso es todo lo que puedo hacer... ¡Te amo!", respondió ella con ojos brillantes llenos de expectación. "¡Eres mi amante, así que mi deseo de hacer algo por ti es más fuerte que mi vergüenza! Te hace feliz... ¿verdad?"
 
-But I’m not…
+Era absolutamente adorable.
 
-Her discarded uniform jacket flew through the air towards me. I quickly caught it, nearly getting it draped over my face.
+"Ya veo, y no te equivocas..."
 
-She only wore the jacket for one day. Should I wash it for her?
+*¿Por qué me da tanta vergüenza cuando solo somos nosotros dos? Tengo que decírselo claramente.*
 
-I held her jacket and sniffed it; there didn’t seem to be any particular body scent.
+"Por supuesto que me hace feliz... En fin, por ahora, ven aquí, Rir".
 
-“I’m not locking the bathroom door. You can come in whenever you want to join.”
+"¡Guau!"
 
-She left, leaving me with just her back.
+Mientras abría los brazos para evitar el tema, ella se lanzó sobre mi pecho. La abracé suavemente. Las cosas cambiaron mucho desde que nos volvimos cercanos. Podía sentirlo profundamente.
 
-There’s no way I’d want to join her halfway!
+"Rir, te amo".
 
-Peeping on a girl showering? Am I a pervert?
+"Guau... yo también te amo..."
 
-I temporarily hung her uniform jacket on a hanger. Soon, the sound of running water came from the bathroom. As I passed by, I glanced over. The bathroom door was ajar; she really hadn’t locked it…
+Si ella me decía que esta era mi recompensa, entonces estaría satisfecho.
 
-Lian Qi really doesn’t mind me at all, does she? As a boy, I’m so ashamed…
+"¡Guau, entonces te daré el masaje!"
 
-She thinks of me as a girl. Does that mean I’m taking advantage of her trust by being so close to her?
+"Ah, cierto. Por favor, hazlo".
 
-That’s why I sometimes just take it when she bullies me. It’s because I feel guilty towards her, right? It’s better if I can make up for it even a little.
+Seguía mejorando en ellos. Probablemente practicaba a diario en Anazumu.
 
-Anyway… Lian Qi, I’m truly sorry for hiding the fact that I’m a boy. As an apology, even if you bully me, I will still be good to you… I’ll make you tea and cook you the most delicious food I can. So please forgive me (>﹏<).
+"¿Qué debo hacer con mi ropa?"
+
+"Quédate como estás. A cambio, me encantaría un masaje de cuerpo completo".
+
+"¡Guau, entendido!"
+
+Una parte de mí tenía curiosidad por saber qué atuendo sugerente elegiría, pero esto también estaba bien. Tal como iban las cosas, era muy probable que me quedara mirando su cuerpo durante horas más tarde.
+
+___
+
+**Notas del traductor:**
+
+Estaré fuera visitando a familiares durante las vacaciones, así que habrá otro descanso de una semana. Las actualizaciones se reanudarán el 3 de enero.
 
 +++
 
-#  **26**
+# **622 – Nueva Información**
 
-“Fei’er—!”
+"Nuestras disculpas por hacerte venir aquí de nuevo... ¿No parece que estás de mal humor cada vez que nos vemos?"
 
-I heard Lian Qi calling for me from the bathroom.
+Después de que se puso en contacto con Mika y conmigo, deshicimos la transformación en nuestros seres de secundaria y, a regañadientes, nos dirigimos hacia el Rey Rama.
 
-“Eh? What is it?”
+Dicho esto, era necesario ser diplomático y escucharlo, ya que era nuestro fan. No podíamos simplemente ignorarlo. Aun así, era innegable que había interrumpido nuestro preciado (o tal vez no tan preciado) tiempo a solas.
 
-I stood at the bathroom door. The sound of the shower had stopped. She… couldn’t possibly be done so quickly, could she?
+"No es eso... es solo que siempre parece tener mal tino, Su Majestad..."
 
-“Bring me my pajamas.”
+"¿E-Es así? Nos disculpamos".
 
-“Pajamas? Okay, okay—wait, wait? B-bring them _in_?”
+*Aun así, ¿por qué sigue llamándonos aquí para discutir la historia de su país?*
 
-Lian Qi went silent, probably thinking her message was clear enough and didn’t need repeating.
+"Para empezar..." comencé.
 
-But what could I do? In Lian Qi’s eyes, I’m just another girl. If I refused such a small request, it would be too suspicious, wouldn’t it?
+*Espera. Podría ser sencillo decirle que deje de molestarnos, pero ahora mismo necesitamos la información. Solo gracias a lo que nos dijo supimos que el vajra está en la Tierra.*
 
-I silently returned to the bedroom, opened my suitcase, and took out a set of pajamas from a neatly folded pile of underwear and stockings.
+"No, no es nada."
 
-It was a long-sleeved shirt and pants set, not a nightgown. I had bought these pajamas specifically to hide my identity as a boy even at home, and now they came in handy for Lian Qi.
+"¿Hm?"
 
-After all, with us sharing a room, if she wore something less revealing, I wouldn’t blush so much…
+Aun así, me preguntaba por qué seguía contándonos esto. Primero fue sobre la derrota de su dios malvado y luego sobre recrear el vajra, ¿así que...? Sentía que me faltaba algo. Tal vez intentaba parecer interesante presumiendo de sus conocimientos, como suelen hacer los hombres. Sí, probablemente era eso. Llamar nuestra atención actuando como si supiera algo. Aunque en su caso no era tanto fingir información, sino más bien informarnos sobre la investigación.
 
-I returned to the bathroom door, staring at the ajar door and the steam pouring out, swallowing nervously. Was I really going in?
+—Entonces, ¿qué ha averiguado esta vez, Su Majestad?
 
-“I’m coming in,” I said—more to psych myself up. I took off my socks to keep them from getting wet and quietly slipped inside.
+—Anteriormente os dijimos que el vajra fue trasladado a otro mundo, lo que resultó en la destrucción del dios malvado, ¿no es así?
 
-As soon as I entered, a cloud of steam hit my face. W-where was Lian Qi? I couldn’t see anything clearly through the thick fog.
+—Sí, así fue.
 
-Huh—?
+—Hemos descubierto más información comparando los escritos de Nuestro bisabuelo con otros textos.
 
-Lian Qi appeared, and sure enough, she wasn’t wearing anything…! The swirling white mist happened to cover the parts I shouldn’t see.
+*¿Tendrá esto relación con el vajra? Sería genial si pudiéramos usarlo para buscarlo.*
 
-My face turned red, and I shamefully lowered my head. I was glad I was still wearing my girl’s uniform; there was no way I could be “frank and open” with her like this!
+—¡Pues se trataba del recipiente en el que se colocó el arma!
 
-“Here… your pajamas,” I said with a blush, trying not to show my embarrassment too obviously, lest Lian Qi get suspicious.
+—¿Eso es todo?
 
-So… I’m sorry, Lian Qi. Please forgive me for seeing you naked…!
+—Hm, ¿pasa algo malo?
 
-“Just put them aside. Since you’re here, why don’t you help me scrub my back?”
+*El recipiente en el que se puso el arma... ¿No suelen estar las armas ceremoniales de ese tipo simplemente envueltas en tela? Incluso si se enteraron de eso...*
 
-“Huh???”
+—Quiero decir... está hablando del recipiente en el que se guardó. ¿No es algo normal, como la vaina de la Espada del Héroe?
 
-I was completely bewildered. It felt like what she was really saying was, “Now that you’re in, don’t even think about leaving.”
+—No te equivocas, pero este contenedor era de todo menos normal... Había descripciones detalladas de él, que estábamos a punto de contarte.
 
-Well then… I’ll just do it.
+*¿Qué, de verdad conocen los detalles? Dijo que es de todo menos normal, así que probablemente sea algo bastante inusual. Será mejor que escuche con atención.*
 
-It was a master’s order, and as her maid, I had no reason to refuse. Unless I told her I was a boy and that boys and girls shouldn’t be so intimate.
+—Entonces, ¿qué clase de recipiente era?
 
-I was just supposed to deliver her pajamas, but it turned into this strange development of me scrubbing her back…
+—Según lo que dice, era una estatua de piedra, tallada por ese mismo Guía.
 
-But…
+—¿Una estatua de piedra, dice?
 
-Facing her back was much better than facing her front.
+*Es decir, ¿si registramos el interior de cada estatua de piedra de la tierra, acabaremos encontrándolo? Suena difícil, pero supongo que es mejor que no tener ninguna pista. Bueno, pediré más detalles.*
 
-I squeezed out some foam and gently rubbed it on her back. Her skin, which had been dry after being wet, became smooth and slippery.
+—¿Qué clase de estatua era?
 
-Eh? This slippery feeling… was so strange. I noticed her shoulders tremble slightly. Was she a bit nervous too? She was the one who suggested it.
+—¿Conoces la postura de oración que se usa para dirigirse a los dioses?
 
-But speaking of which, how could Queen Tristine have mistaken Lian Qi for a boy? Her skin was so delicate, smooth, and fair.
+—La tengo.
 
-No, no… I only knew it was delicate and smooth because I was touching it…! So that just leaves fair.
+Había una religión extranjera... el cristianismo, creo. La forma en que juntaban las manos para rezar era parecida a lo que hacían en Anazumu. Sin embargo, había algunas pequeñas y extrañas diferencias, por lo que se notaba a simple vista que no era lo mismo.
 
-But… my own skin is also fair, not like a boy’s at all.
+—Según los escritos, la estatua está en esa postura de oración.
 
-“Is this… okay?”
+—Ah...
 
-I used the bath sponge to gently scrub her shoulders, then slid down her back, the soft foam spreading around her slender waist. If someone were scrubbing me like this, I would definitely be ticklish…! I’m naturally ticklish…!
+—Pero al parecer era extrañamente pequeña para ser una estatua de piedra. Solo tenía la altura de un niño de cuatro o cinco años.
 
-“Mm… it’s okay.”
+—Hrm.
 
-Please don’t say—from now on, you’ll scrub my back every day! Please don’t say that…
+*¿No reducirá eso bastante la búsqueda? Una estatua de piedra pequeña con las manos juntas en oración.*
 
-I worried I would pass out from the blood rushing to my head.
+—¿Había algún otro detalle?
 
-Sure enough, it was getting hotter…
+—Los había. Decía que, como toque final, se le hizo llevar un delantal rojo y no se le cinceló ni un solo pelo en la cabeza.
 
-I wiped the sweat from my forehead. It wasn’t just because the bathroom was hot and I was still clothed, but because I was ashamed of facing Lian Qi’s naked body. It was a heat coming from the bottom of my heart…
+—Déjeme ver si lo he entendido bien, ¿es completamente calva y lleva un delantal rojo?
 
-It was so awkward for us to remain silent… she probably thought so too. I had to say something.
+—En efecto. No podemos imaginarlo del todo, ya que no había dibujos.
 
-“Um…” “Um—”
+*Una estatua de piedra... tamaño infantil... calva... con un delantal rojo... Un momento, ¿no podría ser...?*
 
-—We spoke almost at the same time.
+*Debería preguntarle a Mika.*
 
-“You first.”
+—Oye, Mika, ¿no suena eso a una estatua de Jizou?
 
-“No, you first.”
+"Puede que tengas razón en eso".
 
-“O-Okay, I’ll go first…” I asked while scrubbing her back, “You weren’t hurt earlier, were you?”
+"Ya... pero aun así".
 
-“N-No, I wasn’t. I can’t believe those two lackeys couldn’t even touch me.”
+Había algunas cosas que no encajaban. Las estatuas de Jizou solían tener las manos en el estilo de oración japonés y estaban en una pose de Buda sosteniendo un báculo de peltre. ¿Existían estatuas así con las manos entrelazadas al estilo occidental?
 
-“The gap in your magic levels is too huge.”
+"¿Alguna vez hemos visto una estatua de Jizou en esa pose de oración?"
 
-“And that son of the Royal Capital Guard captain, his strength wasn’t even as great as mine.”
+"No estoy segura... espera un momento".
 
-“That’s because you’re an Enchantment-type magician, right? So you’re better at strengthening your body with magic than others.”
+Mika se llevó de repente las manos a la cabeza.
 
-The scene at that time was the petite Lian Qi pressing the tall and burly opponent’s face into his plate, preventing him from getting up. Such a scene wasn’t strange at all. After all, in our world, what matters is the level of one’s magic, not physical strength.
+"¿Qué pasa?"
 
-“Is that so? No wonder Enchantment-type magicians all change careers to become warriors after graduation. So what type of magician is he? Why didn’t he use any magic?”
+"La estatua de Jizou de nuestro barrio es famosa, entre otras cosas, porque se ve diferente a las estatuas normales, ¿verdad?"
 
-“Maybe he was stunned for a moment and couldn’t react?” I thought for a moment. “Or maybe he didn’t want to reveal his trump card before the ranking battles?”
+"Sí, así es".
 
-“If that’s the case, I can’t be careless if I really run into him in the ranking battles—hey, that’s enough, you don’t need to scrub my back anymore. Help me wash my hair.”
+"Estoy casi segura de que una de esas diferencias es la forma en que tiene las manos entrelazadas..."
 
-“W-Wash your hair…?”
+*Espera, ¿acabamos de darnos cuenta de algo enorme?*
 
-From behind, I looked at her messy black short hair. Hmm… from the back, it looked like it reached her neck.
+"¿Pasa algo, vosotros dos? Eso Nos recuerda que se decía que ese mismo Guía regresó a su mundo otorgando algún tipo de encantamiento a la estatua".
 
-If it was just washing her hair, that shouldn’t be a problem. As long as she doesn’t ask me to get naked and bathe with her, anything else is fine…!
+*Eso suena como la función de transferencia de mundos de nuestra estatua de Jizou. Espera... un momento... esto empieza a sonar muy sospechoso.*
 
 +++
 
-# **27**
+# **623 – Los orígenes de Genten Jizou**
 
-When I squeezed some shampoo onto the top of Lian Qi’s head, she let out a cute little “Ah!” sound, probably because of the cold sensation of the shampoo. She shivered slightly.
+"¿Qué os pasa? Para que vuestras expresiones cambien tanto", preguntó amablemente el Rey Rama, pero no teníamos margen para explicárselo ahora mismo.
 
-I’d only poured some cold shampoo on her head; I hadn’t even started washing yet. Wasn’t her reaction a bit too cute? Is this really the Lian Qi I know?
+El vajra —el arma misma que sellaba al dios malvado— estaba dentro de la estatua de Jizou de nuestro barrio. Había estado pensando en pasar los próximos años con Mika buscando lentamente cada pequeña estatua de piedra con las manos entrelazadas en oración. Esto no era lo que esperaba.
 
-Usually at home, she’s so domineering, pinning a boy like me underneath her. Just thinking about it is so embarrassing…!
+"Ehm... ah... No, estamos bien".
 
-Even when we’re outside, she has me cling to her like a little bird, and just thinking about that is mortifying…!
+"¡Cierto, además de lo que acabamos de deciros, al parecer se podía quitar la cabeza de la estatua, que servía de tapa!", continuó el Rey Rama, probablemente debido a mi reacción mejor de lo habitual. "Esto pareció asustar un poco a Nuestro bisabuelo. Además, antes de poder quitar la cabeza, había que ofrecer una oración de Anazuma. Bueno, la religión en otro mundo es probablemente diferente, así que esto parece un golpe de genialidad del Guía. Hizo que fuera aún más difícil romper el sello, en el improbable caso de que alguien lo intentara".
 
-And yet, in private, she has such a cute reaction?
+No se equivocaba, las religiones en la Tierra y en Anazumu diferían. Y era bastante improbable que alguien rezara ante una estatua de Jizou japonesa al estilo del cristianismo u otras religiones occidentales. Estaba bien pensado y debería ofrecernos cierta tranquilidad.
 
-In the end, she’s still a girl.
+*Espera...*
 
-Now it’s time to get started. I gently rubbed the ahoge on the top of her head, working the milky white shampoo into a lather that spread through her hair. Lian Qi’s hair was smoother than I expected and felt great to the touch. Looking closely, her hair color was actually a light shade of brown, not pure black like _that person’s_.
+"Oye, Mika. ¿Recuerdas esa historia de Sanada que nos contó Shuu hace unas semanas?"
 
-“Your hands are so ticklish, why…?”
+"La recuerdo, probablemente estemos pensando lo mismo".
 
-I noticed her neck and even her fair shoulders were blushing. How strange…? Could it be some kind of magical reaction with the shampoo?
+Cuando Rir, que creció con las creencias de Anazuma, ofreció tal oración a la estatua, ocurrió algo anormal. Y más tarde, según Sanada, alguien quitó la cabeza de la estatua y la colocó a su lado. Esos dos sucesos.
 
-“Maybe… your hair is just more sensitive, Lian Qi…?”
+"¿No es eso malo?"
 
-“You’re the one with sensitive hair! You think it’s like your ears?”
+"Lo es... y mucho".
 
-I was speechless. It wasn’t a good thing for her to use my sensitive ears as a running joke… it’s too embarrassing.
+No se podía calificar esta situación de otra forma que no fuera catastrófica. Significaba que había una alta probabilidad de que el contenido de la estatua ya hubiera sido sustraído. Y precisamente hace poco.
 
-“Isn’t it that when someone else touches you, it’s many times more sensitive than when you touch yourself?”
+"Eso Nos recuerda que el Guía aparentemente mencionó que su nombre era 'Buke'… ¿Alim, Mika? ¿Qué les pasa que se ven tan decaídos? ¿Hubo algo en la información que les acabamos de dar?"
 
-“Is that really it? But it’s just… washing my hair, not touching anywhere else. I think it’s your technique!”
+"…Ehm… sobre eso… bueno."
 
-“My technique…?”
+Solo pude darle al rey una respuesta ambigua. Aunque se podría decir que el asunto involucraba a su familia.
 
-Alright…
+"La forma en que se ven Nos dice que es cualquier cosa menos normal."
 
-Why my technique is ticklish and why the tea I make is delicious can both be chalked up to metaphysics, I guess!
+"L-Lo siento. ¿Le importaría si nos marchamos por hoy, Su Majestad?"
 
-“Yes, that’s right, it’s your technique! I’m not ticklish at all! So don’t think you can find a weakness on me just because I’ve found your sensitive spot.”
+"…Entendido. Pero si surge algo, no duden en contactarnos. Les mostraremos los documentos y textos históricos que estamos investigando actualmente."
 
-“Wh-what sensitive spot…! Can you not say it in such an embarrassing way…”
+"¡M-Muchas gracias por la oferta, Su Majestad!"
 
-Listen to her! What is Lian Qi saying…! She made a simple thing like ears sound so inappropriate…! Huh?? What’s with that ahoge on her head? It’s actually standing straight up in the foam!?
+Impulsivamente agarré la mano del rey con firmeza. Si me preguntan, las personas que podían inferir tales cosas eran increíbles.
 
-It won’t even lie flat when covered in such thick foam? I applied another dollop of foam, hoping it would behave.
+"Pueden retirarse, entonces."
 
-Lian Qi shivered slightly and hugged her knees, whispering, “Are… are you done yet?”
+"¡Muy bien! ¡Gracias por su hospitalidad y hasta la próxima!"
 
-“Ah… almost, almost,” I replied quickly. “Your hair is short, so it’s easy to wash. Not like me… it takes an hour to wash, dry, and then dry it again…”
+Mika y yo echamos a correr apresuradamente. Aunque estar de vuelta en nuestra propia residencia no significaba que pudiéramos hacer algo de inmediato, al menos podíamos poner nuestras ideas en orden.
 
-“That’s because your world doesn’t have hair dryers.”
+"¿Podría ser que ustedes dos…? En fin, hoy no Nos lavaremos las manos."
 
-“Hair dryers?”
+Escuché al Rey Rama murmurar algo que supuse era una despedida. No le di importancia y salimos del castillo.
 
-“It’s nothing. For me, with short hair, I just let it air dry after washing.”
+___
 
-“You’ll get a headache…” I said with a weak smile. “By the way, Lian Qi, why do you keep your hair short?”
+"Ahora, hablemos de esto", comencé.
 
-I couldn’t help but ask the question I’d been curious about.
+"¿No deberíamos llamar a Sakura y Kanata?"
 
-Lian Qi was silent for a moment before asking, “Do you really want to know?”
+"Si involucramos a mi hermano, terminará reflexionando seriamente sobre ello. Esperemos a pedir ayuda hasta que hayamos ordenado nuestros pensamientos."
 
-“Um… if it’s something private, then…”
+Por ahora, dado que el flujo del tiempo en Anazumu no está ligado al de la Tierra, teníamos mucho tiempo.
 
-“It’s not private. I’m just surprised you care about my hair.”
+"¿Te refieres a resumir lo que aprendimos hoy?"
 
-“I originally thought you kept your hair short to make yourself look more like a boy, but after spending time with you, I realized you have no intention of doing that. Even with short hair… you’re completely girlish.”
+"Ahora sabemos que la estatua de Jizou de nuestro vecindario fue hecha en Anazumu y que el vajra con el dios maligno sellado fue colocado en ella, pero recientemente le quitaron la cabeza, lo cual parece bastante sospechoso."
 
-“Hey, come on, I’m not some gender-bender, okay? Actually, my hair used to be about as long as yours.”
+Todo en esto era sospechoso. Además, habíamos oído que Rir había entrado en una especie de trance tras realizar una oración y luego intentó quitar la cabeza de la estatua. El hecho de que el dios maligno fuera capaz de usar telepatía o algo parecido podría significar que ya había recuperado gran parte de su poder.
 
-“Ah!?” I was surprised, and couldn’t help but imagine what a long-haired Lian Qi would look like.
+En cualquier caso.
 
-“You still don’t believe me? Just wait.” She stood up in front of me, not minding me at all… I got a full view of her rear, which left a graceful impression on me.
+"Si lo que sea que se colocó en la estatua de Jizou fue retirado…"
 
-I didn’t dare to look for more than a second. She seemed to be rummaging through her pants pocket for something. A moment later, she returned and handed me her phone.
+Para empezar, probablemente era mejor asumir que todavía estaba allí hasta que tuviéramos la oportunidad de comprobarlo.
 
-“Look, this was me a year ago.”
+"Me pregunto quién le quitó la cabeza."
 
-I looked at the image—huh???
+"Si supiéramos eso… ¿No apareció este tipo súper turbio hace poco?"
 
-Was that girl with the long, flowing hair really Lian Qi?
+"Sí, ese tipo."
 
-“So cute,” I couldn’t help but say.
+Probablemente era el hombre de la capucha negra. Con su conocimiento tanto de Anazumu como de nosotros, era bastante sospechoso. Si alguien se llevó lo que había en la estatua, él sería el principal sospechoso. Su sola existencia era turbia.
 
-“You… know what ‘cute’ means?”
+"De alguna manera, aprendimos un montón de golpe."
 
-Did she blush from my compliment?
+"Son todo conjeturas por ahora, pero mi intuición me dice que hemos dado en el clavo."
 
-“Anyway, back in my original world, I got into a fight with some bad students. Because my hair was long, they grabbed it, and a group of them pinned me to the ground and kicked me. But after that, I cut my hair short and I’ve never lost since!”
+Yo sentía lo mismo. Así era, pero parecía demasiado a la vez. ¿Podría este montón de sucesos extraños y coincidencias servir realmente como prueba?
 
-“Huh??”
+"Por ahora, hemos ordenado nuestras ideas. ¿Cuándo se lo decimos a los demás?"
 
-I looked at her, astonished.
+"Mañana debería estar bien. Estoy seguro de que Shuu y Rir están ocupados dándose arrumacos ahora mismo."
 
-“You… were you okay with that?”
+"Es cierto, deberíamos interrumpirlos. Sabemos perfectamente bien qué se siente".
 
-“It’s not a big deal. If my hair is a weakness, there’s no harm in cutting it off,” Lian Qi said nonchalantly.
+*Ahora… ¿qué deberíamos hacer de aquí en adelante? ¿Algo solo para nosotros dos?*
 
-I finally understood the mystery of Lian Qi’s short hair. No wonder she said that in the cafeteria today— “I hate people like you who bully their classmates!”
+"¿Qué deberíamos hacer con lo que queda del día?"
 
-She had learned martial arts in her original world. Did she even go so far as to cut her hair short for the sake of justice?
+"¿Eh? Continuar donde lo dejamos, obviamente".
 
-“You were very righteous in your original world, too?” I smiled. My impression of Lian Qi improved even more. I remembered how she stood in front of me without hesitation on the night of the Christmas Festival. She’s so reliable…!
+"¿Ah, sí? ¿Quieres volver a ello después de todo eso?"
 
-I even forgot all about how she “bullies” me.
+*Sorprendente. No esperaba que ella propusiera algo tan—*
+
+"Esto es esto y aquello es aquello. Hacer las cosas con moderación es la clave".
+
+"¿No será simplemente que aún no estás satisfecha, Mika?"
+
+—... Sí.
+
+"Oh, bueno".
+
+*¿De verdad está bien esto…? Bueno, supongo que sí, tratándose de nosotros.*
+
+___
+
+**Notas del traductor:**
+
+Me he quejado en varias ocasiones de que el autor es incapaz de sorprender a su audiencia o de arruinar posibles revelaciones demasiado pronto. Esta es probablemente la primera revelación que no sale de la nada y que ha tenido indicios durante varios volúmenes sin que se estropeara nada. Por ahora mantendré la esperanza e interpretaré esto como una señal de mejora en la escritura.
 
 +++
 
-# **28**
+# **624 – Lo opuesto a ser llevado por los espíritus**
 
-“I wouldn’t call it a sense of justice, I just can’t stand to see it,” Lian Qi said with a smile.
+"¡Buenos días a todos! Hay una razón por la que los llamamos aquí".
 
-I didn’t dare look at her directly, because she wasn’t wearing any clothes…! Fortunately, the bathroom was filled with swirling mist, creating a certain hazy beauty.
+"Estoy seguro de que no lo habrías hecho si no la hubiera, hermano".
 
-She herself didn’t seem to mind at all, probably because she thought we were both girls. But I was… so hot.
+Era el día siguiente, y Mika y yo habíamos llamado a los demás a primera hora de la mañana. Shuu y Rir probablemente se divirtieron mucho ayer, viendo lo pegados que estaban el uno al otro. Mika y yo, obviamente, también tuvimos nuestra dosis y actuamos con afecto. Incluso Sakura abrazaba el brazo de Kanata. De hecho, ninguna de nuestras tres parejas dejaba de actuar de forma algo empalagosa.
 
-The bathroom was already warm, and I was still wearing my clothes. To make matters worse, she kept moving around in front of me. I… nervously swallowed and quietly undid the top button of my uniform.
+*Vaya, no tengo tiempo para estar pensando en eso.*
 
-If I could just…
+"Bueno, los llamamos aquí porque ayer mismo ocurrió algo catastrófico".
 
-No, no, no—!
+"Eh… ¿qué hicieron tú y Ayu-nii, hermana mayor?"
 
-It wasn’t that I wanted to pounce on her, it was that I really wanted to splash some cold water on my face.
+"No habrán traicionado al país, ¿verdad?"
 
-“Hurry up and sit down so I can rinse your hair.”
+"Para nada, no hicimos nada, ¿vale? Se trata del dios malvado".
 
-I took Lian Qi’s hand and had her sit back down on the stool, taking the opportunity to wipe my face with the showerhead.
+Las expresiones de todos los que acababan de bromear se volvieron serias. Especialmente Shuu, que una vez presenció a Surtr matando a Rir, mostraba una inusual mirada de desconcierto. No se podía evitar.
 
-“Your face is so red.”
+"Entonces, ¿qué pasó exactamente?"
 
-“Ngh…” I mumbled in response. What did I look like in Lian Qi’s eyes? I was the one helping her bathe, yet my own face was flushed. Wouldn’t she suspect something was wrong?
+"Todavía no ha salido nada de ello… no estoy seguro de cómo explicarlo. En cualquier caso, déjenme contarles lo que hicimos ayer".
 
-“It’s just that the bathroom is too hot, that’s why my face is red…” I added to cover myself.
+—Muy bien.
 
-“Eh? If you’re hot, why don’t you take your clothes off?”
+___
 
-T-take my clothes off…? Lian Qi said it so bluntly, but I had my reasons for being absolutely unable to get naked.
+"…¿En serio?"
 
-“I’ll wash up after I’m done helping you.”
+"Sí, en serio".
 
-I held the showerhead over Lian Qi’s hair and rinsed. Hmm~ watching the foam wash out of her hair gave me an inexplicable sense of satisfaction. If I had to describe it… was it finding fulfillment in the process of caring for her?
+Shuu mostraba una sonrisa forzada mientras sudaba a mares. Por su aspecto, parecía seguir esperando que le estuviéramos gastando una broma.
 
-But I’m a boy. Something feels off about this.
+"…Quiero decir, supuse que había alguna conexión con la estatua de Jizou. Pensar que contenía tal secreto".
 
-After rinsing her hair, I handed her a bath towel. She looked like a young maiden emerging from the bath as she dried her hair. The sight was too beautiful for me to look at, so I could only lower my head.
+"¡No puede ser, ¿en serio Rir estuvo a punto de ser poseída en aquel entonces?! Estuvo cerca…" comentó Shuu mientras atraía a su novia hacia él. "No voy a dejar que eso vuelva a suceder".
 
-“Thanks for your hard work, my little maid.”
+"¿Guau…?"
 
-“Mm… it’s nothing,” I stammered in reply. If it meant helping her wash up while I was fully clothed, I wouldn’t mind doing it a few more times…
+La chica lobo pareció tener signos de interrogación sobre su cabeza por un momento, pero luego entrecerró los ojos, probablemente satisfecha por estar tan cerca de su novio.
 
-Having such thoughts is so shameless of me…
+"Pero ¿no nos dijeron tú, Mika-nee y Shuu hace tiempo que le habían quitado la cabeza a la estatua, hermano?"
 
-Right now, Lian Qi had a towel wrapped around her naked body, revealing only her fair, flushed shoulders. I finally let out a sigh of relief. Looking at her hair, it was already dry. Short hair is so convenient, unlike my long hair, where I think it’s dry but can still squeeze water out of it a moment later, dripping uncomfortably on the floor.
+"Exactamente. Y luego ese hombre de negro empezó a aparecer, molestándonos".
 
-I was focused on the cowlick on top of her head. It was standing up defiantly again!? What the heck.
+"…Hm~".
 
-“Fei’er, catch!”
+Kanata estaba reflexionando. Mientras tanto, Rir levantó la mano para preguntar algo.
 
-“Eh!?” I didn’t have time to react before a stream of water from the showerhead shot all over me…
+—Para empezar, no tengo ni la más remota idea de por qué se colocó esa estatua allí. Mencionaste que hay algo de historia detrás, pero ¿qué es exactamente?
 
-“Whoa…!”
+—La estatua conmemora la misteriosa aparición del hijo de un samurái —explicó Kanata—. Se dice que fue donada por un escultor que pasaba por allí, varios años después de la desaparición del niño.
 
-I yelped.
+—Varios años después... ¿y nunca encontraron al niño?
 
-What the heck!
+—Al parecer.
 
-I was soaked from head to toe!
+—Qué historia tan triste. —Las orejas de Rir cayeron con desánimo. Pero inmediatamente se enderezaron de nuevo y continuó con otra pregunta—: Pero ¿por qué un transeúnte donaría una estatua... una estatua de Jizou? Además, una que contiene un objeto tan peligroso de este mundo.
 
-I stood there miserably, looking up at the culprit—Lian Qi was holding the showerhead, covering her mouth and snickering.
+—Oh, ¿estás pensando lo mismo, Rir? —se preguntó Kanata.
 
-“Let me take a picture of your wet look,” she said, holding that thing called a phone right at me.
+—¡Guau! Solo hay una conclusión posible.
 
-“Don’t—!”
+*Vaya, ¿estos dos se han puesto de repente en la misma sintonía?*
 
-I immediately covered my head and squatted down.
+Aun así, no se equivocaban. Que un hombre apareciera de repente y colocara una estatua de Jizou rellena con algo peligroso era terriblemente sospechoso. En el mismo lugar donde alguien desapareció... un extraño entregó más tarde un objeto relacionado con Anazumu.
 
-A picture… of me all wet… don’t take it…!
+Pensándolo bien, era muy parecido a un secuestro cuando los Sabios eran invocados. Y cuando sucedía, eran borrados de cualquier registro y memoria. Pero en la época en que se colocaban estatuas de Jizou por todo Japón, la desaparición de un solo niño no habría sido tan antinatural. Habría sido fácil ajustar la historia. Incluso sin borrar los recuerdos de la gente.
 
-“Too late, I already took it.” She tossed the phone in her hand, a triumphant look on her face.
+*Ya veo, esa es la conclusión a la que llegaron esos dos.*
 
-“Hey??? You’re bullying me!”
+—Entonces, lo que intentas decir es que quien trajo la estatua... ¿fue el hijo que desapareció?
 
-Just a moment ago, I said I had forgotten all about her bullying me. How could I!
+—Lo has captado, hermano. Parece que todos lo hicieron.
 
-“Aren’t you going to take a shower next anyway?”
+Al mirar a mi alrededor, tuve que darle la razón. Pensé que lo había descifrado justo después de Kanata y Rir, pero parecía que todos lo entendimos al mismo tiempo. Qué decepción.
 
-“Waaah…”
+—Pero ¿por qué parecería un adulto si solo pasaron unos pocos años? —preguntó Sakura—. Con nosotros no fue así.
 
-I was on the verge of tears…! I rubbed my eyes.
+—Bueno, es difícil de decir en nuestro caso ya que solo han pasado unos meses, pero si los dioses pueden ajustar las cosas a su antojo, como hicieron con Rir y el Sr. Mitsuo, no parece tan imposible.
 
-“Then you get out…!”
+Solo nos tomó unos minutos discutir los eventos de ayer para progresar tanto. Fue la decisión correcta confiar en mi hermano; simplemente seguía superándome.
 
-“Alright, alright, you shameful little maid. Remember to lock the door, okay? Otherwise, I might just rush in.”
+—En ese caso, ¿el hombre que lleva la capucha negra también es un samurái? —se preguntó Sakura—. No para de decir cosas sin sentido.
 
-Lian Qi walked out of the bathroom with the towel wrapped around her, holding her pajamas. I was left alone, squatting in the corner, feeling utterly mortified…
+—¿Sin sentido...? Ah, entiendo a qué te refieres. Es demasiado pronto para saberlo, pero no podemos descartar la posibilidad. También podría ser el dios malvado.
 
-Seriously…! Lian Qi just doesn’t get it! She doesn’t understand why I’m so afraid of getting wet.
-
-My soaked uniform top was clinging to my skin, so sheer that you could even see the pink underwear I was wearing underneath! It was my first time wearing pink, and it was so embarrassing for her to see it…!
-
-Most importantly… my skirt was wet, and if it clung to my legs, what if she saw the bulge underneath!?
-
-That’s why I immediately covered my head and squatted down.
-
-Wait—!
-
-That picture she just took, she couldn’t have seen the bulge or anything, right!?
-
-The thought made me break out in a cold sweat.
-
-Whoa…! The more I thought about it, the more worried I got…! I decided to skip my shower altogether, changed into my nightgown, and went to find Lian Qi.
-
-She had already changed into the pajamas I lent her and was sitting on the sofa, reading my notes. I was glad she was studying so diligently, but the picture that threatened my integrity was on her phone. I had no choice but to interrupt her…
-
-“Um… can I see the picture you just took of me?” I asked weakly.
-
-“Eh? You’re done with your shower already?”
-
-“N-No.”
-
-“Hey, no way. Are you actually eager to see a picture of yourself all wet?”
-
-“Please don’t look at me with those strange eyes…” I said with a weak smile.
-
-“Do you really want to see it?” She put down her notes and looked up at me.
-
-I nodded repeatedly. “Yes—”
-
-Lian Qi cleared her throat a few times.
-
-“It’s been a while since I’ve heard someone call me Master.”
-
-“Huh???”
-
-My face instantly turned red.
-
-What the heck!
-
-At a time like this, she was using this method to force me to call her master. Lian Qi, you’re too mean! You can’t bully me like this…!
-
-But what could I do? I consoled myself—it’s actually normal for a maid to call her employer ‘Master’. It’s just that I couldn’t get over it myself. After all, I’m the Saintess… calling someone else Master is too humiliating!
-
-Even though it was mortifying, I could only weakly call out—”Master…”
-
-In that instant, I felt my integrity crumble to the floor.
-
-“It would be great if you had the self-awareness of a maid every day. By the way? You don’t want to see the picture just to delete it, do you? But, hehe, it’s not like you know how to delete it anyway.”
-
-She handed me the phone.
-
-I saw the picture of my drenched self. The skirt wasn’t showing any mysterious bulge. I finally breathed a sigh of relief…
-
-I gently tapped the photo with my finger, then tapped the trash can icon in the bottom right corner. Ho ho~ the photo was gone.
-
-“Alright, I’m going to take a shower now.”
-
-I contentedly handed the phone back to her and walked away with a spring in my step.
-
-“What’s wrong with you…?”
-
-Lian Qi asked, bewildered, as she watched me take one look and leave.
-
-Can’t hear you, can’t hear you…!
+Era divertido verlos llegar a sus propias interpretaciones. Poder dejarlo todo en manos de un hermano menor talentoso no era algo malo.
 
 +++
 
-# **29**
+# **625 – Si el renacimiento ocurriera en la Tierra**
 
-I felt so refreshed after my shower. I changed into a pure white nightgown and walked out of the bathroom, humming a tune. What made me feel the most relieved was that the photo didn’t reveal any hint of me being a boy.
+—Sinceramente, tampoco podemos ignorar la posibilidad de que el dios malvado ya haya resucitado y simplemente se esté escondiendo. Deberíamos tener en cuenta todas esas opciones.
 
-And I’d even deleted the photo. Humiliating pictures of me being all wet shouldn’t exist in this world…!
+—¡Guau, eso es verdad!
 
-But when I got to the living room, Lian Qi was leaning over the back of the sofa, waving my wet-look photo on her phone at me with a triumphant expression.
+Kanata logró cerrar el asunto de buena manera tras reflexionar un poco. Probablemente ya había tenido en cuenta todas estas posibilidades.
 
-I was instantly dumbfounded.
+Que uno de ellos...
 
-“H-how could this be…?”
+—Guau, eso deja en el aire la pregunta de qué se supone que debemos hacer si el dios malvado revive allá, donde no podemos usar nuestras habilidades y estadísticas para defendernos.
 
-“You’re something else, aren’t you? You actually know how to delete photos?”
+—¿Se te ocurrió algo, Rir?
 
-“You just have to tap the trash can icon…” I replied weakly. “But…”
+—No, no me refería a eso. Solo tengo algo personal que me gustaría preguntarle a Shuu. No tiene que ver con esta conversación.
 
-But why was the photo back!
+—¿A mí? ¿Qué pasa?
 
-Having that photo in Lian Qi’s hands was far more mortifying than looking at it myself…!
+De hecho, existía la opción de que el dios malvado volviera a la vida en la Tierra y causara estragos. Kanata había teorizado que las habilidades podrían estar disponibles en un momento así, pero no había garantías. Si lo estuvieran, podríamos luchar normalmente usando Maestro de Objetos para evitar víctimas, daños y que el público se enterara (especialmente de nuestras identidades). El problema era si no lo estaban.
 
-“Hehe, deleting it is useless. You can restore it from the recently deleted folder.”
+Si nos quedáramos con solo unas pocas habilidades disponibles —ninguna de ellas mágica—, la situación podría ser desesperada. La impresión de Kanata al luchar contra Surtr uno a uno cuando Shuu había sido poseído, fue que una bomba nuclear no habría sido suficiente. Bueno, aún causarían daño, así que si se dispararan en rápida sucesión, una victoria podría ser posible, pero eso devastaría Japón. En otras palabras, todos moriríamos.
 
-“What…!?”
+Eso simplemente no tendría sentido.
 
-I didn’t quite understand. Did Lian Qi mean that once a photo is taken, it can’t be deleted? Whoa… so cunning…! Looks like I’ll have to be more careful not to get secretly photographed by her from now on…! That’s the only way.
+—Si llegara a ocurrir un escenario en el que se perdiera toda esperanza... ¿estarías dispuesto a morir conmigo?
 
-“Hehe, give up the struggle. I’ve already saved the picture of you all wet. I’ll treasure it along with the others.”
+—¿Qué? Uhm... bueno, por supuesto que sí. Sinceramente, no estaba pensando en morir ni nada de eso, pero al menos estaremos juntos hasta el final.
 
-I felt so powerless… powerless to resist…
+—Guau~...
 
-What the heck!
+Rir parecía terriblemente feliz.
 
-Why would she treasure it…! Otherworlders are so strange. And—why would they invent something that records people’s embarrassing moments…?
+—¿Y nosotros, Ayumu? —Mika se subió al carro, presionándome.
 
-With a blush, I silently watched Lian Qi triumphantly flip through my photos. It felt like she had something on me… The first day of school was spent in humiliation.
+—Eso es obvio. Odiaría ser el que sobreviva si tú murieras... me darían ganas de morir a mí también. Bueno, lo mejor sería que ambos siguiéramos viviendo juntos.
 
-…
+—¡E-je-je, es verdad!
 
-…
+Desde una perspectiva externa, probablemente parecía que teníamos una charla despreocupada sobre escenarios del fin del mundo, pero al final del día, cada uno de nosotros quería salvar a las personas cercanas. Aunque el ideal seguía siendo resolver esto sin una sola víctima.
 
-…
+—Hah... De alguna manera, aunque intentemos tener una conversación seria, siempre acaba derivando en nuestras relaciones...
 
-When I opened my eyes the next day, it was already morning. I got up and turned off my alarm; there were still five minutes before it was supposed to go off. My internal clock is so precise~
+—Cierto. Pero, ¿cómo lo ves realmente, Kanata? Sé que lucharías hasta el amargo final, pero ¿y si las cosas realmente se desmoronaran?
 
-Thinking about Lian Qi’s class this morning, I couldn’t be lazy.
+Sakura parecía curiosa por la estimación de mi hermano, tras ver las felices reacciones de las otras dos parejas. Se veía seria cuando hizo su pregunta.
 
-I methodically washed up and put on my girl’s school uniform. It was the second day I’d worn it, and I was pretty much used to it. I quite liked this student style myself. It was a shame I never got to go to school with Qifeng. Thanks to Lian Qi, I was able to make up for that regret.
+—Oh... Te salvaré, Sakura, cueste lo que cueste.
 
-Me… actually considering not wearing a girl’s uniform to school a regret…? As a boy, am I beyond saving?
+—Uhm...
 
-Speaking of which, Lian Qi probably wasn’t up yet, right? I pushed open the door and went into the living room. This girl loves to sleep. In all the time I’ve known her, I’ve never seen her wake up earlier than me.
+—Es lo que me gustaría decir, pero me doy cuenta de que no serías feliz con eso. Mi respuesta es la misma que la de los demás; permanezcamos juntos hasta el final, ¿de acuerdo?
 
-I carefully pushed open her bedroom door and slipped inside.
+—¡Sí...!
 
-She was still sleeping, as expected. I pulled open the curtains, letting the bright sunlight stream into the bedroom, but she remained asleep.
+La atmósfera seria se transformó instantáneamente en una de afecto. Si el amor realmente salvara al mundo, ¿cuántas veces habría ocurrido ya?
 
-I went to her bedside and studied her sleeping face. Should I wake her up?
+—¡Guau, en cualquier caso, perdón por sacar el tema! ¿Tenían algo más que quisieran discutir? —se disculpó Rir poco después tras recobrar la compostura.
 
-I had the impression that this was something a girl should do for a boy…
+"Nada en particular. Solo podremos ver qué sucede cuando estemos de vuelta en la Tierra".
 
-But I’m a boy.
+"Hm~, si me preguntas a mí, la resurrección ya ocurrió, pero por alguna razón, no pasó nada más... o mejor dicho, el dios malvado no tiene ganas de hacer nada".
 
-Besides, I don’t know how to wake someone up. If I handle it poorly and she gets cranky, my life could be in danger.
+"Si tú lo dices, hermanita, podría ser cierto, lo cual es aterrador de por sí".
 
-I tentatively waved my hand above her eyelids, almost touching the tip of her nose, but it seemed to have no effect. Still, it was quite fun to be able to make any gesture I wanted in front of her without her knowing. So I played a round of rock-paper-scissors by myself. Isn’t that childish?
+La intuición inquietantemente precisa de Mika. Si tenía razón, entonces las cosas podrían permanecer en paz por algún tiempo.
 
-Hey… I’m being so bold, you should at least wake up.
+"En cualquier caso, todo depende de nuestras habilidades. Para ser francos, si el dios malvado aparece en la Tierra y podemos usarlas, será fácil salvar el mundo. Y si no podemos, más nos vale rendirnos".
 
-But I’ve heard that some people won’t even wake up if you draw on their face.
+"Sí, es bastante directo".
 
-I calmed down, leaned in a little closer, and quietly studied her face. Lian Qi’s eyelashes are so long. Her eyes look completely like a girl’s. It’s so wrong that she’s mistaken for a boy.
+Lo era. Todo se reducía a si podíamos usar nuestras habilidades cuando apareciera nuestro enemigo. Según la teoría de Kanata, dado que la Tierra y Anazumu estaban empezando a solaparse, era posible que la magia se volviera utilizable en el momento en que apareciera el dios malvado. Solo podíamos esperar que tuviera razón.
 
-—In that instant, she opened her eyes and our gazes met. I was stunned for a moment. We were too close… so awkward!
+"De ahora en adelante, debemos mantener un contacto estrecho y, si aparece el hombre de la capucha negra, le haremos las preguntas que preparamos hoy. Tengamos eso en cuenta sin importar lo que hagamos".
 
-“What are you doing? Don’t tell me you were trying to sneak my phone away and delete the photo while I was asleep?”
+"""¡Sí!"""
 
-I instantly sat up straight. “N-No, of course not! You have class this morning, I was just trying to wake you up.”
+*Ahora bien, ¿llegará a aparecer el dios malvado? Tengo el presentimiento de que va a suceder. Pero preferiría que fuera más pronto que tarde... Cierto, mejor le pregunto a Mika qué le dice su instinto.*
 
-Lian Qi propped herself up and looked at me with a strange expression. “Wake me up? You were just staring at me. Are you trying to wake me up with your mind…?”
+"Oye, Mika, ¿cuándo crees que va a aparecer el dios malvado?"
 
-“I didn’t know what to do…”
+"Unos días antes de nuestros exámenes, supongo".
 
-How could a boy like me know how to wake someone up like a girl would…!
+"O sea que la semana que viene, ¿eh...?"
 
-“Simple, I’ll teach you.”
-
-As soon as she finished speaking, she grabbed my hand—huh? I didn’t even have time to react! She pulled me onto the bed, and I fell onto her quilt.
-
-“First, kneel on the bed.”
-
-“Kneel…? Oh, okay…”
-
-I took off my shoes and knelt on her quilt, a look of confusion on my face.
-
-“A little higher, straddle me.”
-
-“Wh-what…?” My face instantly turned red.
-
-“Just do as I say. We’re separated by a quilt, what’s there to be embarrassed about? Besides, we’re both girls.”
-
-But I’m a boy…
-
-It’s too humiliating to straddle her!
-
-Whoa… I’ll just do as she says before my body starts acting weird… I reluctantly shifted my knees and really did straddle her. Because I was wearing a skirt, I was worried about exposing myself, so I shyly pulled the hem down to cover myself as I moved.
-
-“L-like this…?” I asked, covering my face with the back of my hand in shame.
-
-What the heck! Doesn’t this position mean my underwear is directly on her quilt? I didn’t dare to put my full weight down, so… I tried to support myself with my knees as much as possible…
-
-“That’s right, this is the correct posture for waking someone up.” Lian Qi said, smiling up at me from underneath.
-
-“Doing such a shameful pose so early in the morning… how am I supposed to go to school…?”
-
-Lian Qi giggled. “If I were a boy, you might get poked in this position, you know?”
-
-“What are you talking about…!!”
-
-Her words made me so embarrassed I could have exploded. I instinctively pressed down on my skirt. If the skirt were to poof up at this moment, what kind of picture would that be…?
-
-I looked down in shame. Her hand gently touched my face as she said softly, “It’s so nice to see you as soon as I open my eyes. It’s a relief. So being transported wasn’t a dream after all.”
-
-“Wh-what are you talking about… of course it’s not a dream,” I replied shyly.
-
-This morning, I learned something new…
+Bueno, ciertamente sería conveniente si tuviera razón, ya que esa semana no coincidiría con la final del torneo de Shuu.
 
 +++
 
-# **30**
+# **626 – Por la noche, en la estatua de Jizou – 1**
 
-I learned something new on the morning of the second day of school, yes, yes…! I really did learn a new posture—the posture for waking someone up.
+"Buen día, Mika".
 
-However… it’s probably better if I don’t try this method of waking someone up too often. Because, as a boy… I’d find it very embarrassing.
+"Buen día, Ayumu".
 
-Compared to straddling Lian Qi… I’d much prefer a more subtle approach, like bringing her a hot breakfast to wake her up…
+Acabábamos de regresar de Anazumu, pero había cosas que discutir.
 
-Right now, after eating breakfast at the cafeteria, Lian Qi and I arrived at the classroom. This was the Illusion-type class taught by Sister Ejielia, which we had been looking forward to.
+"Entonces, ¿realmente vamos a hacerlo?"
 
-For my sister, the headmistress of the magic academy, to personally teach the Illusion-type class… according to her, ever since the former headmaster rejected _that person_, the Illusion-type class has been cursed, so no one dares to teach it.
+"No estoy segura. Preguntaré durante el desayuno".
 
-That’s just one of the many insane things _that person_ has done.
+El otro día, en Anazumu junto con Kanata y los demás, habíamos sacado a la luz los secretos de la estatua de Jizou y discutido varios temas. Después de que Rir planteara la cuestión de qué haríamos si nos enfrentáramos a nuestro fin, a lo que reaccionamos afirmando que estaríamos juntos hasta el final, Kanata nos instruyó sobre lo que debíamos hacer a partir de ese momento.
 
-Just then, Sister Ejielia walked into the classroom wearing her starry-sky magic robe. Her presence was completely different from the other teachers. Seeing her in a classroom for the first time made me inexplicably nervous… I stopped what I was doing—twirling my pen. I got my notebook ready to help Lian Qi take notes in a moment.
+*"¡Ayumu~, el desayuno está listo!"* escuché gritar a mi mamá.
 
-I glanced at Lian Qi. She was resting her chin on her hand and smiling at me ambiguously. So strange…! I quickly avoided her gaze. Could she have been completely focused on admiring my pen-twirling?
+Parecía que ella había preparado el desayuno. En ese sentido, después de descubrir lo hábiles que éramos Kanata y yo cocinando, nos había estado pidiendo a uno de nosotros que preparara el desayuno o la cena cada dos días. Era uno de mis fuertes, así que no me importaba.
 
-“There are only a few days left before the graduation ranking tournament. I hope you are all prepared,” Sister Ejielia said.
+Además, Mika me estaba preparando el almuerzo para llevar todos los días últimamente. Todo ese asunto de la "fiambrera hecha por la amada esposa" (tal como mamá preparaba el almuerzo de papá). Mamá decía que esto por sí solo ayudaba mucho a mantener estable la relación[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121035), lo cual era bueno saber.
 
-Her voice wasn’t much different from usual, but everyone heard every word she said clearly. As expected of the headmistress, she had the intimidating power to command order in a chapel without any effort.
+"¡Ya voy~! Nos vemos luego, Mika".
 
-“As everyone knows, the Illusion type is the magic that can truly create miracles.”
+"Lo mismo digo."
 
-—I couldn’t help but think of that maxim about magic: A miracle born from a wish is magic.
+Se asomó por la ventana, me dio un beso en la mejilla y luego se retiró a su habitación. Siguiendo su ejemplo, yo también bajé del segundo piso a la sala de estar.
 
-“And the Inherent Magic of the Illusion type is the crystallization of your desires.”
+"¡Buen día, mamá!"
 
-Oh? So the official name for a magician’s self-created magic is “Inherent Magic”? I need to quickly write that down for Lian Qi. Just as I picked up my pen, Lian Qi casually placed her hand on my thigh.
+"Buen día, Ayumu. Desayuna algo, ¿quieres?"
 
-!???
+"¡Claro!"
 
-Ngh…
+"Buen día, hermano."
 
-This feeling…
+"Buen día."
 
-I trembled slightly from the bottom of my heart, and Lian Qi must have felt my reaction…! My mind went blank for a moment, and it took about a second for me to come back to my senses.
+"Ah, Ayumu. Buenos días."
 
-Lian Qi was stroking my thigh…!
+"Buen día, papá."
 
-This was the first time in my fifteen years that I’d experienced something like this. Even if the other person was a girl, I wasn’t used to it…!
+¿Cuántas veces más daría los buenos días hoy? Ya era la cuarta vez, aunque eso pasaba todos los días.
 
-What did Lian Qi want? I initially thought she had just rested her hand there by accident, but she started stroking back and forth on my black thigh-high stocking…
+"Entonces, hermano, ¿sigue en pie? Lo de esta noche."
 
-Waaah…
+"Sí, sigue en pie. Pero la idea de recibir un castigo divino da miedo."
 
-Since Lian Qi was reaching under the desk to touch my leg, the other students wouldn’t notice unless I had some kind of conspicuous reaction…
+"No es como si tuviéramos opción. Es la única forma de verificarlo…"
 
-As Lian Qi touched the stretchy fabric of my thigh-highs, the feeling of friction against my thigh became increasingly sensitive…
+"Grr… Hmph."
 
-“Wh-what… do you want…”
+Efectivamente, tal como había dicho Kanata, íbamos a visitar la estatua de Jizou por la noche, quitarle la cabeza y comprobar qué había dentro. Con todo lo que había pasado, lo más probable era que el vajra ya se lo hubieran llevado, pero ver para creer, y nunca lo sabríamos con certeza a menos que miráramos.
 
-I said weakly, keeping my expression calm. Since we were in class, my voice was almost a whisper, but I was sure she heard me. Not only did she not stop, but she intensified her efforts… moving a little higher.
+"¿De qué estás hablando?"
 
-Just a few inches from the hem of my skirt, she gently caressed the area known as the “absolute territory”…
+"Ah, mamá, estábamos pensando en salir un rato hoy después de cenar. Hay algo que queremos verificar."
 
-Waaah… It’s so ticklish! Lian Qi, you’re being too bold!
+"¿Algo por lo que tengan que salir de casa después de cenar…?"
 
-I’ve never had my thigh touched like this before, and in public no less! It was utterly humiliating…! But I couldn’t speak up, and I still had to take notes! I could only force myself to remain calm.
+"Exacto. Shuu también vendrá, así que no hay de qué preocuparse."
 
-My eyes were on Ejielia as she wrote the words Enchantment-type, Evocation-type, and Manipulation-type on the blackboard. Underneath, Lian Qi’s hand was roaming over my thigh. In short, it was an incredibly mortifying situation for me…
+"¿Él vendrá? Está bien, entonces. ¿Se van a reunir en algún otro lugar para estudiar?"
 
-I heard Sister Ejielia say, “Because everyone’s inner wishes are different, the forms of Inherent Magic, as the crystallization of those wishes, are incredibly varied. Some are suitable for combat, some are not. So strictly speaking, the Illusion type is magic that creates miracles. If used in combat, it requires more skill than the simple and crude Enchantment-type, the mobile turret-style Evocation-type, or the stationary Manipulation-type.”
+"Bueno, no exactamente, pero supongo que es algo parecido."
 
-As I listened to my sister’s lecture, my pen scribbled ceaselessly in the notebook. Suddenly, Lian Qi leaned in and whispered in my ear, “Your sister mentioned the Enchantment-type. Although the theme of this class is how Illusion-type magicians fight the other three types, I can learn some things in reverse, right?”
+Solo por las palabras, sonaba como un disparate total, pero mi hermano se las arregló para que colara por su forma de hablar y actuar. Sabía que podía contar con él.
 
-“Ngh… mm…”
+Por otro lado, Shuu ya no salía tanto de casa en este punto. También planeábamos que Rir esperara a cierta distancia. Podría ser peligroso para ella acercarse a la estatua. Dicho esto, si Shuu no estaba con nosotros, existía el riesgo de que nos secuestraran, así que no podía quedarse con ella. Él solo (al menos según las estimaciones de Kanata) era suficiente para abatir a varios terroristas armados.
 
-I shivered slightly. Whenever she spoke into my ear, the breath tickling inside made me feel so itchy…!
+"¡La comida estuvo genial!"
 
-And besides! She was still secretly stroking my thigh…!
+"Gracias por decirlo. Ve a cambiarte."
 
-Seriously…! It made it hard for me to concentrate, and I almost missed what Sister Ejielia was saying!
+—Muy bien.
 
-“As we all know, based on the characteristics of magic, the personal defense of an Illusion-type magician is much weaker than that of a Manipulation-type or Enchantment-type, and also a bit weaker than an Evocation-type. Therefore, more skill is needed. Do you understand? For example, don’t get into an arm-wrestling match with an Enchantment-type! Their innate Magic Aura and Magic Armament foundations are better than yours!”
+Fui a mi habitación en el segundo piso y empecé a cambiarme. Exactamente al mismo tiempo, Mika estaba haciendo lo mismo.
 
-—I quickly jotted this down in my notes as well. As expected… influenced by my sensitive ears, another part of my handwriting was crooked and messy.
+"Ah, ya volviste Ayumu. ¿Y bien? ¿Tus padres te dieron permiso?"
 
-Just then—
+"Kanata les dio una explicación simplificada y logró que aceptaran."
 
-While still stroking my thigh, Lian Qi gently blew a puff of air into my ear…
+"Eso es muy propio de él. Nosotros dijimos que iríamos a casa de Shuu a estudiar con Rir y que cenaríamos allí."
+
+"Oh… yo también debería haber dicho eso. Nosotros cenaremos en casa."
+
+*Metí la pata con eso. La idea de cenar fuera ni se me pasó por la cabeza.*
+
+"Bueno, no importa. Ha pasado tiempo desde que Sakura y yo estuvimos solas."
+
+"Está bien, perdón por no haberlo pensado."
+
+Después, nos cambiamos sin más incidentes (para cuando volví a mi habitación, ella ya estaba casi vestida, así que lamentablemente no pude verla en ropa interior) y salimos de casa.
+
+"¡Muy bien, vamos!"
+
+"¿Por qué no pasamos por la estatua de camino? Podríamos hacer una revisión preliminar antes de reunirnos allí esta noche."
+
+—Muy bien.
+
+Caminamos de la mano como siempre hacia la estatua. Estaba tan cerca que llegamos en un abrir y cerrar de ojos, mientras nuestros vecinos bromeaban sobre lo cariñosos que éramos.
+
+"¿Notas alguna señal?"
+
+"Nada que pueda ver… Incluso la versión limitada de la habilidad de Detección no capta nada."
+
+—...Ya veo. ¿Qué hay de la estatua y sus peculiaridades?
+
+La miré más de cerca. Hacía años que no la examinaba con tanta atención. Definitivamente era diferente de las estatuas normales de Jizou. Estaba rezando con los dedos entrelazados, no solo con las palmas presionadas una contra la otra. Había otras diferencias con respecto a lo normal, pero enumerarlas todas habría llevado demasiado tiempo.
+
+Tras juntar las manos como de costumbre, volvimos a tomarnos de la mano y nos marchamos.
+
+—Me pregunto si esto funcionará.
+
+—Pensé que nos encontraríamos con el hombre de la capucha negra aquí, pero no sucedió...
+
+—Tenemos tiempo de sobra, pero vámonos ya.
+
+—Muy bien.
+
+Nos dirigimos a la escuela.
+
+**Notas:**
+
+1. El original es bastante ambivalente y no especifica "relación" aquí, por lo que podría significar simplemente que hace que las "cosas" sean más fáciles o cómodas.
 
 +++
 
-# **31**
+# **627 – Por la noche, en la estatua de Jizou – 2**
 
-Whoa…!
+—¡Buenos días a todos!
 
-I felt half of my body go numb! It was a tingling sensation that went deep into my bones from my ear, an itch I couldn’t scratch, which was especially agonizing. We were in class right now! To avoid being noticed by others, I could only endure it…
+—¡Buenos días!
 
-Lian Qi wasn’t just whispering in my ear; she was deliberately blowing on it…!
+Mika y yo llegamos a nuestra clase tras encontrar el montón habitual (aunque algo reducido) de cartas de amor en nuestros casilleros de zapatos. Era increíble que la gente siguiera dejándolas allí.
 
-To openly tease me in class like this… sniffle… so mean…!
+—Buenos días, Mika —dijo Sanada—. Seguro que ya lo saben, ¿verdad?
 
-Clearly, she wasn’t going to let me off so easily. Now she was leaning close to my ear again, her intoxicating breath tickling it—”You’re not going to cry out, are you? Your sister will hear, you know.”
+—Buenos días, Sana —la saludó Mika—. ¿Hablas de la doble victoria de Shuu en el torneo de la prefectura? Estuvimos allí y lo vimos en persona.
 
-“Wuuu…”
+—Exacto. Estoy segura de que hoy será el tema de conversación en toda la escuela. Se lo he estado contando a todo el mundo desde ayer.
 
-Blushing, I fought back the tingling itch and shakily wrote down my class notes—”Most Enchantment-type students only strengthen their own bodies. It seems simple and crude, but it’s too one-dimensional. As the saying goes, what makes you can also break you. When dealing with an Enchantment-type, try to avoid getting close.”
+—Je, no puedo decir que me sorprenda.
 
-Lian Qi became even more audacious. Not only did she blow on my sensitive spot—my ear—but her fingers were getting restless too…! Drawing circles on my thigh…
+Si le había contado a todos sus conocidos las victorias de Shuu tanto en la competición individual como en la de equipos, lo más probable era que toda la escuela ya estuviera al tanto.
 
-Ngh… I almost cried out. The skin being touched felt as if it had been electrocuted—tingling, numb, and itchy…! Combined with the assault on my ears… n-no—! Her hand moved to the top of my thigh and started writing something!? N-not… there… I instinctively clamped my legs together, and my body started to feel strange…!
+—¿No es una locura? En plan, ¿una locura total?
 
-“Guess what word I just wrote?” she whispered mischievously in my ear.
+—Totalmente.
 
-Fighting it back, I wrote a single, shaky character in my notebook. Wuuu~ this is so humiliating.
+—¿Hm? ¿Qué está pasando?
 
-Her hand moved from the top of my thigh, traveled down between my clamped knees, hooked the top of my thigh-high stocking, and slipped inside…
+Varios chicos de nuestra clase empezaron a hacer ruido mientras miraban algo en sus smartphones. Eso me dio curiosidad.
 
-Whoa…!
+—Ah, Ayumu. Estábamos viendo un vídeo del combate de Hino en la final de ayer. Sanada nos lo envió.
 
-I wasn’t used to this at all. She slid her hand inside, caressed my skin once, and then let me go, leaving me itching for more. Because my thigh-highs had good elasticity, she flicked the top of the stocking against my skin. Whoa…! Can you please not provoke me like this…?
+*Espera, ¿ella también fue a ver el torneo? Es bastante escurridiza e impredecible. Ni siquiera me di cuenta de que estaba allí.*
 
-She was being too reckless! This was the middle of class…! I used my left hand to hold down my skirt so she wouldn’t discover I was a boy, while forcing myself to look calm as I took notes with my right hand. At that moment, I was trapped in a conflict, wanting to resist but terrified of being discovered by others. I silently endured the dual assault of her caressing my thigh and teasing my ear… Waaah…! The shame was overwhelming…!
+—Hago lucha libre estilo luchador en el gimnasio, así que me doy cuenta. Es increíble lo fuerte que es Hino.
 
-I always thought I had good self-control, but she had teased me to the point where my legs felt weak and I was on the verge of collapse… I just hope no one noticed my flushed face. I hadn’t made a single sound from beginning to end…
+—Es de locos cómo incluso el último combate termina en un instante.
 
-Lian Qi was really taking advantage of the fact that she was a girl…! I seriously think being her deskmate is the worst luck ever…!
+—Bueno, es Shuu. Él lo hace posible.
 
-Finally, class ended. I held my notebook and walked ahead. Lian Qi caught up to me in a few steps, but I deliberately avoided looking at her.
+Mientras la charla sobre Shuu se animaba, la puerta de la clase se abrió con un estruendo. Mi musculoso amigo y Rir entraron.
 
-“Fei’er, why do you think the Demon King made it so no teacher dares to teach the Illusion-type? Could it be that she feels this miracle-creating magic is a threat to her, so she wants to stagnate its development?”
+—Oh, buenos días, Mika, Sanada. ¿Eh? ¿Ha pasado algo, chicos?
 
-“Please don’t talk to me~! I don’t want to talk to you for the rest of the day~!” I said, blushing.
+—Buenos días a los dos. ¿A qué viene este ambiente?
 
-Even if she was fully aware of the heinous crimes she committed against me in class, and even if she was trying to be nice to me after class, I was still going to ignore her, hmph…!
+Shuu parecía confundido mientras la atención de todos se centraba en él.
 
-“No way. If you ignore me, who will talk to me?”
+—Buenos días —dijo Sanada—. Bueno, simplemente he estado corriendo la voz sobre tu doble victoria en el torneo de la prefectura desde ayer. Incluso adjunté un vídeo, je, je, je.
 
-“The air, the sunlight, and the steamed buns in the cafeteria.”
+—¿Hablas en serio...?
 
-“Don’t be like that. I apologize. Uhm—I’m sorry, I went too far.”
+Al mismo tiempo que Shuu mostraba una sonrisa algo disgustada, todos se abalanzaron sobre él a la vez.
 
-What’s this? Such a sincere attitude.
+—¡Eso fue increíble! ¡Sigue así y ganarás el torneo nacional!
 
-According to our roles, she was my master and I was her maid. Wouldn’t it seem unreasonable for me to demand an apology? I shot her a reproachful glare. I wasn’t really angry, just feeling wronged—”You knew I was helping you take notes, and you still… you still bullied me.”
+—Irás a las Olimpiadas, ¿verdad? ¡Me refiero al año que viene!
 
-“I’m sorry. You were so diligent, taking notes for me with all your heart, and I was still so audacious. It was my fault.”
+—S-Sí, planeaba ganar la competición nacional... pero ir a las Olimpiadas depende de los exámenes.
 
-“You’re really something else…”
+—¡Tú puedes, Hino!
 
-I blushed and glanced away. Please don’t use such embarrassing words to describe me…! I’m a boy, waaah… so embarrassing…! I was just willingly doing what I could for her, wasn’t I?
+—¡Te estaremos apoyando!
 
-Of course, having my ear teased and my thigh touched was not on the list of things I willingly agreed to! If I didn’t make my position clear, would she tease me in every class from now on? Would she realize on her own that it wasn’t right to do that to me? But it’s a good thing Lian Qi is a girl… it just makes me feel embarrassed, not like she’s molesting me…
+—G-Gracias, chicos.
 
-But I’m a boy… is this really okay?
+Parecía que el rey del harén se había vuelto popular tanto entre los chicos como entre las chicas.
 
-My body felt strange in class just now, and it took a long time to recover…
+___
 
-“I promise, I’ll never blow on your ear in class again.”
+—¿Qué tal estaban los fideos de cristal Mapo[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121037)? ¿Estaban buenos?
 
-“What about my thigh…?” I looked at her, blushing. “You’re not still going to… touch it?”
+—Estaban tan buenos que nunca podré volver a comerlos en un restaurante. Tienes que estar en otro sitio, ¿verdad? Nos vemos luego... y cuídate.
 
-“I just couldn’t help it seeing you sit next to me… Hey, we’re both girls, aren’t we?”
+—¡Lo haremos! Vamos, Kanata.
 
-“It’s such bad luck to be your deskmate…!”
+—Nos marchamos.
 
-Seriously… is my thigh that nice to touch? Everyone’s is the same.
+Kanata y yo salimos de la casa. Eran las 8 de la tarde. Normalmente, verías a muchos transeúntes en la ciudad incluso a esta hora, pero esta era una zona residencial y estaba cerca de una estatua de Jizou que se rumoreaba que causaba fenómenos extraños, así que apenas había gente. Aunque el tráfico de peatones era normal durante el día.
 
-As I was walking down the hallway, I was forced to a stop because someone was blocking my way.
+De cualquier modo, llegamos a nuestro destino mientras yo estaba absorto en mis pensamientos. Ya había dos lindas visitantes allí.
 
-I looked up at him—he was about twenty centimeters taller than me. It was the student council member from the cafeteria yesterday who was bullying the other student. I think his name was Wood, and his father is the captain of the Royal Capital Guard, Steel Oca.
+—¡Hola, Mika, Sakura!
 
-“Well, if it isn’t the little beauty next to the transfer student,” he said, looking down at me with a strange smile.
+—¡Hola, Ayumu!
 
-At the critical moment, Lian Qi pulled me behind her. “Get lost. Stay away from Fei’er,” Lian Qi said coldly.
+—¿Qué habéis cenado vosotras dos?
 
-“What’s the matter, Prefect? Can’t I even say hello when I run into you in the hallway?” Wood said, glancing at the armband on Lian Qi’s arm. “I don’t think I’ve broken any school rules.”
+—Hamburguesas.
 
-“I said—no,” Lian Qi replied bluntly. “You haven’t broken any school rules, but you’ve broken my rules. Without my permission, no one is to approach her.”
+Nos dijeron que cenarían fuera, así que aparentemente eso fue lo que decidieron. Hacía tiempo que no comía en ningún restaurante de comida rápida. De vez en cuando se me antojaba ese tipo de comida grasienta, se pudiera llamar deliciosa o no.
 
-I thought to myself, Lian Qi is so domineering… her presence isn’t inferior to a boy’s at all. I saw Wood’s mouth twitch as he said coldly, “Don’t think you can disregard the student council just because you have the headmistress backing you! I just realized after class that we were in the same classroom. What? An Enchantment-type coming to an Illusion-type class?”
+—Parece que solo nos falta Shuu...
 
-“Oh? So you’re an Illusion-type? No wonder you’re so weak you couldn’t even lift your head when I pushed it into your plate.”
+—Ahí viene. Junto con Rir.
 
-Wood shoved his hands in his pockets, looked away with a displeased expression, and then gave a strange, slight nod, his mouth twitching as he said, “Just you wait. When the ranking tournament comes, the headmistress won’t be able to save you. I’ll crush you with my Inherent Magic!”
+Los dos habían llegado en el momento perfecto. Desde donde estaba, podía ver vagamente a una chica de pelo blanco asomándose por una esquina a tres casas de distancia. A menos que hubiera una aparición en la zona, tenía que ser Rir.
 
-“The one who’s going to be crushed is you,” Lian Qi said coldly.
+—Puedo ver a Rir, eso significa que estamos todos aquí.
 
-“Remember what I said, there are no magicians in the Enchantment-type. I’ll show you what real magic is then.”
+—Bien. Empecemos, entonces.
 
-“Now that I’m here, there is.”
+"Sí."
 
-After her blunt reply, Lian Qi grabbed my hand.
+*Vale, esto se está volviendo cada vez más aterrador.*
 
-“Fei’er, let’s go.”
+—Kanata, estamos listos.
 
-She bumped past him and pulled me away. None of his lackeys dared to stop us.
+—...Sí. Si fueras tan amable, hermano.
+
+Hice una oración al estilo japonés, me disculpé profusamente y luego agarré la cabeza de la estatua. Aunque la piedra debería haber sido pesada, pude sentir que se movía con facilidad. En ese momento, recordé haber arreglado la estatua hace tiempo. Me pregunté cómo se veía entonces, pero no recordaba haber mirado dentro.
+
+—Hng... ya está. ¿Eh?
+
+Finalmente logré quitar la cabeza. Pero todo lo que podía ver era piedra sin ninguna abertura por ninguna parte.
+
+—¿No hay nada?
+
+—¿Eh? Qué raro.
+
+—Entonces volvamos a ponerla y esta vez usemos la oración al estilo Anazuman.
+
+—Muy bien.
+
+Coloqué con mucho cuidado la pesada cabeza donde había estado y luego realicé el otro tipo de oración. En el momento en que lo hice, la atmósfera cambió de alguna manera. Me di cuenta de que era completamente diferente, como si hubiera algún tipo de presión.
+
+—L-La voy a quitar, ¿vale?
+
+—A-Ayumu... ¿debería ayudarte?
+
+—Estoy bien...
+
+Puse mi mano en la cabeza de la estatua de nuevo. De alguna manera se sentía más ligera que antes. Y una vez quitada... había aparecido una abertura donde antes no había ninguna.
+
+**Notas:**
+
+1. Mapo (麻婆), probablemente la versión abreviada de [Mapo Tofu](https://en.wikipedia.org/wiki/Mapo_tofu), es un plato chino de tofu en salsa picante. Supongo que aquí lo comen junto con fideos de cristal.
 
 +++
 
-# **32**
+# **628 – Vacío**
 
-Lian Qi pulled me by the hand as we walked out of the castle. Many students turned to look at us along the way. Was it because our pairing was too eye-catching?
+"No hay nada en la abertura, pero... ¿supongo que podemos asumir que el vajra estaba ahí dentro?"
 
-She didn’t let go of my hand until we reached the school’s athletic field. I saw couples walking around with their arms around each other’s waists. I swallowed nervously and asked her, “Lian Qi, why did you bring me here?”
+"Probablemente."
 
-“Help me gather some branches.”
+El hueco abierto en el cuello de la estatua estaba vacío. Se sentía como si el contenido de un cofre del tesoro resultara ser una gran decepción.
 
-“What!?” I stared at her, stunned.
+"Entonces, como temíamos, el vajra ya ha..."
 
-She showed me with her actions that she was, in fact, gathering branches.
+"¡Es demasiado pronto para rendirse! Al menos eso es lo que me gustaría decir como de costumbre, pero no tenemos ninguna pista..."
 
-“I need some branches to practice my Inherent Magic,” she said.
+Si incluso mi hermano estaba perdido, entonces yo no tenía nada que aportar.
 
-Oh, right. Lian Qi hadn’t mastered her Inherent Magic yet. As an Enchantment-type magician, she must have been unhappy when others belittled her specialization by saying it had no real magicians.
+"Uhm, ¿eso significa que el dios maligno... ha vuelto a la vida?"
 
-There wasn’t much time left before the graduation ranking tournament, so she had to work hard to create her own magic, didn’t she?
+"No necesariamente, Sakura. Recuerda, los otros dioses malignos necesitaban cumplir ciertas condiciones para poseer a personas para luchar. Si este no ha cumplido esos requisitos..."
 
-I crouched down and helped her gather branches.
+"Ahora que lo mencionas, el primer dios maligno al que nos enfrentamos solo podía poseer a alguien del linaje Mephilad".
 
-Though I had no idea what the branches were for, I ended up helping her pick up quite a few.
+De hecho, aún podríamos tener algo de tranquilidad si ese fuera el caso. Es decir, si este dios maligno tuviera algunas condiciones para apoderarse de alguien.
 
-“What are you two… doing?”
+"En ese caso, tendremos que acotar estas condiciones primero".
 
-Eh—?
+"¿Tienes alguna idea, Kanata?"
 
-A familiar voice drifted into my ears.
+"Veamos... en pocas palabras, se me ocurren dos".
 
-I thought my ears were playing tricks on me, perhaps from being teased by Lian Qi too many times.
+*Dos posibilidades. Oh, ¿podrían ser esas...?*
 
-I looked up and saw a pure figure with long, golden-blonde hair tied in a single ponytail. My childhood friend—Qifeng—was standing in front of me with a bewildered look on her face.
+"Estás pensando en los parientes del Rey Rama o en el designado como guía, ¿verdad?"
 
-“What are you doing here!?”
+"Exacto. Si es lo primero, no tenemos de qué preocuparnos por un tiempo, pero si es lo segundo, estamos en problemas".
 
-I jumped up in surprise.
+Kanata se veía serio. Decidí preguntarle por qué lo segundo sería un problema, aunque ya tenía una corazonada.
 
-What surprised me even more was that Qifeng was wearing the magic academy’s uniform! Her legs were clad in white thigh-high stockings, the complete opposite of mine. Seeing her dressed like this, I thought I had traveled back in time.
+"¿Por qué sería así?"
 
-“I couldn’t resist coming to see you.” Qifeng smiled brightly, giving me a victory sign.
+"Vamos, si repasamos todo lo que hemos estado hablando hasta ahora, el hijo del samurái se convirtió en el guía en Anazumu y luego regresó aquí, ¿no? En otras palabras, la probabilidad de que un guía esté en la Tierra es mucho mayor".
 
-“Why are you dressed like that…?”
+Tenía razón, esto sonaba a problemas. Pensando en retrospectiva... Samaeyl poseyó el cadáver de la madre de Karua. Si este dios maligno fuera capaz de apoderarse de un cadáver y quien tomó el vajra lo llevara al cadáver del guerrero que había sido abducido, sería jaque mate[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121059). El dios maligno resucitaría en la Tierra.
 
-“It’s my old school uniform. I dug it out to wear, hehe,” she said, scratching the back of her head sheepishly.
+"¿Cuándo fue la última vez que se nominó a un guía?"
 
-“Guards—! There’s a strange person who’s snuck in!”
+"Ah, Mika y yo hablamos de eso con el Rey Rama".
 
-“Shh—! Keep your voice down!” Qifeng quickly covered my mouth to stop me.
+"Ahora que lo mencionas, lo hicimos... No parece haber pasado nada importante, así que llamemos a Shuu y Rir para que se unan a la discusión. Una vez que estén aquí, ¿podrías contárnoslo de nuevo en detalle?"
 
-Speaking of which, there really was a cross-dressing pervert who had snuck in, and that person was me.
+—Claro que sí.
 
-“Hey, what are you doing here,” Lian Qi finally asked after watching us silently for a long time.
+___
 
-“I’m your senior now, you know!” Qifeng said, smiling smugly at her.
+"Guau~... Guau..."
 
-“Ugh… whatever.” Lian Qi had an expression of utter rejection.
+"¿Estás bien...? Supongo que sí".
 
-“Fei’er, I’m your senior too.”
+"¡Guau!"
 
-“Give me a break…! Don’t try to pull rank on me. Speaking of which, it’s been a year since I’ve seen you dress like this,” I said to Qifeng.
+Se unieron a nosotros con vacilación. Kanata les dio entonces una versión concisa de lo que habíamos discutido hasta ahora.
 
-Qifeng had only graduated from the magic academy last year. Since she was my age, it was only natural that she could blend in by wearing the uniform. This silly girl, I really didn’t know what to do with her.
+"Aun así, es bueno que no le haya pasado nada a Rir".
 
-As childhood friends, we were now actually wearing identical school uniforms, which gave me a strange sense of excitement.
+"Guau, ¿eso significa que fue el vajra el que controló mi cuerpo y no la estatua?"
 
-“This is the first time I’ve seen you in a school uniform too!” she said, her eyes full of adoration as she looked me up and down. “Hey? Why are you wearing black thigh-highs again?”
+"Posiblemente".
 
-“Be quiet! Is… is there something wrong with me wearing black?”
+Era una conclusión razonable. Tenía más sentido que fuera causado por el sello del dios maligno en el vajra, que empezaba a deshacerse, en lugar de la estatua misma.
 
-“It looks good, but—”
+—De todos modos, hermano, ¿podrías informarnos sobre lo que el Rey Rama te ha contado hasta ahora? Hasta ahora solo lo has mencionado a grandes rasgos.
 
-“Don’t even start with that…!”
+—Claro, lo haré.
 
-She had already nagged me about it in the carriage, saying things like—the Saintess shouldn’t wear black stockings, black is the color symbolizing the magic abyss, and so on. How conservative could her thinking be? I had never worn black stockings in my entire life; what was wrong with letting me enjoy it for a bit?
+Les conté todo lo que el rey nos había explicado con tanto detalle como pude recordar. Bueno, como la memoria de Mika es mucho mejor que la mía, confié en su ayuda para la mayor parte.
 
-“Then… can I touch them?” she asked, blushing.
+—¡Guau! ¿Convirtió a alguien en guía por un capricho?
 
-I looked at her, at a loss for words. My thigh had just been thoroughly felt up by Lian Qi in class. Why did Qifeng have the same hobby as Lian Qi?
+—Bueno, nunca se sabe qué van a hacer las personas con disposiciones descuidadas —respondió Shuu—. ¿Estaba bien el Reino de Bufura en aquel entonces?
 
-“You still want to touch them, knowing they’re black? Aren’t you afraid of falling into the magic abyss?” I teased her.
+Yo también me preguntaba eso, pero probablemente lo habían estado. O tal vez, como en Yggdrasil ahora mismo, los otros políticos hicieron que funcionara de alguna manera.
 
-“I would willingly fall into your abyss,” Qifeng said to me with a blissful expression.
+“Say, Bro. The previous Guide was active around 100 years ago. He was an otherworlder from Anazumu’s perspective, his specialty was performances, he had an intense longing to ==return== to his homeland, ==return== he later moved to the Mephilad Kingdom following a clue… did I get that right?”
 
-She really knew how to make me feel helpless…
+—Creo que sí. ¿Hubo algo más, Mika?
 
-But since it was Qifeng, I didn’t really have a reason to refuse.
+—No, eso es lo que nos dijeron a Ayumu y a mí.
 
-“Be my guest, but you can only touch my right leg.”
+Kanata se puso el dedo en la barbilla. Un momento después, palideció. Era inusual que se sintiera tan perturbado por algo que no tuviera que ver con Sakura. En otras palabras...
 
-My left leg had just been touched by Lian Qi, so… for balance.
+—¿Se te ocurrió algo?
 
-“You’re really letting me? Then I’m going to touch it, okay?”
+—Sí... o mejor dicho, respondió a algo.
 
-I thought she was just going to touch them, but I didn’t expect her to actually kneel at my feet and rub her face against my thigh… as if it were a long-lost reunion.
+—¡Sabía que podías hacerlo! Entonces, ¿qué es?
 
-W-What is this!
+Abrió la boca lentamente pero vaciló, como si tuviera miedo de expresarlo con palabras. ¿De qué se había dado cuenta exactamente?
 
-This posture, it’s so embarrassing!
+—¿Estás bien? Si es difícil de decir, solo susúrramelo y yo se lo transmitiré a los demás.
 
-Blushing, I finally managed to break free.
+—No, no es eso... qué hago...
 
-“This is the athletic field…! Pay a little attention to your image, you silly girl!”
+—¿Kanata...? ¿De verdad estás bien?
 
-Whoa… I really don’t want to be seen like this. A female inspector disguised as a student, hugging the stocking-clad leg of a cross-dressing boy… just thinking about it is mortifying…
+Sakura acarició la espalda del chico mientras él respiraba profundamente. Realmente debía haber llegado a alguna conclusión. Y claramente tenía problemas para expresarlo con palabras.
 
-Seriously…! I dusted off my stocking. She’d better not have caused a run in it.
+*Todavía está en segundo de secundaria... tal vez puse demasiada carga sobre él.*
 
-“What are you doing sneaking into the school? Did you come all this way just to return my nightgown?”
+Sakura dejó de acariciarle la espalda y lo abrazó suavemente por detrás. Él pareció haberse decidido y volvió a abrir la boca.
 
-“Oh, dear, you still remember that?” she said with a silly grin.
+—Bueno... estoy casi seguro en este punto... quiero decir, descubrí quién era el Guía anterior. ¿Quieren saberlo?
 
-…Did she really think I’d forget?
+"Sí."
 
-“I wanted to experience school life with you,” she said, putting her hands behind her back and tilting her head with a smile.
+—Se mire como se mire, es el Sr. Mitsuo.
 
-“What about the Church?”
+___
 
-“Ah!?”
+**Notas del traductor:**
 
-“Don’t play dumb with me. What about your duties as an inspector?”
+Si alguna vez hubo un capítulo que demostrara que la supuesta inteligencia de Alim y Mika (que fue enfatizada una y otra vez por el hecho de que la escuela a la que asisten es una de las más exigentes) simplemente no existe, es este.
 
-“Well, well… can’t I just stay with you for one night? Just one night…”
+Fueron y prácticamente confirmaron que Mefistófeles es el Guía hace menos de 20 capítulos. Deberían haberse dado cuenta del problema en el que están en el momento en que Kanata mencionó la posibilidad de que hubiera un Guía en la Tierra, pero... nada.
 
-I was speechless. What did she just say? Stay with me for one night? Not one day? What kind of school life can you experience at night…? I couldn’t help but question her motives.
+**Notas:**
 
-“There’s no room for you to sleep in the dorm…” I told her.
+1. El original es 積み ("pila"), que asumo es un error tipográfico y debería ser 詰み ("jaque mate")
 
-“It’s fine!”
++++
 
-She had a carefree look on her face. I thought she was going to say she’d sleep in the living room, but I never expected her to say—
+# **629 – Cerca de rendirse**
 
-“We’re both grown up now, but squeezing in together… shouldn’t be a problem.”
+—...¿De verdad?
+
+—Quiero decir, es obvio cuando lo piensas.
+
+Según la hipótesis de Kanata, era casi seguro que el Sr. Mitsuo fuera el Guía. Primero, hace 100 años fue un periodo en el que supuestamente estaba dormido. Luego estaban sus habilidades escénicas —probablemente técnicas de circo— y, finalmente, el hecho de que fuera al Reino de Mephilad. Con esto, era prácticamente un hecho. Es decir, era tal como él había teorizado.
+
+¿Por qué no se me ocurrió antes? En aquel momento no parecía urgente, así que no intenté catalogar toda la información que nos dio el Rey Rama. No era ni de lejos tan inteligente como mi hermano, pero si nos guiáramos simplemente por el CI, debería estar varias decenas de puntos por encima de la media. Lo suficiente como para unirme a una organización limitada a personas con CI alto... Antes de empezar a estudiar en Anazumu, lograba notas por encima de la media en la escuela mientras me pasaba el tiempo jugando videojuegos y sin esforzarme casi nada. Fui un idiota.
+
+—De todas las posibilidades, tenía que ser la peor de todas.
+
+—Cierto, ya que ahora mismo...
+
+—El circo actúa en esta zona. Precisamente ahora... No podría haber sido peor... Guau~.
+
+El pavor que Kanata había mostrado antes se contagió a los demás. De hecho, este era el peor de los casos.
+
+*¿Por qué ha terminado así...? Espera... pensándolo bien, ¿no es esto principalmente culpa mía? Yo fui quien envió al Sr. Mitsuo de vuelta a la Tierra, y si hubiera escuchado con más atención al Rey Rama, podríamos haber tomado varias medidas antes.*
+
+—Lo siento, chicos. De verdad lo siento mucho.
+
+—¿Eh? ¿Por qué dices eso, Ayumu?
+
+—Bueno... esto es en gran parte culpa mía. Que se haya dado la peor situación posible... Después de todo—
+
+Me disculpé por lo que consideraba mis fallos. Mis acciones imprudentes nos llevaron a esta situación, así que tenía que arrepentirme de ellas.
+
+“But most ==of== that was unavoidable, Bro. It’s in the past now ==return== there aren’t many people in the first place who are able to listen seriously to what amounts to someone’s bragging ==or== to abandon a fellow countryman who wants to ==return== to his home.”
+
+"Lo siento…"
+
+—Vaya... no es como si fuera todo culpa tuya —añadió Mika mientras me acariciaba la cabeza.
+
+—Aun así... no podemos hacer nada tal como estamos si el dios malvado ha resucitado. La magia es inutilizable y definitivamente no podemos realizar movimientos secretos que dejen cráteres en el suelo con solo un puñetazo. Aunque las pocas habilidades que podemos usar en nuestra vida diaria nos hagan parecer superhéroes ante la gente normal... tienen un límite. No nos servirían de nada contra un monstruo del nivel de un dios malvado. Estimo que hay más de un 80% de probabilidades de que haya resucitado a estas alturas.
+
+Ni siquiera podía quejarme de esa estimación, ya que parecía lógica.
+
+—¿Quizás un dios malvado estaría tan limitado como nosotros aquí? —intervino Shuu.
+
+—No puedo asegurarlo ahora mismo, pero si ese fuera el caso, las armas humanas podrían bastar para derribarlo.
+
+—Pero si resucitara aquí, toda esta zona podría convertirse en una zona de guerra.
+
+Era cierto, no se podía descartar la posibilidad de que el poder del dios malvado estuviera limitado. Pero como Kanata no le daba muchas vueltas a la idea, probablemente pensaba que era poco probable. Después de todo, nuestro enemigo era una deidad.
+
+—Ah... ¿qué deberíamos hacer?
+
+—Hm... qué buena pregunta.
+
+Sakura, probablemente sintiendo que Kanata, que solía ser tan decidido, estaba tan desanimado, tomó la mano del chico y le dio un abrazo. Él detuvo sus reflexiones monologadas y la miró a los ojos.
+
+"Si el dios malvado ya ha resucitado y no nos queda más que esperar nuestro fin, Sakura…"
+
+"¿Entonces qué?"
+
+"¿No te casarías conmigo?"
+
+La repentina propuesta nos tomó por sorpresa no solo a Sakura, sino a todos nosotros.
+
+"No podemos, solo tenemos 14 años, ¿verdad?"
+
+"No, debería ser posible si decimos que ya estamos comprometidos y presentamos una solicitud en la oficina pública".
+
+"Yo... supongo que sí..." concluyó Sakura tras pensarlo un poco. "Está bien, pero solo si ocurre lo peor".
+
+"¡Yuju! Gracias".
+
+"S-si realmente hacemos eso... este, haremos algo más que besarnos y acurrucarnos... Te amo, Kanata".
+
+Los dos estaban totalmente en modo afectuoso, perdidos en su propio mundo. Ser capaces de actuar así incluso en una situación como esta; era muy propio de nosotros.
+
+"...¿Deberíamos hacer lo mismo?"
+
+"Hagámoslo", respondí a la propuesta de Mika.
+
+Tal vez fuera lo mejor si las cosas salían según la conclusión de Kanata. De esa forma, incluso si moríamos, estaríamos unidos a nuestros seres queridos para siempre.
+
+"Guau..."
+
+"Tienen razón, hagamos lo mismo".
+
+Al final, todos planeábamos hacer eso. Bueno, no era exactamente sorprendente.
+
+"Aun así, podríamos escapar a Anazumu, así que probablemente no suceda".
+
+*Ahora que lo menciona. Pero entonces no podremos tener una boda aquí.*
+
+"Además, hasta ahora estaba bromeando a medias. Hermano, por favor contacta al Sr. Mitsuo de inmediato. Dudo que haya una función tan tarde".
+
+—Muy bien.
+
+*¿Eh, así que estaba bromeando? A menudo es difícil saber si mi hermano habla en serio o en broma.*
+
+*De todos modos, debería llamar al Sr. Mitsuo.*
+
++++
+
+# **630 – Una llamada telefónica y patatas asadas**
+
+*"Habla Aichou. ¿Para qué llamas?"*
+
+"Hola, soy Joujou. Estoy hablando con el Sr. Mitsuo, ¿correcto?"
+
+*"¿Joujou*[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121063)*…? Oh, es el Sr. Ayumu. ¿En qué puedo ayudarle?"*
+
+A juzgar por su voz, nada había cambiado en él. No parecía que tuviera ninguna conexión con el vajra en la Tierra.
+
+"Este... llamo para verificar algunas cosas".
+
+*"¿Para verificar algo? ¿Está relacionado con Anazumu?"*
+
+"Sí."
+
+Anteriormente, el Sr. Mitsuo nos dijo que no recordaba nada de hace 100 años. Aunque sería bueno verificarlo una vez más.
+
+"Solo para asegurarme, ¿todavía no recuerda nada de hace 100 años?"
+
+*"No... Si tuviera que decir algo, todo lo que recuerdo es la conmoción causada por el traslado".*
+
+"Ya veo".
+
+*Así que, después de todo, no recuerda nada.*
+
+"Hermano, pregúntale sobre el vajra ahora", me susurró Kanata al oído.
+
+Eso estaba bien, pero aun así...
+
+"Está bien, está bien, ¿pero podrían alejarse un poco de mí?"
+
+"Tenemos que estar así de cerca si queremos oír lo que dice[2](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-2-121063)".
+
+—Hm~.
+
+*¿No es un poco excesivo que los cinco se amontonen a mi alrededor para escuchar la llamada? Todavía hace un calor sofocante, aunque falten solo una o dos semanas para el invierno. Supongo que no hay remedio. Aguantaré el calor y continuaré con mi llamada.*
+
+"E-en ese caso, ¿no sabe nada sobre el vajra Indra, la herramienta de sellado del Guía?"
+
+*"¿Es este vajra de la mitología india? No… no puedo decir que recuerde nada".*
+
+Parecía que seguía sin recordar esas cosas. Yo también estaba convencido de que él era el Guía, pero… si no podía recordar nada, no servía de ninguna ayuda.
+
+"Pregúntale ahora por la estatua de Jizou, hermano".
+
+"De acuerdo. ¿Sabe algo sobre Genten Jizou, la famosa estatua de esta ciudad?"
+
+*"¿Gen… ten? No, no me viene nada a la mente".*
+
+"Se ve igual que la estatua de Jizou que usé para enviarlo de vuelta a la Tierra, Sr. Mitsuo".
+
+*"Ah, esa. Ese tipo de estatua… ahora que lo mencionas—"*
+
+Eso pareció provocar una reacción. Tenía curiosidad por saber qué le recordaba, pero me lo perdí porque alguien más estaba haciendo ruido.
+
+"¡Batatas asadas! ¡Llévelas mientras estén calientes!"
+
+*"—es lo que pienso…"*
+
+"Rayos…"
+
+"Hermano, pídele que repita eso".
+
+No esperaba que el sonido de alguien vendiendo batatas hiciera imposible escuchar la parte crucial a estas horas. Por otro lado, esto *era* una zona residencial a finales de otoño, así que obviamente vendría gente a venderlas. Aunque no había comido ninguna en lo que va de temporada.
+
+"Ehm, disculpe. Había un vendedor de papas asadas haciendo ruido. ¿Podría repetir eso una vez más? La parte sobre la estatua de Jizou".
+
+*"Por supuesto, no hay problema. Lo que estaba diciendo—"*
+
+"¡Batatas asadas! ¡Las mejores que encontrará jamás!"
+
+*"¡Batatas asadas! ¡Las mejores que encontrará jamás!"*
+
+"¡Maldita sea!"
+
+*¿A qué viene este momento tan inoportuno?*
+
+El sonido era aún más fuerte ahora. Me daban ganas de inflar las mejillas de frustración. No había otra opción, tenía que pedirle que lo repitiera una vez más.
+
+"Lo siento mucho, ¿podría…?"
+
+"Espera un momento, hermano", me detuvo Kanata.
+
+*¿Y ahora qué?*
+
+"¿Qué pasa?"
+
+"Siento que hay algo extraño. Déjame intentar algo".
+
+"¿Ehm?"
+
+Kanata se veía inusualmente serio. ¿Era yo el único que no había notado que algo andaba mal? Rir y Shuu también estaban inspeccionando el área inquietos.
+
+"Voy a gritar fuerte por un momento. Tápense los oídos".
+
+"¿Eh, qué?"
+
+"Hah…"
+
+Mi hermano respiró hondo y luego soltó un grito.
+
+"¡¡Guau!! ¡Eso me asustó!!!"
+
+*"¡Guau! ¡Eso me asustó!"*
+
+"¿Eh?"
+
+En el momento en que Kanata gritó su sorpresa por el motivo que fuera, se pudo oír su grito de vuelta en una voz tenue desde cierta distancia.
+
+*En otras palabras…*
+
+"Kanata, buscaré por allá", dijo Rir.
+
+"Yo también iré a mirar", asintió Shuu.
+
+"…Y-Yo también", añadió Sakura.
+
+"Ayumu, sigue hablando para que el Sr. Mitsuo no escape".
+
+De repente, todos se estaban moviendo. Parecía que yo era el único que no se daba cuenta de lo que estaba pasando. Quizás era una de esas cosas que no notas cuando te están sucediendo a ti.
+
+"Sí, tal como dijo Mika-nee, por favor sigue hablando, hermano. Yo buscaré por allá. Vamos, todos".
+
+Ante las palabras de Kanata, todos estaban a punto de salir corriendo. Solo para detenerse de inmediato. En cuanto al motivo…
+
+"Bueno… me han descubierto, así que supongo que no tengo otra opción".
+
+El Sr. Mitsuo, con su maquillaje de payaso, emergió de la sombra de la casa de enfrente. Vestía lo que parecía ser un abrigo negro azabache.
+
+**Notas:**
+
+1. Dice "nariue" en el original, lo cual asumo que es un error.
+
+2. Todos lo conocen, así que ¿por qué no ponerlo en altavoz?
+
++++
+
+# **631 – Ha llegado el momento**
+
+“”…!?””
+
+La forma en que apareció fue ridículamente sospechosa. Parecía tener un Long-Heart. Encontrarse con un payaso con abrigo negro por la noche en una zona residencial no evocaba más que pavor. Los dos hombres de nuestro grupo —Shuu y Kanata— se pusieron de inmediato frente a los otros cuatro (incluyéndome a mí) para protegernos.
+
+"Vaya, por favor, no me presten tanta atención".
+
+"…¿Por qué está aquí, Sr. Mitsuo?", preguntó Kanata al payaso sonriente sin mostrar temor alguno.
+
+"¿Por qué…? Quién sabe".
+
+"Obviamente no es coincidencia. ¿Cuál es su objetivo aquí?", añadió Shuu.
+
+*Vaya, los dos se están portando de forma muy valiente.*
+
+"¿Mi objetivo, preguntas?"
+
+"Exacto, hay mucho que queremos saber, pero lo primero es lo primero".
+
+Los dos seguían parados frente a nosotros. El aire sospechoso del Sr. Mitsuo estaba por las nubes; a estas alturas, ya no parecía estar cuerdo.
+
+"Tienes razón, vine aquí para encontrarme con ustedes… ¿Acaso no es algo que se me permita hacer?"
+
+"Entonces, ¿sabe lo que intentábamos hacer antes?"
+
+Kanata fulminó con la mirada al payaso. La expresión de este último no cambió, seguía sonriendo.
+
+"Supongo que vinieron aquí para hacer algo con la estatua de Jizou de la que hablábamos antes".
+
+"…Sí, está en lo cierto. Pero ¿cómo conoce este lugar y cómo logró llegar justo cuando nos reuníamos?"
+
+"¿No podría haber sido guía divina?"
+
+Mantuvo sus payasadas hasta el amargo final.
+
+*¿Pero qué está pasando? Esto es demasiado sospechoso.*
+
+Kanata se giró por un instante para vernos, antes de volver a mirar al payaso.
+
+"Ya veo, guía divina, entonces".
+
+"Pues sí, así fue".
+
+"Puede que sea una pregunta repentina, pero ¿podría ponerse la capucha de su chaqueta?", preguntó Kanata de repente, probablemente teniendo una idea.
+
+"¿Eh?"
+
+¿Qué planeaba mi hermano?
+
+"¿Esto te satisface?"
+
+“”””…!?””””
+
+Me equivoqué, mi hermano no estaba intentando algo, se había dado cuenta de algo. O mejor dicho, el Sr. Mitsuo era… él era…
+
+"Así que el hombre que nos siguió hace poco… era usted, Sr. Mitsuo, ¿verdad?"
+
+"Una deducción de lo más excelente".
+
+"…¿¡Qué!?"
+
+La voz del payaso había cambiado de repente, explicando la exclamación de asombro de Sakura. Era una voz que ya había oído en alguna parte.
+
+"No me diga que usted es el hombre de la capucha negra".
+
+"¿Sorprendidos? ¿No les dije cuando nos despedimos que nos volveríamos a ver? Estoy seguro de que se lo dije a todos".
+
+Esto significaba que… la verdadera identidad del hombre misterioso era el Sr. Mitsuo. Dicho esto, el ambiente a su alrededor había cambiado demasiado. Era como si sus modales payasescos de antes hubieran dado un giro de ciento ochenta grados, transformándose de algún modo en los de un samurái estricto.
+
+"¿De qué iba todo eso de andarnos molestando así?"
+
+"¿Te preguntas a dónde quería llegar con eso? No puedo responder a esa pregunta".
+
+En primer lugar, nunca lo había oído hablar así. Incluso si estaba en un aprieto o tenía prisa, solía hablar de manera educada[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121110). Estaba actuando como una persona diferente. No parecía que todo desde que lo conocí en Anazumu hubiera sido una actuación para algún objetivo calculado. Tal vez estábamos haciendo las preguntas equivocadas.
+
+—Lo siento, Kanata, ¿podría encargarme yo?
+
+—... Está bien.
+
+Mi hermano retrocedió obedientemente.
+
+*Bien, veamos...*
+
+—Dígame, Sr. Mitsuo.
+
+"¿Qué pasa?"
+
+—Quiero decir, para empezar, usted no es el Sr. Mitsuo, ¿verdad? Solo le di mi nombre completo y mis datos de contacto después de que empezamos a hablar hace poco, así que ¿por qué actúa como si nos conociera de hace años?
+
+Intentaba llegar al fondo de esto, sacando a relucir la extraña nostalgia del hombre encapuchado hacia nosotros. Simplemente había demasiadas contradicciones.
+
+—Ya veo, parece que respondí a las preguntas de Kanata con demasiada honestidad.
+
+—Sí, lo hizo... así que, ¿quién es usted? —intenté ir directo al grano.
+
+El payaso (o no) solo suspiró con exasperación.
+
+—¿Quién crees que soy?
+
+—No lo sé, por eso se lo pregunto.
+
+—Tienes un punto. En ese caso, déjame enseñarte algo que podría darte una pista —respondió, antes de empezar a hurgar en su morral.
+
+Lo que finalmente sacó... fue un vajra con decoraciones fastuosas.
+
+No, de ninguna manera. Por mucho que lo mirara, eso era Indra. Podía reconocerlo ya que antes había creado una reproducción.
+
+—¿Estoy en lo cierto al suponer que se han reunido hoy para buscar esto?
+
+—Así es, lo hicimos... ¡¿Por qué lo tiene usted?!
+
+—Por ninguna otra razón que haberlo tomado de la forma habitual.
+
+¡Tenía el vajra, lo que significaba que...!
+
+*¿Podría ser... que estemos en un problema terriblemente grande?*
+
+**Notas:**
+
+1. En el original, Mitsuo suele hablar en la forma educada normal (desu/masu), mientras que el hombre de negro no lo hace, aunque lamentablemente esto no se nota en mi traducción.
+
++++
+
+# **632 – Demasiado tarde**
+
+—Ja, ja, la peor posibilidad que predijimos —murmuró Kanata.
+
+Incluso yo lo entendía. El hecho de que el Sr. Mitsuo, quien probablemente era el Guía, ya tuviera en su poder el vajra en el que el dios maligno había sido sellado, era increíblemente malo. No, "malo" no era suficiente para describir la gravedad de nuestra situación. Con cómo habían cambiado incluso sus recuerdos, solo había una posibilidad...
+
+—Sr. Mitsuo, ¿sabe qué es este vajra?
+
+—Eso debería ser obvio, es la herramienta del Guía.
+
+—Así que lo sabe...
+
+Sabía todo eso. Si realmente fuera él, no debería haber tenido ese conocimiento.
+
+—Oye, Kanata... —comenzó Sakura—. ¿Podría ser que él es...?
+
+—Probablemente es lo que estás pensando. Tenía varios planes en mente, pero a estas alturas ya es demasiado tarde. Todos, prepárense para huir en cualquier momento.
+
+Había una tensión increíble en el aire. Todos lo entendían en ese momento. El payaso frente a nosotros no era el Sr. Mitsuo, sino un ser diabólico.
+
+—Vamos, no hay necesidad de estar tan vigilantes.
+
+—Claro que la hay —respondió Shuu con audacia—. Después de todo... tú eres el dios maligno, ¿no?
+
+—Como tú digas, Shuu. Bueno, a estas alturas ya se habrán dado cuenta —respondió pacientemente el hombre de la capucha negra, que seguía sonriendo y se parecía al Sr. Mitsuo—. Ya que son inteligentes. Ja, ja, ja, hm~.
+
+Se hizo crujir el cuello con un chasquido. Mientras Shuu se ponía delante para protegernos, Kanata parecía estar reflexionando. ¿Había algo que yo pudiera hacer?
+
+—En cualquier caso, estoy sorprendido. Nunca pensé que aparecerían todos ante mí, equipados con conocimientos sobre Anazumu.
+
+—Bueno, nosotros somos los que deberíamos estar sorprendidos. Pensar que había un dios maligno escondido en nuestro vecindario.
+
+Quiero decir, ¿quién iba a suponer que un arma de destrucción masiva así estaba sellada cerca de su casa? Claro, había historias extrañas al respecto, pero cualquiera habría asumido que era solo una estatua de Jizou ordinaria. Y este fue el resultado.
+
+—Dejando a un lado el futuro, el destino también está fuera de las manos de los dioses. Que tantas coincidencias se alinearan me sorprende incluso a mí. Se mire por donde se mire, que ese tipo... No, no importa. Ya han reunido una gran cantidad de información, así que no necesitarán mi explicación, ¿verdad?
+
+Me preguntaba de quién estaba hablando, pero nos dijo que no necesitábamos más explicaciones. No pude evitar pensar que nuestra vida era bastante inusual.
+
+El dios maligno sostuvo el vajra con fuerza y se puso la otra mano en el pecho. Entonces dejó de sonreír. Aunque seguía pareciendo un payaso, su atmósfera cambió a una solemne.
+
+—Así que me saltaré la explicación sobre cómo funcionan los dioses malignos. Soy Shiva, el Dios de la Destrucción. Dado que ya hay un dios en la Tierra con este nombre, también pueden llamarme Asura, si quieren[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121112).
+
+Shiva, el Dios de la Destrucción. El último de los tres dioses malignos. De alguna manera, parecía que se podía razonar con él más que con los otros dioses malignos hasta ahora. Para empezar, no mostraba ninguna hostilidad.
+
+—Quizás quieran presentarse, pero ya los conozco a todos excepto a esta chica wolfkin. En cualquier caso, eso estuvo bastante cerca.
+
+—¿A qué te...?—
+
+—Oh, hablo de cuando ella vino a rezar a esta estatua junto con Shuu.
+
+Rir se señaló a sí misma mientras ladeaba la cabeza confundida. Por "aquella vez", probablemente se refería a la vez que ella intentó rezar a la estatua y empezó a actuar de forma extraña.
+
+—Sentí el poder mágico de Anazumu, así que pensé en poseerla como un recipiente temporal hasta que llegara el Guía, pero... Shuu estaba cerca y la llamó frenéticamente, así que me detuve.
+
+—E-Esto...—
+
+—Por cierto, si la hubiera poseído así, solo habría vivido tres días más, y además habría destruido su mente.
+
+—¿G-Gracias...?—
+
+¿Qué estaba pasando? Realmente parecía bastante razonable comparado con los dioses malignos que habíamos conocido hasta ahora. Más bien, nos había estado tratando de forma terriblemente amistosa.
+
+"Si poseyera a alguien que no fuera el Guía o a personas del linaje que los designa, se desmoronarían rápidamente. Aunque el Héroe, el Sabio y los linajes conectados a ellos también funcionarían... Eso me recuerda que cinco de ustedes fueron enviados a Anazumu. Supongo que al menos uno de ustedes es un Sabio, ¿verdad? ¿Quién es? No sean tímidos y levanten la mano".
+
+Shuu, Kanata y Sakura se miraron entre sí. Como resultado de ese breve intercambio, aparentemente decidieron decírselo sin armar un escándalo. Los tres levantaron ligeramente la mano.
+
+"¿¡Oh!? ¿Shuu, Kanata y Sakura son Sabios? ¿Debería llamar a esto una cosecha abundante?"
+
+Parecía genuinamente sorprendido, sin mentiras ni fingimientos. Sonaba como si, incluso para un dios maligno, la aparición de tres Sabios a la vez fuera una ocasión poco común.
+
+"De alguna manera, toda esta situación se siente mal", intervino Kanata. "Me gustaría preguntar algo".
+
+Había estado reflexionando durante un rato, así que lo mejor sería dejarle hablar.
+
+"...Uhm, sabes sobre nosotros, ¿no, Shiva?"
+
+"¿Hm? ¡Sí, sé mucho sobre ustedes! Conozco a Ayumu y Mika desde que eran pequeños. Recuerdo que trajeron a Shuu con ellos cuando se inscribieron en el preescolar. En cuanto a ti, Kanata y Sakura, supe de ustedes cuando solo tenían unas pocas semanas de vida".
+
+"¿Cómo puedes saber tanto sobre nosotros?"
+
+La respuesta del dios maligno a esa pregunta fue simple.
+
+"Pues porque los he visto".
+
+**Notas:**
+
+1. [Asuras](https://en.wikipedia.org/wiki/Asura) son seres similares a semidioses malignos/destructivos en el hinduismo, lo que parece un buen paralelo a los dioses malignos de Anazumu en comparación con los dioses propiamente dichos
+
++++
+
+# **633 – Shiva, el Dios de la Destrucción – 1**
+
+"Nos viste... ¿qué quieres decir con eso?"
+
+"Exactamente lo que dije... Para ser honesto, no podía usar la mayor parte de mi poder mientras estaba sellado en el vajra. Pero incluso con esas restricciones, podía ver lo que sucedía afuera".
+
+*Ah, ya entiendo.*
+
+Probablemente estaba aburrido mientras estaba sellado. Habían pasado cientos de años, después de todo. Así que esa era la razón por la que sabía tanto sobre nosotros y por la que nos trataba con tanta amabilidad.
+
+"Ha pasado tanto tiempo desde que fui sellado y he visto a todo tipo de personas, pero la belleza de ustedes, Ayumu, Mika y Sakura, no tiene igual. Luego está la genialidad de Kanata y Shuu, que es tan heroico que uno podría pensar que no es un terrícola, sino que nació en Anazumu".
+
+"E-Eso tiene sentido".
+
+*¿Por qué me incluyó junto a Mika y Sakura? No será uno de esos que piensan que soy una chica, ¿verdad?*
+
+"En fin, ¿qué pasó con los otros dos dioses malignos? Todo lo que sé es que ambos volvieron a la vida en un corto periodo de tiempo".
+
+¿Cuál sería la mejor respuesta aquí? ¿Podríamos ser honestos, considerando que los dioses malignos parecían tener cierto sentido de camaradería?
+
+"...Heh-heh, como pensaba, está este aroma. El aroma de Surtr que emana de Shuu desde hace un tiempo. Ese aroma repugnante y a quemado... Eres un Sabio, ¿verdad, Shuu? ¿Podría ser que fuiste poseído una vez?"
+
+"Bueno, sí. Se podría decir que él se apoderó de mí..."
+
+"¿¡Qué!?"
+
+Eso sonó como una sorpresa genuina. Parecía que estaba a punto de preguntar: "¿En serio?".
+
+—¿E-Eso significa que el berserker está actualmente dentro de ti, Shuu?
+
+—Bueno... sobre eso.
+
+Shuu miró a Kanata. Mi hermano dio un paso adelante para explicarlo.
+
+—Ya ha sido derrotado y luego sellado.
+
+—¿Qué, en serio? ¿No estás mintiendo?
+
+—M-Muy en serio...
+
+Me había estado poniendo en guardia mentalmente, asumiendo que una pelea era inminente, pero toda esta situación era extraña. Hasta este punto, los dioses malvados habían actuado como deidades arrogantes o monstruos locos por la batalla, así que ver a uno de ellos hablando racionalmente y mezclando expresiones modernas se sentía anticlimático.
+
+—¿Cómo lograste derrotar a ese tipo? Es el más fuerte de nosotros tres.
+
+—Así son mi hermano y Mika-nee.
+
+—Ah, Ayumu y Mika... Entonces, ¿cómo lo hicieron?
+
+—Ah, bueno... pasaron varias cosas...
+
+Intentaba restarle importancia, pero en el momento en que lo dije, sentí que la forma en que Shiva me miraba cambió. Parecía haber miedo en su mirada.
+
+—Tengo otra pregunta sobre nosotros, los dioses malvados. Este tipo al que poseo es el Guía que regresó a la Tierra, pero parece que su cuerpo fue usado previamente por Samaeyl. ¿Cómo sucedió eso?
+
+—¿No puedes acceder a los recuerdos de quienes posees? —preguntó Kanata sin dudarlo—. Quiero decir, él dirige un circo, ¿cómo podrías hacer eso sin ellos?
+
+—Puedo, pero normalmente le devuelvo el control sobre su mente y su cuerpo —respondió Shiva con la misma naturalidad.
+
+—Entonces, cuando te llamamos...?
+
+—Ese era yo imitándolo. ¿Fui convincente?
+
+*¿Q-Que si fue convincente?, pregunta...*.
+
+—Sí... bastante. Pero, ¿cómo sabías las cosas que solo el Sr. Mitsuo y yo deberíamos saber?
+
+—Tal como mencioné antes; solo miré sus recuerdos recientes de cuando interactuaron.
+
+—En ese caso, tómate un tiempo y lee los recuerdos de la estancia del Sr. Mitsuo en Anazumu. Entonces sabrás qué le pasó a Samaeyl.
+
+—Ya veo. ¿Me darían un momento, todos?
+
+Shiva cerró los ojos y probablemente comenzó a rastrear los recuerdos de su anfitrión. El Sr. Mitsuo era probablemente quien más sabía sobre Samaeyl. Unos cinco minutos después, volvió a abrir los ojos.
+
+Por cierto, mientras tanto, nosotros discutimos nuestra estrategia.
+
+—Hrm... así que eso fue lo que pasó. Lo entiendo en su mayor parte. Increíble... De hecho, tú eres el Levelmaker, Ayumu...
+
+—¿Qué es eso de Levelmaker?
+
+Tenía una curiosidad genuina. No tenía idea de lo que se suponía que significaba esa palabra... Con la palabra "level" (nivel) en el nombre, se sentía un poco como un cumplido para alguien obsesionado con subir de nivel como yo.
+
+—Uhm... bueno, sobre eso. Es algo así como un título respetuoso para alguien que se hizo fuerte subiendo de nivel como un loco. Definitivamente.
+
+—¡Ya veo!
+
+*Así que es un cumplido, después de todo. Je, je.*
+
+Sentí que se guardaba algunas cosas, pero por ahora eso era suficiente para mí.
+
+—Bueno, hay cosas más importantes.
+
+El cuerpo del dios malvado de repente comenzó a temblar y desprendió un aura aterradora. ¿Estaba insatisfecho con algo?
+
+*Cierto, yo soy quien derrotó a sus dos amigos, así que...*
+
+—¡¿Ayumu, no eres una chica?!
+
+—¡¿Eh...?!
+
+"¿No le dijiste a ese Guía llamado Mitsuo que eres hombre? ¡¿Qué demonios está pasando?!"
+
+*Ah, ¿así que él es uno de los que pensaba que soy una chica? ¿Pero sabes qué?*
+
+"Ehm... estoy bastante seguro de que siempre usé el uniforme escolar de chico cuando venía de visita, desde que entré en la secundaria..."
+
+"¡Pensé que te estabas vistiendo de mujer! Y yo aquí todo emocionado... ¡Quién iba a imaginar que eres un femboy! En fin, no pasa nada."
+
+*¿Qué le pasa a este tipo? Ya no entiendo nada.*
+
++++
+
+# **634 – Shiva, el Dios de la Destrucción – 2**
+
+"¿Hm...? Espera un momento."
+
+"¿Qué pasa?"
+
+Tras enterarse de que yo era un femboy, Shiva ladeó la cabeza como si se preguntara algo.
+
+"Si no eres una chica, Ayumu, eso significa que la relación entre ustedes es bastante diferente, ¿no? Después de todo, vi a Kanata y Sakura en una cita en el zoológico... Ella nunca había ido antes porque era ciega, ¿verdad?"
+
+"Cierto, sobre eso..."
+
+Kanata explicó brevemente cómo Sakura había recuperado la vista, sin entrar en muchos detalles. Al hacerlo, a Shiva se le empezaron a saltar las lágrimas.
+
+"Ya veo... lo entiendo, pasó en Anazumu... Tuvieron suerte en varios sentidos... Al pensar en cómo cuidaste y protegiste a Sakura cuando no podía ver, simplemente no puedo contener las lágrimas..."
+
+"Ehm... sí... gracias... ¿por preocuparte?"
+
+Las palabras de agradecimiento de Sakura sonaron más como una pregunta. Era comprensible, después de todo estábamos tratando con un dios malvado. Los dos anteriores habían sido nuestros enemigos.
+
+"Entendido... No puedo esperar a ver a sus hijos. Seguro que serán bellezas de clase mundial... o chicos guapos."
+
+"B-Bueno, todavía tendrás que esperar seis años o más para eso..."
+
+"Es verdad. Ni siquiera un dios como yo daría su bendición a un embarazo a los 14 años. Bueno, a ustedes dos les iría bien de cualquier forma, y para empezar, yo no soy de los que pueden otorgar bendiciones."
+
+*¿A dónde quiere llegar con esto? En realidad está hablando como un abuelo del vecindario. Esto se siente raro, completamente fuera de lugar.*
+
+Incluso dejó a Kanata desconcertado.
+
+"De todos modos, lo principal que quería preguntar es si Ayumu y Mika están saliendo... Ahora que lo pienso, se besaron."
+
+"Y cuando viste eso, asumiste que..."
+
+"Mika era una lesbiana intentando conquistar a Ayumu."
+
+"Ya veo".
+
+Aun así, nunca nos habíamos besado frente a la estatua de Jizou. Bueno, por la forma en que habló antes, probablemente era seguro asumir que podía observar cualquier lugar que quisiera.
+
+"De acuerdo... Estaba seguro de que Ayumu terminaría con Shuu y que Mika se rendiría al ser del mismo género. Tiene sentido, a Mika nunca le interesaron las chicas."
+
+"¡Te... te equivocas! ¡Así no es como pasaron las cosas!"
+
+Si yo fuera una chica de verdad, entonces eso realmente convertiría a Mika en lesbiana. Bueno... no estaba del todo equivocado, ya que nos habíamos besado en Anazumu mientras yo era mujer.
+
+*No es como si pudiera decir eso en voz alta ahora. Absolutamente no.*
+
+"Eso significa que la pareja de Shuu es esta wolfkin..."
+
+"R-Rir..."
+
+"Cierto, Rir."
+
+Shiva intentó sonreír como para tranquilizarla, pero fracasó porque todavía llevaba el maquillaje de payaso.
+
+"Por cierto, Shuu. Surtr solo puede poseer a un Sabio lleno de verdadera furia o a alguien del linaje capaz de invocar Sabios… ¿Cómo demonios lograron enfurecerte? ¿Les pasó algo a Ayumu y Mika cuando estuviste allí? Basándome en la experiencia, la mayoría de los del linaje capaces de invocar Sabios tienen personalidades desagradables".
+
+"Oh… no, fue el propio Surtr quien le hizo algo a Rir…"
+
+"¿Así que la convirtió en cenizas? Qué trágico… En ese caso, ¿cómo es que está viva ahora? Podría preguntarles lo mismo a Ayumu y Mika. ¿Cómo es que están vivos tras entrar en contacto con las plumas de Samaeyl? ¿Cómo es posible? Ambos causan la muerte instantánea y deberían ser irreversibles tanto por medicina de resurrección como por magia".
+
+Ataques de muerte instantánea sin posibilidad de resurrección. Era fácil adivinar por qué los consideraba genuinamente devastadores… si no tenías acceso a las Amritas. Para empezar, les debíamos mucho a esas pociones por poder pasar nuestras vidas tan cómodamente.
+
+"Sí, usamos Amritas en los cadáveres. Bueno, Ayumu lo hizo principalmente".
+
+—Sip.—
+
+"Ya veo, así que lograste descubrir una medicina tan valiosa… Aun así, es extraño. Normalmente, nadie tendría más de diez botellas de esas a mano, pero este anfitrión recuerda que devolviste la vida a toda la población de un país".
+
+"Lo logré porque puedo producirlas en masa".
+
+"¿¡Las produces en masa!? ¡¿Pero qué demonios?!"
+
+Parecía increíblemente conmocionado. Incluso más que cuando se enteró de que yo era hombre.
+
+"Producir Amritas en masa… ¿¡Entiendes lo que estás haciendo!?"
+
+"Uhm, normalmente solo las comparto con amigos y familiares. ¿Es eso un problema?"
+
+Eso no era del todo correcto. Ya que también las puse a disposición del rey y sus amigos.
+
+"Bueno… es **el** objeto de restauración divina, capaz de otorgar la eterna juventud y el rejuvenecimiento, capaz de devolver a la vida en perfectas condiciones incluso a aquellos que originalmente nunca deberían haber podido regresar".
+
+"Quiero decir, por eso no las voy repartiendo por ahí y las gestiono con bastante cuidado".
+
+Me guardé para mí el hecho de que prácticamente las bebía como si fueran refrescos hasta que el rey me lo señaló. Probablemente me regañarían de lo contrario.
+
+"Supongo que esto sirve. En cualquier caso, me preocupaba que te hubiera pasado algo…"
+
+"¿P-Por qué te importamos tanto?"
+
+"Bueno, es porque te conozco desde que eras pequeño".
+
+*¿Entonces, es genuinamente como un viejo del vecindario? Todo esto está mal… cielos.*
+
+"Por cierto…"
+
+"Hrm, ¿qué pasa, Kanata?"
+
+"Esto puede ser directo, pero ¿eres en última instancia nuestro enemigo, Shiva? ¿O eres un amigo?", preguntó Kanata con audacia. "Los otros dos dioses malvados fueron hostiles con nosotros".
+
+Miré la hora. ¿De verdad solo habían pasado 30 minutos desde que salimos de casa?
+
+"Bueno, sobre eso".
+
++++
+
+# **635 – Como un Viejo Amigable del Vecindario**
+
+"¿Cómo podría lastimar a los niños que conozco desde que eran pequeños?", respondió el dios malvado con franqueza.
+
+Parecía sincero.
+
+"En primer lugar, no me metas en el mismo saco que a esos dos. Samaeyl podrá liderar a los demonios, pero mataría a cualquier humano sin pensárselo dos veces a menos que fuera alguien a quien ella hubiera reconocido. Y Surtr es un maníaco loco por la batalla. Sin pizca de misericordia ni nada parecido".
+
+"...Entiendo, así que Samaeyl es del tipo líder y Surtr del tipo luchador. ¿Y tú qué?"
+
+"Yo soy un espíritu libre".
+
+De hecho, eso parecía encajarle a la perfección. Como su costumbre de cambiar de tema a mitad de la conversación hacia lo que le interesaba.
+
+"Pero algo malo habrás hecho para que te sellaran en la Tierra".
+
+"Sí, en el pasado no me importaba nadie excepto unos pocos elegidos, igual que a Samaeyl. Hice tantas cosas malas como ellos, cosas dignas de un dios malvado. Aunque sigo siendo el que menos gente ha matado, ¿sabes?"
+
+Bueno, con su habilidad especial, Samaeyl probablemente tenía el mayor número de bajas.
+
+"¿Por qué eres tan sincero con todo eso?"
+
+"He estado aquí desde el comienzo del periodo Edo[1](https://ale-jrd.github.io/Trads/p/traducir-9/#easy-footnote-bottom-1-121251). Desde entonces, lo único que he hecho es observar Japón. Hubo muchas guerras... pero ahora hay paz desde hace varias décadas. Estar en medio de esta paz... hizo que mi carácter se volviera pacífico también".
+
+Ahora que lo pienso, este hombre (?) había observado Japón durante más de 400 años. Una diferencia de tiempo inimaginablemente vasta nos separaba. Bueno, si nos volviéramos inmortales bebiendo Amritas en Anazumu, nosotros también podríamos experimentar eso.
+
+"¿En serio?"
+
+"Te lo juro por mi corazón. Bueno, para empezar, habéis aplastado a Samaeyl y a Surtr... principalmente Ayumu, supongo. No siento que tenga ninguna oportunidad contra vosotros. En absoluto".
+
+No se equivocaba. Si ambos nos atacaran al mismo tiempo ahora, estaba seguro de que nos las arreglaríamos.
+
+"¿No pueden los dioses malvados usar magia en este lado? De esa forma, podríais eliminarnos mientras somos débiles".
+
+"Hm~, esa es otra cosa... Incluso si fuera una situación en la que me viera obligado a hacerlo, no querría. Usar nuestras habilidades aquí es increíblemente difícil, así que incluso si intentara conquistar el mundo con este poder limitado... la fuerza militar de un solo país de la Tierra sería abrumadoramente superior".
+
+*Vaya, ¿así que los dioses malvados tienen limitaciones después de todo? Aunque el hecho de que compare las cosas a nivel nacional da un poco de miedo.*
+
+"¿No estás mintiendo?"
+
+"No miento. Kanata, por favor, créeme en esto como un viejo conocido, aunque no pueda demostrarlo".
+
+Esa podría haber sido una frase genial, pero no funcionaba con ese maquillaje de payaso... simplemente se veía ridículo. De todos modos, probablemente podría dejar las cosas en manos de Kanata por ahora.
+
+"Sinceramente no puedo decir que confíe en ti, pero... hasta ahora has estado actuando de forma claramente diferente a otros dioses malvados. Vámonos a casa por hoy, Shiva. ¿Están todos de acuerdo con eso?"
+
+Asentí.
+
+Sakura hizo lo mismo. Mika miró lo que yo hice y luego asintió también, mientras que Shuu miró a Kanata en silencio sin dar ninguna respuesta. Rir se quedó mirando a Shiva con los ojos muy abiertos.
+
+"Parece que esto funciona... Dicho esto, ¿qué pasará con el Sr. Mitsuo si sigues poseyéndolo? Él tiene su propia vida..."
+
+—Oh, es verdad. Me escapé sin decirles nada a los otros miembros de la compañía.
+
+—¿Qué hacemos? ¿Puedes volver al vajra?
+
+—¿Yo solo? Si entro allí por voluntad propia, puedo poseer a cualquiera que haya controlado antes cuando quiera. ¿Estás seguro de que deberíamos hacer eso?
+
+“It works  ==for== today. Could you ==return== to the circus ==return== go back into the vajra temporarily?”
+
+—...Está bien. —Shiva se dio la vuelta—. Probablemente llegará el momento en que todos ustedes me sellen adecuadamente, pero cuando eso pase... ¿podrían modificar el vajra para que pueda ver lo que ocurre fuera y hablar con la gente? En fin, me marcho.
+
+Con esas palabras, se disolvió en la oscuridad. Bueno, simplemente se estaba alejando, pero su chaqueta hacía que pareciera eso.
+
+—...No esperaba que las cosas terminaran así —murmuró Shuu.
+
+—Ni siquiera yo anticipé esto realmente —respondió Kanata—. En el peor de los casos, pensé en intentar convencerlo si resultaba ser agresivo. No hubo necesidad de eso.
+
+—¿P-Pero de verdad está bien así? ¿Tú qué piensas, hermana mayor?
+
+—¿Yo? Bueno, ¿probablemente? No parece un enemigo.
+
+¿Era esto lo que le decía la intuición de Mika, la misma que predijo con exactitud que conoceríamos al hombre de la capucha negra esta semana? Entonces probablemente no había de qué preocuparse.
+
+—¿De verdad hemos estado parados 40 minutos enteros con este frío?
+
+—¿Tienes frío, Shuu? ¿Quieres que te abrace? Aunque mi temperatura corporal tampoco es muy alta...
+
+—No, no tengo frío, solo tomémonos de las manos. Es un poco difícil caminar mientras nos abrazamos... En fin, nos vamos a casa.
+
+Se tomaron de las manos. Rir se veía bastante feliz.
+
+—Muy bien, buenas noches entonces.
+
+—Guau, buenas noches.
+
+—Buenas noches, chicos.
+
+Los dos se marcharon.
+
+Los cuatro que quedábamos decidimos irnos también a nuestras respectivas casas. De alguna manera, sentíamos que nos habíamos quitado un peso de encima. Mañana volveríamos a la escuela con normalidad.
+
+Aun así, lidiar con dioses malvados siempre era un fastidio y probablemente solo empeoraría de ahora en adelante, aunque no se podía evitar. Al menos no era abiertamente hostil, lo cual lo hacía un millón de veces mejor.
+
+**Notas:**
+
+1. Alrededor del año 1600 d.C. en el calendario occidental
+
+++++
+
+# **El Laberinto de la Frontera y el Mago Extranjero - 184 – Una Nueva Vida**
+
+Estábamos entrenando con nuestros compañeros en un rincón del patio mientras entraba la luz del sol matutino.
+
+El patio se había vuelto bastante espacioso, lo que facilitaba invocar a Lindwurm cuando quisiéramos. Me preguntaba si el hecho de que Lindwurm observara nuestro entrenamiento con regularidad podría ayudar a mejorar nuestra coordinación.
+
+Lindwurm dejaba que los Carbunclos se montaran en su nariz y cola, deslizándolos de un lado a otro juguetonamente. Parecía estar tomando el sol tranquilamente... pero en realidad, observaba nuestro entrenamiento con gran interés. Eso no debería ser un problema.
+
+Por cierto, Fortok me dijo que los Carbunclos evitan subirse al lomo de Lindwurm porque a Lindwurm no le gusta que nadie más que yo esté en su espalda. Qué obediente.
+
+—Se está hinchando. Peligroso.
+
+Sheila dio una breve advertencia. Como respondiendo a sus palabras, el Gólem de Agua pareció hincharse desde dentro antes de estallar, esparciendo gotas de agua por todas partes.
+
+Nuestros compañeros los bloquearon con las Herramientas Mágicas de Escudo equipadas en sus manos izquierdas. En un combate real, no hay garantía de que la advertencia de alguien llegue a tiempo. Más rápido que el pensamiento. Deben ser capaces de desplegarlos instantáneamente.
+
+Lo que estamos haciendo es prepararnos para nuestra visita a la Fortaleza Ardiente. Hemos incorporado escenarios de combate anticipando batallas en la Fortaleza Ardiente en nuestras sesiones de entrenamiento matutinas.
+
+"Ese fue un poco peligroso".
+
+"Tal vez Lavigne y yo deberíamos crear más cobertura".
+
+Grace y Ashley estaban discutiendo mientras Marlene parecía reflexionar sobre los movimientos de su Saucer, asintiendo mientras realizaba un entrenamiento mental, moviendo su estoque como la batuta de un director con pequeños movimientos. Bueno, como todos se defendieron, esta vez no hubo daños.
+
+"Um. ¿Tal vez Sheila y yo deberíamos movernos juntas para poder escuchar sus advertencias desde la dirección en la que debemos estar alerta?"
+
+"¿Probamos eso la próxima vez?"
+
+"…Ya veo. Contramedidas para las Rocas Bomba".
+
+Claudia, que había estado observando el entrenamiento, asintió con admiración. Sí. Hay monstruos de roca que realizan ataques suicidas. Aunque el abrigo de Rata de Fuego protege contra el daño por calor, todavía tenemos que lidiar con los fragmentos de roca.
+
+"Bueno, deberíamos asegurarnos de realizar ensayos exhaustivos".
+
+Mientras mis compañeros continúan su entrenamiento, yo debo llevar a cabo el mío en paralelo.
+
+Me cubrí los ojos con un paño y coloqué Golems a mi alrededor. Estaban configurados en piloto automático, realizando ataques coordinados según algoritmos preestablecidos.
+
+No vinculé mi visión con Caduceus. Al observar el entrenamiento de mis compañeros a través de Caduceus, podía operar y supervisar a los Golems mientras realizaba mi propio entrenamiento simultáneamente.
+
+Mientras tanto, mi entrenamiento consistía en sentir los ataques a través de delgados Escudos desplegados alrededor de mi cuerpo y esquivarlos continuamente por un pelo.
+
+A partir del ángulo y la fuerza de los ataques que golpeaban mis Escudos, podía determinar las posturas de los Golems. Apunté solo a sus cabezas, destrozándolas con Ouroboros. Un ataque de un Golem detrás de mí. Gire mi cuerpo para evadirlo mientras tocaba su cabeza y simultáneamente asestaba un Golpe de choque.
+
+Los Golems respondieron con fintas como Balas de Agua destinadas a parecer Golpes, látigos de agua formados por manos transformadas que atacaban desde fuera de mi alcance, explosiones de autodestrucción y ataques con retardo de tiempo usando cuerpos superpuestos.
+
+Continué interceptando y esquivando mientras desmantelaba y destrozaba a los Aqua Golems.
+
+Activación fluida de Golpes de choque, detección de ataques desde puntos ciegos con Escudos omnidireccionales. Habiendo alcanzado un nivel satisfactorio en estos aspectos, aterricé en el suelo y me quité la venda de los ojos.
+
+"Había oído rumores de que usted era el Cazador de Demonios, maestro… No estoy segura de si estar convencida o asombrada".
+
+Cecilia tenía los ojos muy abiertos. Los residentes de la Aldea del Laberinto que estudiaban trabajo con ella estaban igual. Los niños miraban con ojos brillantes. Hmm… Es un poco vergonzoso.
+
+"Todo lo que puedo hacer es admirar. Deberías tener mucho que aprender. Asegúrate de observar con atención durante tus descansos del trabajo".
+
+"Sí, Mihaela-sama".
+
+Las dos habían mencionado algo sobre tener conocimientos de defensa personal.
+
+En ese caso, probablemente debería familiarizarme con sus armas y estilos de lucha. Bueno, aunque lo de Mihaela es obvio, Cecilia también tiene trabajo dentro de la casa, así que no planeo llevarla al Laberinto.
+
+"Mihaela-san usa un estoque, ¿verdad?"
+
+"Solo como pasatiempo".
+
+Está siendo modesta, pero su postura —o mejor dicho, la estabilidad de su núcleo— no flaquea. Tengo la sensación de que en realidad podría ser bastante hábil.
+
+"Entonces, ¿Cecilia también?"
+
+"No. Practiqué con el arma que usaba mi padre porque quería ser capaz de usarla yo misma".
+
+Dicho esto, Cecilia sacó el arma que utiliza para mostrármela.
+
+…Si el mango fuera un poco más largo, probablemente se clasificaría como un arma de asta, como una guja o una bardiche. El mango es algo corto, aparentemente diseñado para el combate cercano.
+
+"Esto es para uso en interiores. En espacios más abiertos, lo reemplazo con un mango más largo. Incluso sin mucha fuerza física, puedes generar potencia con el impulso".
+
+"Ya veo".
+
+"Le he enseñado maniobras corporales y técnicas de defensa personal sin armas, cosas con aplicaciones prácticas. Como sirvienta, debería considerarse adecuada".
+
+Bueno… no parece que fuera a perder contra un ladrón promedio. El hecho de que no se le enseñaran habilidades con el estoque fue probablemente por respeto a sus propios deseos.
+
+"Aun así, tal vez deberíamos asumir que volar será un requisito previo de ahora en adelante. Ya soy demasiado vieja para ese tipo de estilo de lucha".
+
+Dijo Mihaela con los ojos cerrados.
+
+Hmm. Quizás debería preparar equipo de combate aéreo para ambas también. A lo que Mihaela se refiere es a luchar mientras vuelan de un lado a otro, pero incluso el simple hecho de poder ajustar la altitud contra oponentes usando escudos como puntos de apoyo marcaría la diferencia.
+
+"Cuando tengan tiempo libre del trabajo, ¿les gustaría unirse a nosotros para entrenar?"
+
+"¿No estaríamos estorbando?"
+
+"Si aumento el número de gólems, simplemente se convierte en más entrenamiento de magia, así que no hay problema".
+
+"En otras palabras… todavía tienes margen de sobra en tu control de la magia".
+
+Claudia sonrió.
+
+"Hola—"
+
+"Hola, Theo-kun".
+
+"Vaya, esto se ha convertido en toda una mansión".
+
+Al atardecer, Justia y Dominique vinieron de visita con la escolta de Forestbird.
+
+O mejor dicho, vinieron a practicar música con Irmhild.
+
+El escenario ya está tomando forma y, mientras todos disfrutan de la actuación, pensamos que sería bueno que ellos también se interesaran por el teatro, así que decidieron hacer una práctica ligera en la sala de recreo.
+
+Mientras tocaban música, todos se relajaban en la sala de recreo. Quizás para encajar con el ambiente, Irmhild y los demás tocaban música animada y alegre.
+
+"Has hecho todo tipo de cosas, ¿verdad?"
+
+"Sí, bueno. Ya que tenemos la oportunidad, me alegraría que se quedaran y disfrutaran".
+
+Los de Forestbird son gente de buen corazón, así que podrían ser las personas adecuadas para que los residentes de la Aldea del Laberinto interactúen con gente de fuera.
+
+"¿Eh? ¿Lanzar dardos a una diana para reducir puntos? Suena divertido. Fitz, echemos una partida".
+
+"Claro. ¿Qué apostamos?"
+
+"El que pierda paga las bebidas cuando volvamos".
+
+"Hecho".
+
+Como habíamos fabricado varias dianas, pudieron jugar en una que estaba libre. Los dos que mostraron interés inmediato en los dardos parecían estar divirtiéndose jugando junto a los residentes de la Aldea del Laberinto.
+
+"¿Esa chica está usando el Hechizo de Humanización como Justia-san y Dominique-san?"
+
+Dijo Lucian mientras miraba a la chica Arachne llamada Claire, que sonreía feliz mientras jugaba a las cartas con sus compañeros en una mesa. Ella es uno de los monstruos que no puede usar el Hechizo de Humanización y, en su lugar, depende de Herramientas Mágicas.
+
+Tiene varios brillos como perlas negras en la frente... pero al parecer no son adornos, sino ojos de araña. Parecen una diadema y no resultan especialmente intimidantes a la vista. Ella misma desprende también una impresión de tranquilidad.
+
+"Sí. Bueno, casi todos los sirvientes lo hacen. En su caso, depende de Herramientas Mágicas".
+
+—¿Es así?
+
+Murmuró Lucian con admiración.
+
+Por cierto, Monica también se unió a la partida de dardos y acabó arrollando tanto a Robin como a Fitz. Parece que Monica, al estar a cargo de la exploración, tiene la mejor puntería de Forestbird.
+
+Robin y Fitz, resignados a tener que invitar a todos, recibieron sonrisas irónicas de los residentes de la Aldea del Laberinto, creando una escena bastante pacífica.
+
+Mientras disfrutaba de la actuación de Irmhild y observaba esta escena, Alfred se puso en contacto conmigo a través del Dispositivo de Comunicación.
+
+『He intentado contactar a través de mis conexiones. Dijeron que definitivamente quieren escuchar la historia de Theo-kun』.
+
+『Entendido. ¿Qué tal si les enseño algunas de las cosas que he fabricado?』
+
+『Recibido. ¿Dónde nos vemos?』
+
+Hubo una respuesta inmediata del otro lado después de que contesté. Alfred parece estarse familiarizando bastante con el manejo del Dispositivo de Comunicación.
+
+『Creo que aún es pronto para que vengan al taller o a mi casa, así que llevaré las cosas yo mismo』.
+
+『Entendido. Te avisaré de nuevo cuando se fije el horario』.
+
+Bien... En ese caso, cartas, billar y dianas. Tendré que fabricar otro juego de estos antes de que llegue el día.
+
++++
+
+# **185 – La mercader Miriam**
+
+"Ya va siendo hora, ¿verdad?"
+
+Mientras alineaba los objetos que me llevaría junto a la entrada, preguntó Grace.
+
+"Sí. Probablemente sea el momento adecuado".
+
+"Espero que la charla vaya bien", dijo Ashley.
+
+"Sí. Pero bueno, siendo una recomendación de Alfred, no creo que sea muy problemático. No tengo otros planes, así que volveré para la cena a más tardar, aunque se alargue".
+
+"Entendido. Nosotras también pasaremos el día de hoy relajándonos en casa".
+
+"Últimamente yo también he estado bordando. Pienso aprender un nuevo método de costura de Grace", dijo Claudia. Probablemente Marlene también se uniría a ellas. Intercambiaban sonrisas alegres.
+
+"Sheila-chan y yo probablemente practicaremos con nuestros instrumentos. Como Cyrille-chan es buena con la gaita, pensé que podríamos intentar tocar juntas".
+
+"...Gaitas, ¿eh? Con una centauro, eso sería una imagen digna de ver".
+
+La señorita Cyrille es una chica centauro. Parecía haber estado escuchando con entusiasmo las actuaciones de Irmhild y los demás en la sala de recreo, así que pensé que podría estar interesada; pero como Irmhild era originaria de la Aldea del Laberinto, al parecer congeniaron rápidamente y se unió a su círculo.
+
+"Sheila estaba buscando un instrumento, ¿verdad? ¿Ya te has decidido?"
+
+Parecía que Sheila también quería tocar con Irmhild y había estado buscando un instrumento que se adaptara a ella.
+
+"Sí. Me he decidido por la batería".
+
+Ya veo. De hecho, como es muy hábil, probablemente mejorará rápido una vez que se acostumbre. Añadir percusión también ampliaría su registro musical.
+
+Tal vez sería interesante fabricar una batería completa ya que estamos. Probablemente, Sheila sería capaz de manejarla.
+
+"Sheila-chan mejora muy rápido".
+
+"Es realmente precisa", dijo Seraphina, posada en el hombro de Irmhild. Seraphina también pasaría el día de hoy escuchando su práctica.
+
+"Antes de conocer a Theodore, la vida no me daba mucho margen, así que no podía pensar en cosas como esta. Estoy agradecida".
+
+"Sí."
+
+Al escuchar a Sheila agradecérmelo de forma tan directa, me rasqué ligeramente la mejilla.
+
+"Procederé con el entrenamiento del personal. Creo que el comienzo es crucial", dijo Cecilia.
+
+Así que Cecilia se encarga del entrenamiento de los sirvientes. Dado que los residentes de la Aldea del Laberinto vivían de forma autosuficiente, casi no tienen problemas con las tareas del hogar como cocinar, lavar la ropa y limpiar. Así que, al parecer, no será demasiado trabajo. En ese sentido, Mihaela mencionó que se sentía similar a cuando se unió Grace.
+
+Parece que tanto Mihaela como yo planeamos proporcionar también algo de entrenamiento de autodefensa para los residentes de la Aldea del Laberinto. Al parecer, es para que puedan protegerse si encuentran problemas al ir a la ciudad en el futuro. Ciertamente es necesario, así que dejaré que procedan con ello.
+
+Utilizo Levitación para cargar en el carruaje la mesa de billar, las dianas de dardos y otros artículos que preparé junto a la entrada.
+
+Se supone que el dispositivo de alarma, la máquina de bebidas carbonatadas, la máquina de hielo raspado y demás serán preparados y traídos por Alfred.
+
+"—Bueno, entonces. Saldré por un rato".
+
+"Sí. Que tenga un buen viaje".
+
+Despidiéndome, todos observaron mientras subía al carruaje. El Gólem conductor puso el carruaje en movimiento hacia el Distrito Norte.
+
+El lugar de encuentro con Alfred es una sala en el salón de actos del Gremio de Comercio.
+
+El salón de actos es un edificio de piedra de aspecto robusto. Detuve el carruaje frente al salón y usé Levitación para hacer flotar el equipaje necesario hacia el interior. Como había un carruaje familiar estacionado allí, Alfred probablemente ya había llegado.
+
+Al parecer, este es un lugar donde los maestros artesanos y los comerciantes se reúnen cuando surge algo para mantener discusiones.
+
+"Soy Theodore Gartner, tengo programada una reunión aquí hoy".
+
+"Sí. He sido informado".
+
+Un hombre de edad avanzada asintió. No parecía ser el recepcionista, sino más bien el administrador del salón de actos.
+
+Se ofreció a guiarme a la sala de reuniones y, cuando hice flotar los objetos que traía con Levitación, pareció algo sorprendido.
+
+—Ah. Theo-kun, ya estás aquí.
+
+Al entrar en la sala, Alfred sonrió. Talcott, su guardaespaldas, también estaba con él. Además, había una persona a la que no conocía. Probablemente era una conocida de Alfred.
+
+Una mujer con un parche en el ojo. Tenía más aire de aventurera que de comerciante.
+
+—Encantada de conocerle, Embajador. Soy Miriam.
+
+—Mucho gusto. Soy Theodore Gartner. Espero que podamos trabajar bien juntos hoy.
+
+Tras presentarnos, nos dimos la mano. Al parecer, yo era el último en llegar.
+
+—Hmm. ¿He llegado tarde?
+
+—No, todavía falta un poco para la hora acordada. Miriam-san también llegó temprano, ya ves.
+
+…Ya veo. Bueno, es bueno que las cosas puedan avanzar sin contratiempos.
+
+—Miriam-san es comerciante… y espera establecer eventualmente una base en Termwills. Es una suerte que estuviera de vuelta en Termwills justo ahora. De lo contrario, esta charla habría sido mucho más tarde. También fue Miriam-san quien encontró a Viola herida tras ser atacada por monstruos durante sus viajes y la confió a un maestro herrero conocido en Termwills. La conocí cuando buscaba artesanos cualificados.
+
+Ah. Así que se conocieron a través de la conexión con Viola. Parece tener buenos contactos y probablemente entiende a los aventureros. Seguramente también tenga vínculos con el Gremio de Aventureros…
+
+Entiendo por qué Alfred me la está presentando.
+
+—He acumulado fondos considerables con mi trabajo de comerciante, así que he estado pensando en abrir mi propia tienda pronto. Seguir comerciando mientras lucho contra monstruos y ladrones junto a aventureros para siempre requeriría más vidas de las que tengo. Aunque el estilo de vida en sí es agradable —dijo Miriam medio en broma—, pero la impresión de que es cercana a una aventurera probablemente no sea errónea. El tacto de su mano durante el apretón lo sugería, y sus movimientos también. Probablemente tenga entrenamiento en artes marciales.
+
+Al llevarse bien con los aventureros… probablemente también tenga una comprensión considerable de los monstruos amigables.
+
+—Es así. Bueno, entonces me gustaría que echara un vistazo a los artículos que he fabricado.
+
+Desde mi perspectiva, quiero a alguien de confianza que pueda encargarse de las ventas, las operaciones comerciales, la contabilidad, etc., para poner en distribución las cosas que fabrico.
+
+Teniendo en cuenta la conexión con Viola y el hecho de que la ayudó y cuidó de ella después, ese aspecto debería estar bien.
+
+Bueno, hay otros factores como si entiende lo que fabrico o si su mentalidad se alinea con mis objetivos. En fin. Haré que vea los artículos que traje mientras deja que los pruebe e interactúe con ellos, supongo.
+
+—Pones un bloque de hielo aquí, y cuando giras la manivela… se vuelve así.
+
+Accioné la máquina de hielo raspado, puse el hielo en un cuenco, añadí sirope y se lo entregué a Miriam.
+
+—…Gracias.
+
+Miriam se llevó el hielo raspado a la boca con una cuchara. Tenía una expresión muy seria.
+
+Me pregunto qué se sentirá. Jugamos con las cartas, los dardos y el billar lo justo para familiarizarnos con ellos, y luego procedimos con las presentaciones del dispositivo de alarma y los artículos relacionados con la comida. Al principio, Miriam parecía impresionada, pero poco a poco empezó a hablar menos y su expresión se volvió más seria.
+
+"¿Dijo que... el Embajador hizo esto?"
+
+"En cuanto a las Herramientas Mágicas, Alfred y Viola ayudaron a darles forma".
+
+Parecía estar reflexionando profundamente sobre algo, pero de repente Miriam levantó la vista.
+
+"Esto es increíble... ¡Esto es realmente asombroso! He estado en muchos lugares y he manejado diversos artículos, ¡pero es la primera vez que veo tantos productos nuevos a la vez! ¡Y pensar que el Embajador los hizo!"
+
+Diciendo esto, de repente se inclinó hacia adelante.
+
+"¿D-de verdad me dejaría encargarme de esto?!"
+
+"S-sí. Esperaba encontrar a alguien que entendiera su valor, pero..."
+
+"¡P-por favor, me gustaría solicitarlo! ¡Quiero dedicar todo mi ser a esta tarea!"
+
+Ah—... Parece que no hay problema. Los ojos de Miriam brillan como los de una niña.
+
+Esperaba que los comerciantes fueran más de tantearse mutuamente, pero ella parece ser un tipo algo diferente de lo que imaginaba. Tuvo una primera impresión fría, pero al parecer también tiene un lado sorprendentemente infantil.
+
+"Por favor, cálmese, Miriam-san".
+
+"Ah... mis disculpas".
+
+Alfred intervino en ese momento, y Miriam soltó mi mano y se sentó tímidamente de nuevo en su silla. Quizás pensando que había hecho el ridículo, pareció encogerse un poco.
+
+"¿Qué te parece, Theo-kun?"
+
+Cuando Alfred me incitó, esbocé una sonrisa irónica.
+
+"Sí. Si Miriam-san está dispuesta, me gustaría pedírselo a ella".
+
+"¿¡De verdad!?"
+
+"Sí. Trabajaremos en los detalles a partir de ahora. Espero con interés trabajar con usted".
+
+"¡Gracias...!"
+
+Nos estrechamos la mano de nuevo.
+
+"Me alegra que las cosas hayan salido bien", dijo Alfred con una sonrisa.
+
+"Bueno, pensé que así sería tratándose de una recomendación de Alfred. Pero tenía una sorpresa más preparada; parece que la decisión se tomó antes de que pudiera mostrarla".
+
+"...¿Qué trajiste?"
+
+"Bueno, voy a fabricarlo ahora mismo".
+
+Saqué una bolsa de azúcar de mi equipaje. Una demostración probablemente tendría más impacto.
+
+"¿Azúcar...?"
+
+"Sí. Se hace esto con ella..."
+
+Asentí ante la ladeada cabeza de Miriam. Usando Magia de Fuego para calentarla y derretirla, luego Magia de Viento para hacerla girar, convirtiéndola en hilos y enrollándola alrededor de un palo de madera.
+
+El azúcar derretida, estirada como un hilo, se envolvió alrededor del palo, completando el algodón de azúcar.
+
+El principio en sí es simple, y convertirlo en una Herramienta Mágica no debería ser demasiado difícil, creo. Bueno, puede que haya varios aspectos que pulir en cuanto a materiales, forma, etc.
+
+"Y así, de esta manera, puedes comer el azúcar como si fuera algodón. Probablemente también se podría cambiar su apariencia con colorantes".
+
+Cuando se lo mostré a todos, todos abrieron los ojos de par en par.
+
+"Esto es…"
+
+Con un gesto algo cauteloso, Miriam aceptó el algodón de azúcar que le ofrecí.
+
+Arrancó un trozo pequeño y se lo metió en la boca. Asintió repetidamente, con los ojos muy abiertos mientras su boca dibujaba una sonrisa. Una reacción bastante buena.
+
+—Tendré que pensar en cómo convertir esto en una herramienta mágica cuando regrese al taller —dijo Alfred con una sonrisa irónica.
+
++++
+
+# **186 – Los mercaderes y el pasado**
+
+Miriam parecía tener mucho trabajo: asegurar un local, desarrollar canales de venta, encontrar artesanos para la producción de herramientas, entre otras cosas.
+
+—...¿Qué deberíamos hacer? Sería difícil para nosotros entregar productos manufacturados de manera constante.
+
+—Nosotros también tenemos otras prioridades —señaló Alfred.
+
+Alfred y Viola estaban ocupados desarrollando dispositivos de comunicación y encargándose de asuntos relacionados con los demonios. Por lo tanto, para fines comerciales, necesitaban asegurar artesanos para la producción.
+
+—Respecto a ese asunto, creo que podemos conseguir que nos presenten artesanos a través del Gremio de Comercio. Los contrataríamos para trabajar aquí... Bueno, seleccionaré a los que sean de confianza. Por supuesto, los artesanos comunes no podrían manejar los componentes centrales de las herramientas mágicas.
+
+—Las herramientas mágicas inevitablemente se vuelven bastante caras al venderse... y probablemente no entregaremos grandes cantidades, así que creo que podemos arreglárnoslas.
+
+—Si llega a ese punto, yo también ayudaré —se ofreció Talcott.
+
+Alfred esbozó una sonrisa irónica y asintió.
+
+Ahora bien. Al parecer, el Gremio de Comercio tenía acuerdos entre sus miembros que cubrían diversos asuntos: precios de venta, participación en las ganancias, confidencialidad de la información técnica, control de calidad del producto, formación de sucesores, etc.
+
+Ignorar estos acuerdos aparentemente resultaría en ser marginado por el Gremio de Comercio y perder el acceso a sus servicios.
+
+No es que ser expulsado significara que no pudieras hacer negocios en absoluto, pero estar aislado crearía varios inconvenientes en la producción, adquisición y ventas.
+
+Aunque yo mismo no soy miembro del Gremio de Comercio, si existen reglas establecidas, no me importa seguir acuerdos similares con Miriam. Desde mi perspectiva, mientras pueda distribuir los artículos que fabrico sin demasiados problemas, eso es suficiente como ingreso suplementario.
+
+Después de decidir a grandes rasgos lo que debía resolverse, pensé que eso concluiría nuestra discusión. Pero entonces Miriam dijo algo un tanto inesperado.
+
+—¿Qué opina de grabar decoraciones o... diseños en los productos para indicar que son creaciones del Embajador?
+
+—¿Diseños?
+
+—Disfruto de las cosas raras y novedosas, así que hace poco visité el teatro. También he oído hablar de la filosofía del Teatro de la Frontera. Estaba pensando que, al vender los productos, podríamos incorporar esa filosofía en los diseños. ¿Qué le parece?
+
+...Ya veo. Si los productos se vuelven populares y la gente tiene la oportunidad de conocer el origen del diseño, serviría automáticamente como una actividad de concienciación. También funcionaría como el logotipo de una marca; no es una mala idea. Mientras mantengamos un estricto control de calidad, debería jugar a nuestro favor.
+
+—Es una propuesta interesante. Lo pensaré.
+
+—Gracias. Entonces, una vez que haya decidido la ubicación de la tienda, volveré a visitarlos para informarles. Veamos... probablemente para pasado mañana, diría yo.
+
+Considerando la comodidad de comunicarse conmigo y con Alfred, parecía estar planeando establecer su tienda en el Distrito Este. Bueno, una vez que abra, supongo que será nuestra vecina.
+
+—Entendido. Prepararé los diseños para entonces. Aquí tiene mi dirección.
+
+Escribí mi dirección en un papel y se la entregué a Miriam. De ella, recibí un papel con la ubicación de la posada que está usando actualmente para fines de contacto.
+
+Con nuestra discusión concluida de esa manera, salimos del salón de actos. Los pasos de Miriam por el pasillo eran ligeros y, incluso para un observador, parecía sumamente motivada, casi eufórica.
+
+Bueno... tener una alta motivación no es más que beneficioso desde mi perspectiva. Alfred y yo intercambiamos miradas y compartimos sonrisas irónicas.
+
+—Vaya, vaya. ¿No es esa Miriam?
+
+Justo después de salir del salón de actos, un hombre llamó a Miriam.
+
+—...Dexter.
+
+Miriam frunció ligeramente el ceño.
+
+—Así que has vuelto a Termwills. ¿Qué haces en un lugar como este?
+
+El hombre llamado Dexter esbozó una sonrisa sutil.
+
+—No es asunto tuyo. ¿Te importaría dejarme en paz?
+
+—¿Ah, sí? Mientras tú has estado vagando por ahí jugando a ser una comerciante itinerante, yo me he establecido en Termwills y he estado obteniendo bastantes beneficios.
+
+Dexter se encogió de hombros como si presumiera de su vestimenta.
+
+...Ciertamente. Estaba vestido con ropas finas y bien confeccionadas, como un noble o algo parecido.
+
+Pero de alguna manera, desde su expresión hasta cada uno de sus gestos, carecía de refinamiento. No tenía la elegancia marcial en sus movimientos que poseía Miriam.
+
+De algún modo, me dio una impresión similar a la de Byron u otros como él.
+
+—...Con permiso. Vámonos.
+
+Miriam pareció haber decidido ignorar a Dexter, caminando junto a nosotros hacia donde estaban estacionados los carruajes.
+
+El carruaje de Miriam parecía ser un carromato cubierto para uso de comerciantes itinerantes. Mi carruaje, el carruaje de Alfred. Y luego... este bañado en oro con decoraciones de mal gusto debía de ser el carruaje de Dexter. Realmente carente de clase.
+
+—¿De qué se trataba todo eso?
+
+Pregunté mientras miraba de reojo a Dexter, quien todavía nos observaba con una sonrisa sutil.
+
+—Alguien que conocí cuando viajaba con una caravana de comerciantes en el pasado... Bueno, pasaron varias cosas en aquel entonces. Rechacé una propuesta que me hizo y, desde entonces, se pone así cada vez que nos encontramos. Como rara vez estoy en Termwills, no ha sido un gran problema hasta ahora.
+
+Pero si establece una tienda en Termwills, la situación probablemente cambiaría.
+
+—...¿Existe la posibilidad de que te acose de ahora en adelante?
+
+—Aun así, técnicamente es un miembro del Gremio, así que dudo que interfiera directamente con el negocio...
+
+—Los veteranos a cargo tienen valores tradicionales y les desagradan especialmente cosas como el soborno —añadió Alfred a modo de explicación—. Al ser una organización de ayuda mutua, probablemente sería blanco del Gremio de Comercio si lo intentara.
+
+—Mis disculpas por mis indiscreciones pasadas. Si esto les causa problemas, podríamos reconsiderar este acuerdo—
+
+—No. Creo que alguien como Miriam-san sería difícil de encontrar incluso si buscáramos. No reconsideraría nada por algo así.
+
+Cuando respondí, Miriam inclinó la cabeza en silencio.
+
+"Podría ocultar su conexión y hacer que sus subordinados se encarguen del acoso... eso podría ser posible... ¿verdad?", dijo Alfred.
+
+"Tengo entrenamiento en defensa personal... creo que puedo lidiar con ese tipo de persona".
+
+Dicho esto, sacó algo de su equipaje. Parecía ser el arma de Miriam.
+
+Un látigo... y claramente un látigo de combate. La punta era de metal, con un aspecto bastante letal.
+
+"...Ya veo. En cualquier caso, si encuentra alguna dificultad, por favor consúltenos".
+
+"Gracias".
+
+Miriam hizo una profunda reverencia, luego subió a su carromato y regresó a su posada.
+
+"¿Qué piensas?"
+
+"Parece problemático. Ese tipo suele ser persistente".
+
+La expresión de Alfred se ensombreció. Bueno, tal vez debería investigar un poco sus movimientos.
+
+Después de eso, regresé a casa tras pasar un tiempo en el taller desarrollando ideas para herramientas mágicas... específicamente la máquina de algodón de azúcar, y escribiendo fórmulas de hechizos.
+
+Respecto al algodón de azúcar, he oído que al usar herramientas se necesita azúcar granulada o de lo contrario se quema o se obstruye. Decidimos preparar los materiales usando métodos ordinarios primero y luego ajustar la herramienta mágica en consecuencia.
+
+"Conozco a Dexter".
+
+Cuando les conté a todos los eventos del día durante la cena, Sheila dijo esto.
+
+"¿Ah, sí?"
+
+"Lo veo a menudo en el Distrito Oeste. A veces causa problemas con sus seguidores, por lo que su reputación es bastante mala. Una vez lo vi golpeando a uno de sus subordinados".
+
+"...¿Es así? Escuché que también es miembro del Gremio de Comercio... ¿en qué negocio está?"
+
+"He oído que se dedica al comercio. Parece que también posee barcos. Si los rumores sirven, tengo algo de información".
+
+Sheila dijo esto mientras preparaba el pescado en su plato. Cortó la carne del pescado, retirándola limpiamente mientras mantenía las espinas unidas.
+
+"Escucharé. Podría ser útil".
+
+"Aunque probablemente no sea el tipo de historia que Theodore esperaría escuchar... Hace un tiempo, intentó ligar a la fuerza con una comerciante itinerante y fue expulsado brutalmente antes de que lo echaran de una taberna. Esta historia es famosa: cada vez que surgen quejas sobre él en las tabernas, esto siempre sirve como remate".
+
+"...Ah. ¿No has oído nada sobre si esa comerciante itinerante llevaba un parche en el ojo o algo así?"
+
+Cuando pregunté, Sheila ladeó la cabeza como buscando en su memoria, luego me miró directamente y asintió.
+
+...Sí. Confirmado. Eso debe ser sobre lo que Miriam estaba siendo vaga.
+
+De hecho, no es realmente una conversación de negocios apropiada... ni el tipo de historia para contarme a mí o a Alfred. Miriam tiene una sensibilidad adecuada.
+
+En cuanto a Dexter... ¿está resentido por haber sido rechazado, o guarda rencor por haber sido expulsado?
+
+"¿Debería reunir algo de información?", ofreció Sheila.
+
+"Eso podría ser bueno... La información por sí sola nos da una ventaja y hace que sus movimientos sean más fáciles de predecir".
+
+Ya sea que Dexter cause problemas o se contenga, no vendría mal investigar varias cosas.
+
++++
+
+# **187 – Dentro del Gremio de Ladrones**
+
+"...No funcionó".
+
+Sheila había demostrado su habitual agilidad cuando salió de inmediato a reunirse con un informante de confianza después de que acordáramos recopilar información... pero cuando regresó tarde por la noche, parecía algo apenada. Tenía las orejas gachas.
+
+"¿A qué te refieres con que no funcionó?"
+
+"El informante simplemente dijo que no podía hacerlo y que leyera entre líneas".
+
+"Leer entre líneas, eh... Así que Dexter está involucrado, entonces".
+
+Una de las reglas del Gremio de Ladrones es no filtrar información sobre sus miembros. Si un informante no puede proporcionar información... la conclusión que se saca es que Dexter debe ser un miembro.
+
+...Bueno, si las identidades de los miembros fueran completamente desconocidas entre sí, tampoco podrían interactuar.
+
+En ese caso, si Dexter ocupa un puesto bastante alto en el Gremio de Ladrones —digamos, superior al de Sheila—, entonces tiene sentido que no le diera información a ella.
+
+Las implicaciones variarían dependiendo de si fue para proteger la posición y seguridad de Sheila o porque él es un ejecutivo, pero dado que parece tener cierta interacción con los informantes, probablemente estaba preocupado por el bienestar de Sheila.
+
+Ahora bien. Eso significaría que Dexter tiene dos facetas: ladrón y comerciante. Y considerando lo que implica ser un comerciante de comercio exterior—
+
+"...Hay un traficante de esclavos en el Gremio de Ladrones, ¿verdad?"
+
+"Lo hay. Al parecer es de nivel ejecutivo, pero ninguna información llega a los rangos inferiores".
+
+Sheila parece entender a qué me refiero.
+
+Esa fue la razón por la que Sheila no confió en el Gremio de Ladrones cuando Irmhild fue capturada por Cardiff y la demonio Linette. Sheila desconfiaba bastante de ese ejecutivo.
+
+En otras palabras, el Gremio de Ladrones tampoco está completamente unificado.
+
+En cuanto a mí... sospecho que Dexter podría ser ese traficante de esclavos. Aunque, sinceramente, que alguien como él sea un ejecutivo parece un poco cutre. Probablemente sea solo un recadero de los ejecutivos, en el mejor de los casos.
+
+Sin embargo... el hecho de que alguien sea un traficante de esclavos no significa automáticamente que sea ilegal.
+
+La esclavitud se maneja de manera diferente en cada país. En el caso de Verdgar, solo los esclavos criminales son sometidos a trabajos forzados.
+
+Para los esclavos por deuda —aquellos que se convierten en esclavos para pagar deudas—, el empleador debe pagarles un salario. Naturalmente, pueden ahorrar dinero para recuperar su libertad, y también está prohibido vender esclavos por deuda nacidos en Verdgar al extranjero.
+
+La esclavitud por deuda es esencialmente lo mismo que un aprendizaje, por lo que si el amo les hace daño injustamente, será castigado en consecuencia.
+
+El papel de los traficantes de esclavos en Verdgar... bueno, la colocación de personal es la comparación más cercana. Es decir, si están llevando a cabo un negocio legítimo.
+
+En cuanto a los monstruos, la captura de especies de monstruos amistosos para la esclavitud está prohibida dentro de Verdgar. Muchas especies amistosas son poderosas como monstruos, lo que las convierte en enemigos poco recomendables, y lo más importante, los aventureros suelen evitar tales prácticas.
+
+Claudia ha enviado mensajes a través de oráculos a las doncellas del santuario durante mucho tiempo, orientando la política hacia la amistad con los monstruos, lo cual ha sido significativo. Con ese trasfondo, Verdgar era originalmente un país tolerante con los monstruos, pero el Rey Melvin ha adoptado claramente una postura protectora, llevando las cosas aún más lejos.
+
+"¿Puedes contarme mucho sobre los asuntos internos del Gremio de Ladrones, Sheila?"
+
+"…Por Theodore, puedo compartir algunas cosas."
+
+Esto también es arriesgado para Sheila. Considerando su posición, probablemente sea mejor no llevar esta información al Rey Melvin para discutir contramedidas ni nada parecido como un asunto interno.
+
+"Originalmente, el Gremio de Ladrones era una organización de ayuda mutua para compartir técnicas. Pero también sirve como coordinador para la gente en las sombras."
+
+El Gremio de Ladrones es, bueno, similar a los forajidos caballerescos.
+
+Después de cómo terminó mi vida anterior, tengo una fuerte aversión a los ladrones, asaltantes, atracadores y demás, pero el Gremio de Ladrones no es tan villano como sugiere el nombre. Proporcionan habilidades a quienes no las tienen, establecen reglas y mantienen cierto orden y equilibrio en el inframundo.
+
+Dan habilidades a jóvenes sin capacidades u huérfanos sin ningún lugar a donde ir; algunos llegan a tener éxito como aventureros. Contar con exploradores o ladrones entrenados y experimentados afecta directamente la tasa de supervivencia de un grupo. No es algo que simplemente se pueda eliminar.
+
+"Pero desde que murió el anterior Maestro del Gremio, ha habido conflictos internos. Una facción que quiere mantener las formas tradicionales y otra que cree que deberían expandirse a diversas áreas sin adherirse estrictamente a las reglas. Actualmente, esta última es la dominante. Ese ejecutivo traficante de esclavos probablemente esté con ellos."
+
+"Ya veo".
+
+Operar sin reglas para ganar dinero sería, de hecho, más rentable. Es común que aquellos con fondos abundantes ganen más influencia.
+
+Mi evaluación es… Dexter probablemente también esté con esta última facción. Incluso si es un traficante de esclavos, ¿quién sabe hasta qué punto sigue las reglas?
+
+Parece que no podemos simplemente encontrar la casa de Dexter, vigilarla con Caduceus, reunir información y darlo por terminado.
+
+"Aparentemente hubo conflictos por esto, pero yo aún era joven entonces… y, bueno, me enviaron a un orfanato durante ese período turbulento, así que no sé mucho."
+
+…Eso tiene sentido. Yo estuve en una situación similar.
+
+"Sheila-chan…"
+
+"Hm. Estoy bien."
+
+Irmhild intervino, pero Sheila le devolvió una ligera sonrisa.
+
+Bueno, entonces… Esto no es algo que se pueda solucionar simplemente aplastando al Gremio de Ladrones. Aun así, la facción de Dexter es innecesaria.
+
+Entre sus reglas, debería haber algunas que prohíban matar durante un robo y robar a los pobres. Creo que esas son reglas adecuadas. Que una facción que las ignora gane poder probablemente no conducirá a nada bueno.
+
+¿Qué hay de las misiones de BFO Termwills relacionadas con el Gremio de Ladrones?
+
+Si mal no recuerdo, después de que un gran conflicto en el Gremio de Ladrones causara numerosas bajas, hubo llamamientos para hacer cumplir estrictamente las reglas.
+
+No sé cuándo fue eso, pero probablemente sea diferente del conflicto que mencionó Sheila. Si actuamos ahora... siento que podríamos lograr un aterrizaje más suave.
+
+Así que, respecto a la facción que ignora las reglas, parece que lo mejor es reunir información, aplastarlos y devolver al Gremio de Ladrones a su forma original.
+
+En el proceso, también podemos obtener información sobre Dexter y, si está usando los métodos que imagino, también lo aplastaremos.
+
+"De todos modos, lamento no haber podido ser de más ayuda, Theodore".
+
+Sheila se volvió hacia mí y dijo esto.
+
+"No, está bien. ¿Conoces a alguien que pueda hablarnos sobre el conflicto?"
+
+"...Hay una persona. Podría pertenecer al Gremio de Ladrones también, pero no lo he confirmado... Si actuamos basándonos en especulaciones, no debería violar las reglas".
+
+"Bien".
+
+Sheila sonrió de oreja a oreja y yo le devolví la sonrisa. Bueno, Sheila ya me ha revelado que es miembro del Gremio de Ladrones, pero dada la relación entre los aventureros y el Gremio, yo tenía mis sospechas, aunque nunca pregunté. A veces es mejor dejar las cosas sin decir.
+
+"¿Quién es?"
+
+"Eh... la madama de un burdel. Al parecer era amiga de mi madre, pero me mantuvo alejada de ese mundo y me dejó en un orfanato".
+
+...Por lo que escucho, parece alguien bastante decente.
+
+Es muy probable que sea miembro del Gremio de Ladrones. Aun así, parece estar claramente del lado de Sheila y probablemente conoce bien la situación. Si está del lado de los que siguen las reglas, podemos operar bajo el supuesto de que podría ser una aliada.
+
+Aunque sea un burdel... no es como si fuéramos allí como clientes. Vamos a conocerla. Y llegados a este punto, también deberíamos informar a Miriam y reunir información sobre Dexter.
+
+El cumplimiento legal de los traficantes de esclavos probablemente también se relacione con mi futuro trabajo como Embajador del Otro Mundo.
+
++++
+
+# **188 – Al burdel**
+
+Informé a Grace y a los demás de mi destino mientras nos sentábamos alrededor de la mesa baja en la habitación de estilo japonés.
+
+De alguna manera, me sentía extrañamente nervioso. No es que tuviera nada de qué sentirme culpable, pero dada la naturaleza del lugar...
+
+Solo iba a reunir información y, teniendo en cuenta mi edad, no debería ser un problema.
+
+"Si caminamos por el Distrito Oeste con este grupo, definitivamente nos acosarán. Sería mejor si no vinieran todos", dijo Sheila.
+
+Bueno... tenía razón. Ya que iba a negociar, lo mejor era evitar cualquier problema.
+
+"Entendido. Dado que es el Distrito Oeste, por favor ten cuidado en el camino", asintió Grace en silencio. Cuando nuestros ojos se encontraron, me sonrió.
+
+Aquí estoy con cuatro prometidas. Pensé que recibiría más comentarios sobre mis relaciones con las mujeres...
+
+"Está bien", se rió Claudia, tal vez leyendo algo en mi expresión. Supongo que significaba que confiaban en mí... Sí, esto en realidad me hace estar más concentrado que si me estuvieran advirtiendo.
+
+No solo Claudia, sino que Ashley también me sonreía. De alguna manera... me sentí un poco avergonzado y me rasqué la mejilla. Marlene parecía no entender realmente qué era un burdel.
+
+"¿Cuándo vas a salir?"
+
+"Se supone que Miriam-san vendrá a la casa. Probablemente después de que hablemos sobre Dexter".
+
+—Va a abrir una tienda en el Distrito Este, ¿verdad?
+
+—Eso fue lo que dijo. Pero... es posible que Dexter haya estado investigando los movimientos de Miriam-san hasta cierto punto. Creo que la tienda necesitará algo de seguridad hasta que la situación se calme.
+
+Incluso si no interfiere abiertamente con el negocio... podría hacer cosas como lanzar piedras o provocar incendios.
+
+—Entonces Lavigne y yo nos encargaremos de la seguridad —dijo Ashley.
+
+—Yo también iré —añadió Irmhild.
+
+Ashley e Irmhild, eh. Ambas deberían estar bien en lo que respecta a defensa y detección.
+
+—Por favor, que Caduceus las acompañe. Yo me quedaré en mi forma liberada y me portaré bien —dijo Grace.
+
+Así que el grupo de casa quedaría formado por Grace, Marlene, Claudia, Seraphina, además de Cecilia y Mihaela.
+
+Es poco probable que alguien del Gremio de Ladrones asalte directamente mi casa... pero tenemos residentes de la Aldea del Laberinto, así que no debemos descuidar la defensa.
+
+—Entendido. Si ocurre algo, contáctenme usando el dispositivo de comunicación.
+
+—Ya que mañana nos separaremos... ¿qué tal si pasamos el día de hoy relajándonos juntos?
+
+"Sí."
+
+Ah... aparte de que todos confían en mí...
+
+Dada la naturaleza de a dónde voy, quiero pasar más tiempo con todos. Creo que eso les haría sentirse más tranquilos.
+
+Así que, después de bañarnos, nos fuimos temprano al dormitorio y pasamos el tiempo acurrucados. Grace y Claudia apoyaron sus cabezas en mis hombros, mientras que Ashley y Marlene se recostaron con sus mejillas contra mi pecho y mi regazo.
+
+Mientras les peinaba el cabello con los dedos, una suave fragancia me acariciaba la nariz. La textura fluida de su cabello era maravillosa.
+
+Luego realicé la circulación de ki. Al hacer la circulación de ki con varias personas, hay una sensación de estar envueltos juntos en algo cálido que resulta muy reconfortante. También siento que el efecto podría potenciarse ligeramente.
+
+—...Está tibio —dijo Grace con los ojos cerrados.
+
+Marlene estiró los dedos y acarició suavemente la zona de mi flequillo.
+
+Yo también cerré los ojos. Las sensaciones suaves y la fragancia. El calor corporal y los latidos del corazón. El flujo del poder mágico de todos. Una sensación de flotar, como si me disolviera y derivara en agua tibia. En ese momento tan cálido y confortable, nos quedamos dormidos gradualmente.
+
+——Al día siguiente. La fecha en que Miriam dijo que vendría para hablar sobre la búsqueda de una tienda.
+
+—Amo, Miriam-san ha llegado —me informó Cecilia sobre la visita de Miriam mientras yo tomaba el té tranquilamente después del desayuno.
+
+Me dirigí a la sala de recepción recién creada en el primer piso de la mansión de estilo occidental.
+
+—Embajador, hola.
+
+—Buenos días, Miriam-san.
+
+Mientras nos sentábamos a la mesa, Claire la Arachne, vestida con uniforme de sirvienta, trajo un juego de té y nos sirvió.
+
+"Gracias".
+
+"Sí."
+
+Siguiendo la etiqueta adecuada, sonrió, hizo una reverencia y salió de la habitación.
+
+Hubo algunas partes ligeramente torpes en su procedimiento, pero no debería ser un problema mayor. Probablemente se encargará de recibir a los invitados así en el futuro también, y Miriam fue una muy buena primera invitada para practicar. Parecía complacida por la novedad de tener a una Arachne como sirvienta.
+
+—¿Has decidido ya la ubicación de la tienda?
+
+—Sí. Esta es la dirección.
+
+Miriam me entregó alegremente un papel con la dirección escrita.
+
+—¿Justo al otro lado de la calle? Eso está prácticamente delante de nuestras narices.
+
+—Así es. Creo que es una ubicación bastante buena... Por cierto, ¿he oído que esta mansión también es de construcción mágica?
+
+—Sí. ¿Te parece que tiene algo de extraño?
+
+—No, en absoluto. El estilo arquitectónico es único, pero se siente tranquilo y digno. He visto otra construcción mágica antes, y se notaba lo que era a simple vista. Las paredes tenían costuras visibles y cosas así...
+
+Miriam miró alrededor de la habitación y dejó escapar un suspiro de admiración.
+
+—Esta mansión es maravillosa. No, estoy impresionada. No veo ninguna de esas costuras ni aspectos antinaturales.
+
+Ya veo. Si el control es deficiente o no hay suficiente poder mágico, no puedes formarlo todo a la vez, por lo que necesitas avanzar creando partes y luego extendiéndolas. Probablemente eso aparecería como costuras. La capacidad de observación y la experiencia de Miriam parecen ser bastante considerables.
+
+"Gracias".
+
+Sonreí con ironía ante los ojos brillantes de Miriam. Realmente le encantan las cosas raras.
+
+—Una vez que abras tu tienda con éxito, ¿por qué no celebramos un banquete? También serviría como publicidad.
+
+—Eso sería de gran ayuda.
+
+—Por favor, quédate a dormir en esa ocasión.
+
+—¡Sí! ¡Sin duda!
+
+Al decir esto, la expresión de Miriam se volvió aún más feliz. Me gustaría mostrarle la casa hoy, pero aún tenemos asuntos pendientes.
+
+—Me hubiera gustado enseñarte la casa ahora, pero desafortunadamente tengo asuntos que atender después.
+
+Cuando cambié mi expresión y tono, Miriam pareció darse cuenta. Adoptó una expresión seria y enderezó su postura.
+
+—Ha surgido algo preocupante sobre Dexter. Para ser directo, sospecho que Dexter es miembro del Gremio de Ladrones y que, más que un comerciante, es en realidad un traficante de esclavos.
+
+—Eso... no es una historia imposible —dijo Miriam, con la expresión ensombrecida. Es posible que recordara los títulos de Dexter y cosas por el estilo.
+
+—El Gremio de Ladrones parece tener conflictos internos... En pocas palabras, parecen estar divididos entre la facción tradicional que intenta seguir la razón y una facción que ignora tales cosas.
+
+—Si Dexter es así... probablemente consideraría que la razón es un estorbo.
+
+Parece que compartimos puntos de vista similares en ese aspecto.
+
+—Yo lo veo de la misma manera. El trabajo del Embajador del Otro Mundo no es muy conocido, pero incluye servir de puente con monstruos amistosos. Cuando escucho que a un miembro del Gremio de Ladrones que se hace pasar por comerciante le va bien, siento la necesidad de investigar hasta cierto punto.
+
+—Ya veo... Al decirme esto, ¿estás diciendo que——quieres que te hable de Dexter?
+
+—Así es. Tengo planeado ir al Distrito Oeste para obtener información detallada sobre el conflicto interno del Gremio de Ladrones, y esperaba que tú también pudieras contarme sobre él.
+
+Ante mis palabras, Miriam asintió.
+
+—Aunque debo decir que no sé mucho sobre ese hombre. No quería involucrarme con él.
+
+"Entiendo".
+
+Ambos nos sonreímos con ironía tras ese intercambio.
+
+"Pero sobre su repentino éxito... déjame ver. Recuerdo que cuando regresó de su viaje comercial, me mostró unos plantones, diciendo que haría una fortuna con ellos... hablando con aires de grandeza".
+
+"Plantones... ¿de qué?"
+
+"Eran brotes que nunca antes había visto. Y después de eso, tuvimos una pequeña... discusión, así que no llegué a conocer los detalles".
+
+Las palabras de Miriam fueron bastante euphemísticas. De todos modos, probablemente se relacione con la secuencia de eventos en la que Dexter, tras conseguir lo que parecía una pista rentable, se envalentonó e intentó propasarse con Miriam, solo para terminar siendo echado.
+
+"Pero recuerdo bastante bien el color, la forma y otras características. Si tuviera papel, creo que podría dibujarlo".
+
+"Eso sería de gran ayuda".
+
+Plantones, ¿eh? Si Miriam no los conoce, deben ser bastante raros. Ah... este es un caso para dejarlo en manos de expertos. Tengo en mente a alguien a quien debería preguntarle sobre esto. Iré al Castillo Real más tarde.
+
+Le di a Miriam papel y una pluma para que dibujara los plantones. Cuando me mostró el dibujo terminado, estaba bastante bien hecho. Las características también estaban enumeradas en puntos, lo que lo hacía muy fácil de entender. Con este nivel de calidad... tal vez podamos rastrearlo.
+
+"...Ehm, si va al Distrito Oeste, ¿puedo acompañarlo? Por supuesto, me aseguraré de no interferir en su trabajo".
+
+"¿A qué te refieres?"
+
+"Creo que el Embajador es un mago y tiene un entrenamiento considerable en artes marciales, pero el Distrito Oeste tiene muchos tipos problemáticos que no entienden de esas cosas. Tener a alguien como yo cerca podría ayudar a evitar problemas".
+
+"Eso... estaría bien".
+
+En otras palabras, ella serviría como escolta. Ciertamente... Independientemente de la personalidad de Miriam, su apariencia da la impresión de ser alguien curtida en mil batallas.
+
+También sería problemático si la atacaran cuando estuviera sola después de separarnos, así que mejor vamos juntos esta vez.
+
+Así que, para evitar llamar la atención, me cambié a ropas que no fueran de estilo noble y partimos. Me acompañaban Sheila y Miriam. Fuimos a pie sin usar carruaje.
+
+Nuestro destino era la calle bordeada de burdeles en el Distrito Oeste. La vista de las prostitutas apoyando sus mejillas contra las barandillas de las ventanas del segundo piso, con aspecto lánguido, era probablemente una escena que solo se podía ver en esta zona.
+
+Dicho esto, como el sol todavía estaba alto, no hubo mayores problemas.
+
+Sheila llevaba el rostro oculto por una capucha y desprendía una atmósfera de estar muy familiarizada con el Distrito Oeste, mientras que Miriam tenía más la apariencia de una mercenaria que de una comerciante.
+
+Hubo algunos borrachos que nos silbaron, pero cuando Miriam echó mano al látigo que llevaba en la cintura y les lanzó una mirada afilada, se acobardaron y se retiraron.
+
+...Demostraciones claras como esta son necesarias en tales situaciones. Nadie lleva un arma como un látigo solo por apariencia o por capricho. Podían notar a simple vista que probablemente era hábil y que recibir un golpe sería terrible.
+
+"Ese burdel", indicó Sheila.
+
+Era un edificio particularmente impresionante entre los burdeles. Más que una de las posadas baratas de los alrededores, tenía el aire de un burdel de clase alta.
+
+Cruzamos la puerta del burdel y entramos.
+
+Las miradas curiosas de mujeres engalanadas que descansaban en lujosos sofás nos atravesaron. Ciertamente... no éramos clientes ordinarios.
+
+Como era de esperar, el interior también era espléndido. Ornamentado pero decadente. Esa fue la impresión.
+
+"¿Qué asuntos tiene con nuestro establecimiento?", preguntó lo que parecía ser una recepcionista con vestido, probablemente incapaz de determinar si éramos clientes dada nuestra composición de grupo de mujeres y lo que parecía ser un niño.
+
+"Quiero hablar con Isabella. Por favor, dile que Sheila está aquí", respondió Sheila, quitándose la capucha.
+
+"¿Con Isabella-sama...?"
+
+"Una conocida."
+
+"...Entendido. Por favor, espere un momento."
+
+La recepcionista subió las escaleras hacia la parte trasera del segundo piso. Incluso al apresurarse, mantenía su elegancia; eso parecía estar profundamente arraigado.
+
+Después de un corto tiempo, una mujer esbelta con un vestido rojo vino bajó del segundo piso.
+
+Se mimetizaba con el burdel pero... era de un carácter diferente al de las demás.
+
+"Vaya, vaya. Cuánto tiempo sin verte, Sheila", dijo la mujer, sosteniendo una pipa en una mano, y rió alegremente.
+
++++
+
+# **189 – Destino**
+
+"Ha pasado tiempo, Isabella. La razón por la que vine hoy—"
+
+"Ahora, ahora, no hay necesidad de apresurarse. Al menos le serviré un té a tu acompañante."
+
+Las palabras de Sheila fueron interrumpidas con un gesto de la mano mientras Isabella indicaba la habitación interior con su pipa.
+
+Nos movimos juntos y nos acomodamos en la habitación, y el té fue traído casi de inmediato.
+
+"¿Y bien? Es un establecimiento agradable, ¿no es así?"
+
+Me dijo Isabella.
+
+...Cómo debería decirlo—el hecho de que se dirigiera específicamente a mí da la impresión de que está sondeando.
+
+Si conoce mis antecedentes, entonces probablemente esté observando mis reacciones.
+
+"...No esperaba un establecimiento de tan alta clase. Aunque no estoy muy seguro sobre la clientela", respondí. Ser visto como abrumado por la atmósfera me pondría a la defensiva.
+
+Dicho esto, este es el inseguro Distrito Oeste. Es cierto que la ubicación parece mala para una tienda de alta gama.
+
+"Jeje. Lo tomaré como un cumplido. Bueno, para los clientes adinerados que lo necesitan, ofrecemos servicio de carruaje para recogerlos y dejarlos."
+
+Ya veo. Incluso si vienen discretamente, siguen siendo individuos ricos que necesitan escoltas. Y dado que el Gremio de Ladrones respalda este lugar, ningún tonto se atrevería a poner una mano sobre los carruajes.
+
+Según Sheila, Isabella hace todo lo posible para proteger a las prostitutas de otros establecimientos también. Probablemente por eso está en el Distrito Oeste, y si eso es cierto, sin duda está del lado que sigue el código del Gremio de Ladrones.
+
+Considerando que Sheila no conoce la posición de Isabella, la escala de este establecimiento y el alcance de la influencia de Isabella, infiero que ocupa un puesto bastante alto dentro del Gremio de Ladrones.
+
+"Bueno, dejémonos de charlas triviales y vayamos al grano. La razón por la que has venido hoy... no pareces ser un cliente, ni tampoco buscas trabajo aquí..."
+
+Isabella nos recorrió con la mirada. Intercambié una breve mirada con Sheila y tomé la iniciativa para hablar.
+
+"Mi nombre es Theodore Gartner. He venido hoy en mi calidad de Embajador del Otro Mundo; tengo algunas preguntas que me gustaría hacer".
+
+"Hohh".
+
+Isabella dejó escapar un sonido de ligera impresión.
+
+No hay nada que ocultar. Debo asumir que Isabella está al tanto de la situación actual de Sheila.
+
+Incluso si no fuera así, esto es un burdel, un lugar donde la información fluye fácilmente a través de rumores y conversaciones casuales. Es mejor actuar bajo la premisa de que Isabella conoce mi identidad hasta cierto punto.
+
+"Vaya. He sido descuidada con las presentaciones. Soy Isabella. Dirijo este Pabellón del Fin del Sueño. ¿Qué podría querer preguntar un personaje tan distinguido como el Embajador a alguien como yo?"
+
+"...Ustedes dos. ¿Podrían salir un momento?"
+
+Sheila y Miriam asintieron y salieron de la habitación. Entonces comencé.
+
+"Sobre el conflicto interno en el Gremio de Ladrones. Y, si es posible, información sobre un comerciante llamado Dexter también".
+
+Lancé una pregunta directa, pero Isabella no se inmutó. Al menos, no mostró rastro de ello en su expresión ni en su comportamiento.
+
+"Hmm. ¿Por qué crees que yo sabría tales cosas? ¿Qué te dijo Sheila?"
+
+"Le pregunté a Sheila si conocía a alguna persona bien informada que pudiera simpatizar con ella. Pero esto es un burdel. Es un lugar donde se reúnen diversas historias de todo tipo de clientes. Pensé que podrías haber oído algo a través de los rumores, así que le pedí a Sheila que me presentara".
+
+Ante mis palabras, la sonrisa de Isabella se hizo más profunda.
+
+"Si proporciono información, ¿qué recibiría a cambio? La información no es gratuita, ¿sabes?"
+
+"No puedo hacer promesas a título personal. Sin embargo, puede haber quienes se aprovechen de las situaciones creadas por mis acciones. Supongo que es similar a la relación entre el reino, el Gremio de Aventureros y el Gremio de Ladrones".
+
+Creating favorable conditions  ==for== rebuilding the Guild is the “return I can offer.” But I don’t voice that explicitly.
+
+No sería bueno para ninguna de las partes que alguien cercano al rey y el Gremio de Ladrones fueran vistos como dependientes entre sí. El rango aceptable se limita a la utilización mutua dentro de entendimientos tácitos.
+
+Por ejemplo, al igual que el Gremio de Aventureros se beneficia cuando el Gremio de Ladrones produce individuos con técnicas especiales. El reino también gana al mantener el orden público a bajo costo, razón por la cual no los eliminan. Por el contrario... también significa que si sus acciones se vuelven demasiado atroces, esa tolerancia tiene sus límites.
+
+"Ya veo, ya veo. Entonces, Embajador, ¿por qué busca información sobre el Gremio de Ladrones y demás?"
+
+"He oído rumores... de que aquellos que ignoran los códigos y las leyes están involucrados con traficantes de esclavos, lo cual es problemático para un Embajador del Otro Mundo que aboga por la coexistencia con especies de monstruos amistosas. Aunque... creo que el propio Gremio de Ladrones es necesario, dadas mis conexiones también con el Gremio de Aventureros".
+
+Isabella me miró fijamente a la cara, pero al final dejó escapar un pequeño suspiro.
+
+—De verdad. Esa chica también es un caso. Había oído los rumores, pero es toda una zorrita.
+
+Su forma de hablar evita revelar nada... pero la "esa chica" que mencionó Isabella es probablemente Sheila. En cuyo caso, la "zorrita" sería yo. Bueno, no es que me importe.
+
+Aun así, no ha mencionado explícitamente que Sheila descifrara el código. Si nos preguntaran, tanto Sheila como yo simplemente lo negaríamos. Simplemente vine aquí confiando en los contactos de Sheila y en mis propias deducciones. Eso es todo.
+
+—Bueno, entiendo la situación. En ese caso, yo también podría estar dispuesta a compartir algunos rumores. Después de todo, parece que el Embajador ha estado ayudando constantemente a Sheila y a los amigos de esa chica.
+
+…Así que sí tenía información sobre nosotros.
+
+—Ten en cuenta que solo son rumores, ¿entendido?
+
+Tras ese preámbulo, Isabella continuó.
+
+—También he oído rumores de que, tras el fallecimiento del anterior Maestro del Gremio de Ladrones, una nueva facción empezó a ganar influencia. Están acumulando poder rápidamente con fondos abundantes, reuniendo a rufianes y armándolos... expulsando o hiriendo a quienes se les oponen, y su comportamiento arbitrario ha ido en aumento año tras año.
+
+—Pero debe haber resistencia a eso, ¿verdad?
+
+—Oh, estoy segura de que la hay. De hecho, ha habido varios enfrentamientos a pequeña escala. La situación actual es que aún no ha escalado a un conflicto abierto y total. Pero, en mi opinión, es solo cuestión de tiempo. Hasta la paciencia tiene sus límites, ya sabes.
+
+Ya veo. Así que actualmente están en la etapa de centrar sus esfuerzos en la lucha de poder interna dentro del Gremio.
+
+Aun así... si las cosas siguen así, es solo cuestión de tiempo antes de que se vuelvan descarados a plena luz. Una vez que eso ocurra, un conflicto a gran escala será inevitable.
+
+—¿Quién se cree que es la figura central de esta facción?
+
+—El traficante de esclavos Randolph. Él es el hombre que respalda a Dexter, a quien mencionó antes, Embajador. El propio Dexter era originalmente un subordinado insignificante, pero de alguna manera se las arregló para congraciarse y ganarse el favor de Randolph.
+
+—¿Qué hay de la relación entre el momento en que Dexter empezó a gozar de favor y el momento en que los fondos de Randolph se volvieron abundantes?
+
+—Si existe una relación... no puedo decirlo con certeza, pero creo que fueron cercanos en el tiempo.
+
+Isabella, que había estado respondiendo con fluidez, mostró una ligera vacilación en ese punto, como si lo pensara antes de contestar. Al parecer, había visto a Dexter como uno más de los muchos parásitos que seguían a Randolph. De hecho, desde la perspectiva de Isabella, alguien como él parecería tener una capacidad limitada.
+
+Ahora bien... debo proceder con más cuidado a partir de aquí. Usando Magia de Viento para bloquear el sonido, continúo la conversación de modo que Sheila, fuera de la habitación, no pueda oír.
+
+—Tengo unas cuantas preguntas más—
+
+—Ah. A estas alturas, siéntete libre de preguntar lo que quieras. Adelante, no te cortes, pregunta.
+
+Le sonreí con ironía a Isabella, que parecía haberse cansado de mantener las apariencias, y procedí a hacer más preguntas, prestando especial atención a la cronología.
+
+Combinando el relato de Miriam con el de Isabella... la conclusión que surgió fue que Randolph ganó poder rápidamente después de que Dexter trajera los plantones.
+
+El problema es que... el momento en que Dexter trajo los plantones fue antes de que muriera el Maestro del Gremio. Y casi al mismo tiempo, los padres de Sheila también fallecieron.
+
+"Por cierto, ¿estaban los padres de Sheila vinculados al Gremio de Ladrones?"
+
+Ante mis palabras, Isabella miró de reojo hacia la puerta. Parece que todavía está preocupada por Sheila.
+
+"Estoy usando magia para evitar que el sonido se filtre".
+
+Al oír eso, Isabella se encogió ligeramente de hombros y respondió.
+
+"Eran los escoltas del Maestro del Gremio. Estaban en el carruaje con el Maestro cuando se despeñó por un barranco, y ese fue el final".
+
+…Ya veo.
+
+"Se nota con solo mirar a esa chica. Ambos eran muy hábiles. Se consideraba que ella había heredado su talento, y esa evaluación probablemente no era errónea, ¿verdad?"
+
+"No."
+
+"No puedes garantizar que algún idiota no intente utilizarla si permanece en el tumultuoso interior del Gremio. Incluso si no fuera así, estoy cuidando de la hija del anterior Maestro, ya ves. Tener a un grupo de niños trágicos todos juntos es un poco demasiado pintoresco y problemático".
+
+"Así que, más que del burdel... la alejaste del Gremio de Ladrones".
+
+"Sí. Y aun así regresa aquí por su cuenta... niña tonta. Ni siquiera le he contado los antecedentes de sus padres... ¿Es esto lo que llaman destino, me pregunto?"
+
+Isabella habló con pesar y dejó que su pipa humeara.
+
+…He aprendido casi todo lo que quería saber. Ahora solo es cuestión de reunir pruebas de acuerdo con el esquema que ha quedado claro.
+
++++
+
+# **190 – Plantones y Cacería**
+
+Tras terminar mi conversación con Isabella, dejé atrás el burdel —el Distrito Oeste—.
+
+Aunque necesitaba dirigirme al Castillo Real y tenía cosas que discutir con Sheila, mi primera prioridad era escoltar a Miriam al lugar en el Distrito Este que se convertiría en su tienda.
+
+Los aleros estaban bañados por la luz del sol. No era exactamente una casa grande, pero estaba ordenada y tenía un aire bastante agradable. Hmm. Si se convirtiera en una tienda, podría encajar con mis gustos.
+
+"Parece que será una buena tienda".
+
+"Gracias".
+
+Miriam inclinó la cabeza.
+
+"Y sobre el asunto del diseño... se me ocurrió esto. Estaba un poco desordenado, así que me disculpo por la demora en entregarlo".
+
+Saqué un medallón de piedra que había hecho con Magia de Tierra. Representaba a una sirena con alas, extendiendo su mano como si ofreciera un apretón de manos con una sonrisa amable. Al ser un logotipo, se sentía bastante estilizado.
+
+"…Ya veo. Buscando la amistad mutua, entonces".
+
+"Si parece haber algún problema, puedo pensarlo un poco más. ¿Qué te parece?"
+
+"No. Creo que es un buen diseño. Sería agradable exhibirlo como un letrero".
+
+"¿Un letrero? Entonces haré algo que pueda colgarse de los aleros".
+
+"¿De verdad? ¡Gracias!"
+
+Miriam inclinó la cabeza. Bueno, con el logotipo decidido...
+
+"Ashley, ¿ha pasado algo inusual?"
+
+"Nada hasta ahora".
+
+Les pregunté a Ashley e Irmhild, que estaban de guardia en la tienda, pero negaron con la cabeza.
+
+Mmm... Así que Dexter aún no ha movido ficha.
+
+—Miriam-san, ¿te quedarás aquí a partir de hoy?
+
+—Sí. Ya dejé mi alojamiento, así que planeo dormir aquí de ahora en adelante.
+
+—Entendido. Dados los asuntos con Randolph y Dexter, me gustaría apostar a algunas personas aquí por seguridad también. ¿Te parece bien? Me aseguraré de que la situación se calme pronto.
+
+Ante mis palabras, Miriam pareció algo apenada.
+
+—Me siento mal dependiendo tanto de ti... Si hay algo en lo que pueda ayudar, por favor dímelo.
+
+—Entendido. Dicho esto, esta es una tienda en la que yo también estoy involucrado, y es parte de mi trabajo. Así que, por favor, no te preocupes demasiado por ello.
+
+—Agradezco tu consideración.
+
+Quien le guarda rencor a Miriam es Dexter, no el Gremio de Ladrones en sí. Aun así, dudo que sea del tipo que hace tales distinciones, lo que lo convierte en un oponente problemático de tratar individualmente.
+
+—Bueno, entonces. Planeo ir al Castillo Real ahora... Movilizaré a Caduceus, así que Sheila, ¿podrías quedarte aquí por seguridad también?
+
+—Entendido.
+
+—Más tarde, tengo algunos asuntos del Gremio que discutir.
+
+—Mhm.
+
+Sheila asintió mientras me miraba fijamente.
+
+Luego me dirigí directamente al Castillo Real. Cuando me presenté en la Torre Norte, Rosemary estaba, como de costumbre, frente a un Documento Antiguo en su escritorio. Debía de estar descifrándolo.
+
+—Ah. Has venido.
+
+—Sí. Hay algo sobre lo que quería preguntar. Esto es un pequeño regalo.
+
+—No es... algodón, ¿verdad? Tiene un olor dulce.
+
+Cuando le entregué el algodón de azúcar, lo analizó con una expresión bastante seria.
+
+—¿Es esto... azúcar derretida e hilada en hebras como si fuera lana? Entre esto y esa bebida con burbujas que me enseñaste antes... se te ocurren cosas interesantes, ¿verdad?
+
+Y tenía razón. Bueno... supongo que este es el área de especialización de Rosemary. Rosemary pellizcó un trozo de algodón de azúcar con los dedos, se lo metió en la boca y compartió su impresión.
+
+—Se deshace con mucha facilidad. No me desagradan las cosas dulces, pero me dan ganas de tomar un té también.
+
+Así que nos trasladamos a la mesa, nos sentamos frente a frente, bebimos té y continuamos nuestra conversación.
+
+—Hoy no se trata de los temas habituales... quería preguntar sobre esto.
+
+Le mostré el dibujo del retoño que había recibido de Miriam. Rosemary se cubrió la boca con su abanico de plumas, miró fijamente el dibujo durante un rato y finalmente habló.
+
+—Siento que he visto esto en un documento antes, pero ¿tal vez no sea ese?
+
+Rosemary se levantó y trajo un libro.
+
+Comparó la información del papel con la del Documento Antiguo y asintió.
+
+"Tal como pensaba. Cola de Lanzababosas. La medicina hecha de su savia tiene propiedades analgésicas y alucinógenas. También tiene el efecto de hacer que uno olvide sus ansiedades. He oído que cierto grupo étnico minoritario también la usa en rituales... pero aquí dice que transmiten una advertencia oral de que no debe usarse indiscriminadamente porque si se usa demasiado, hay una reacción violenta cuando los efectos desaparecen".
+
+"¿Y si no dejan de usarla?"
+
+"Aquí se expresa como ser llevado por las hadas y nunca regresar. El veneno y la medicina son dos caras de la misma moneda".
+
+...Así que se trata de ese tipo de cosas, como era de esperar.
+
+"El hecho de que tengas algo como esto significa que... ¿hay alguien trayendo esto a Termwills, supongo?"
+
+"Voy a rastrearlos y hacerlos pedazos. Quería saber qué pasaría cuando crezca desde su estado de retoño. Sería un problema si no pudiera identificarlo".
+
+"...Entonces anotaré sus características para ti".
+
+Ya había obtenido información de Isabella sobre la base de Randolph y Dexter, así como sobre el barco propiedad de ambos. Ya había puesto en marcha a Caduceus.
+
+Todo lo que queda es localizar el sitio de cultivo y destruirlo. Idealmente, erradicar las raíces cultivadas de Cola de Lanzababosas. Sería preferible capturar a Randolph o Dexter vivos para extraer información sobre sus clientes y socios comerciales.
+
+Caduceus se encuentra actualmente en la mansión de Randolph, el objetivo principal. Isabella dijo que si terminamos siendo hostiles, deberíamos tener cuidado ya que parece haber reunido a gente adecuada para el trabajo sucio... pero en este caso, en realidad es mejor explorar los lugares fuertemente custodiados.
+
+"...Ya veo".
+
+La mansión de Randolph: bajo tierra en el jardín interior. Hay un canal de agua que conduce a ella, con un tragaluz arriba. Es como un invernadero. Plantas que coinciden con la información obtenida de Miriam y Rosemary.
+
+¿Todo un campo de Lanzababosas, eh? También descubrí una sección donde mantienen cautivos a esclavos. Naturalmente, este es un trato inapropiado incluso para esclavos por deuda. Realmente... están causando todo tipo de problemas.
+
+"¿Qué pasa?"
+
+"Nada. Siento las prisas, pero tengo una pista, así que tengo que ponerme en marcha. Primero, tengo que informar de esto".
+
+"¿Es así? Al igual que conmigo, veo que no das tiempo para recopilar información. Me gustaría discutir otros asuntos también, pero parece mejor priorizar ese".
+
+"Bueno... volveré pronto para escuchar sobre esos también".
+
+También tengo curiosidad por la información que puedo obtener de los dos magos silvatorianos.
+
+"—Y así, existe la posibilidad de que retoños como este estén siendo traídos a Termwills".
+
+Cuando informé sobre la Cola de Lanzababosas en el salón, el Rey Melvin puso mala cara.
+
+"Traficantes de esclavos y drogas que alteran la mente..."
+
+"Tengo una pista sobre los métodos de Randolph... pero no puedo revelar la fuente de la información en sí. Hay circunstancias con respecto a los orígenes del proveedor".
+
+"...Hmm. ¿Un residente del Distrito Oeste, entonces?"
+
+"Parece que ellos tampoco son un frente unido. Pido su indulgencia".
+
+"Entiendo".
+
+El rey Melvin esbozó una sonrisa irónica ante mis palabras. Cambió su forma de expresarse, pero parecía haber deducido que estaba relacionado con el Gremio de Ladrones.
+
+"Es una droga que el público no conoce mucho, pero ¿cómo se gestiona esto?"
+
+"Para la venta de nuevas drogas, se debe presentar una notificación y revelar su eficacia antes de comercializarlas. Por lo tanto, vender arbitrariamente una droga desconocida como esta es ilegal. Por supuesto, es probable que tal sustancia fuera prohibida incluso si se presentara la notificación. Dicho esto... si es un artículo que nunca hemos visto antes, la aplicación de la ley se vuelve difícil en ciertos aspectos..."
+
+...Ya veo. Así que no hay ningún vacío legal preparado donde cambiar ligeramente la composición lo haga permisible en cuanto a su distribución.
+
+"Me gustaría movilizar a los soldados, pero..."
+
+"¿Hay algún problema?"
+
+"Tengo una idea sobre esta medicina hecha de Cola de Lanzababosas. Hay historias de una droga similar circulando en un país lejano".
+
+"...Ah. Así que es difícil movilizar abiertamente a la Orden de Caballeros bajo el pretexto de las drogas y realizar arrestos públicamente".
+
+"Exacto. Cortar el suministro es un asunto urgente, sin duda... pero pensar en las comunicaciones posteriores y las compensaciones me da dolor de cabeza".
+
+¿La razón por la que Randolph no la distribuye a nivel nacional es porque si la manejara en Verdgar, sería denunciado por facciones rivales? Probablemente ahí es donde entra en juego su título como comerciante de intercambio.
+
+Pero no tengo intención de ser lo suficientemente indulgente como para pasarlo por alto solo porque sabemos que está ahí.
+
+"Incluso desde el ángulo de su conexión con los traficantes de esclavos, Randolph tiene problemas. Si se trata de mantener las relaciones con el Laberinto—"
+
+"Mmm... Esa sería una razón para que el Embajador del Otro Mundo actúe".
+
+Terminé de informar al rey Melvin y obtuve su permiso. Me puse en contacto con mis compañeros a través del dispositivo de comunicación y, de camino a la mansión de Randolph, les conté lo que había averiguado sobre la Cola de Lanzababosas.
+
+"Bueno... las drogas como estas son simplemente desagradables por naturaleza. Es un tipo de malicia diferente a la de las pociones mágicas".
+
+Y así, de alguna manera, se convirtió en una charla sobre los peligros de las sustancias estupefacientes.
+
+"Ya veo…"
+
+"No es que la planta en sí sea malvada. El hecho de que Miriam-san no supiera de ella probablemente significa que es rara. Y si no es muy conocida, es más conveniente que siga siendo así. Así que, por ahora... nuestra política es destruir todas las plantas en Termwills".
+
+"Entendido".
+
+Como todos íbamos a asaltar el lugar y arrasar con todo, Miriam terminó acompañándonos. La tienda era solo el edificio; el interior y los muebles aún no estaban instalados. En el peor de los casos, si nos atacaban mientras estábamos fuera, podría reconstruirla usando Construcción Mágica.
+
+Debido a que estábamos en estado de combate, mi casa estaba cerrada desde la verja hasta la puerta, y todos podían evacuar al sótano. De esa manera, si alguna vez irrumpían en mi casa, podrían retirarse a la Aldea del Laberinto en cualquier momento.
+
+"...Sheila".
+
+—¿Qué?
+
+"Quiero hablar sobre los padres de Sheila. ¿Está bien?"
+
+Sheila me miró y asintió en silencio.
+
+"Sheila, ¿sabes qué tipo de trabajo hacían ellos dos?"
+
+"...No lo sé. No me hablaban de su trabajo. Aunque les preguntara, no me decían nada. Pero... pensándolo ahora, me pregunto si era porque no era un trabajo normal. Como, el Gremio de Ladrones o algo así".
+
+Ya veo... Así que la propia Sheila tiene alguna idea de que sus padres pertenecían al inframundo, hasta cierto punto.
+
+Aunque probablemente no se imagine que estaban al nivel de guardaespaldas del Maestro del Gremio...
+
+"Me dijeron que un día, mi padre y mi madre murieron en un accidente de carruaje. Isabella y los demás nunca me contaron los detalles, así que dejé de preguntar, pero..."
+
+Sheila cerró los ojos, hizo una pausa por un momento y luego me miró directamente.
+
+"Fuera lo que fuese, siempre quise saberlo. Si está relacionado con lo que está pasando ahora, con mayor razón. Si Theodore escuchó algo, quiero que me lo cuentes".
+
+...Sí, tienes razón.
+
+"—Vamos a investigar eso ahora mismo".
+
+Le conté sobre el trabajo de los padres de Sheila que había escuchado de Isabella.
+
+"Mirando la información desde una perspectiva general y especulando... Randolph podría haber estado involucrado en el accidente de los padres de Sheila. El momento en que obtuvo los plantones es demasiado cercano".
+
+Ante mis palabras, los ojos de Sheila se abrieron de par en par.
+
+Obtuvo los plantones de Lanzababosas de Dexter, y las ambiciones de Randolph crecieron. Así que saboteó el carruaje del anterior Maestro del Gremio, que estaba unificando el Gremio de Ladrones, y lo mató. Ese es el trasfondo.
+
+"Esto sigue siendo solo una especulación por mi parte. No lo sabremos con certeza a menos que presionemos a Randolph, pero—si ese es el caso, apoyo la venganza y también ayudaré".
+
+"...Está bien".
+
+Sheila asintió en silencio. Al mirar a mis compañeros, todos estaban asintiendo también.
+
+Creo que lo de sus padres es algo que Sheila quiere y debe saber. Dicho esto, incluso al contárselo, tengo que tener cuidado de que no salga corriendo sola.
+
+Por eso me aseguré de que no se preguntara en casa de Isabella... y la razón por la que puedo decírselo ahora es porque todos vamos juntos de camino a casa de Randolph.
+
+Así que, de aquí en adelante, no es una batalla. Es simplemente cazar algunas plagas. No actuar solos, sino aplastarlos a fondo y con seguridad, todos juntos. Me niego rotundamente a permitir una situación en la que suframos pérdidas por los contraataques de Randolph.
+
+Pues bien—llegamos cerca de la mansión de Randolph en el Distrito Oeste. Había escuchado su descripción de Isabella y confirmé que Randolph estaba en casa.
+
+"¿Cuál es el plan?"
+
+"Podríamos irrumpir de frente, pero... si escapan y se llevan el Lanzababosas con ellos, o si quedan remanentes, eso sería problemático. Si vamos a hacer esto, tiene que ser a fondo, sin dejar ni uno solo".
+
+Puse mis manos en el suelo. Concentré mi mente. Sin realizar circulación, solo expandiendo el rango y el alcance de mi Magia de Tierra tanto como fuera posible. Esta preparación lleva tiempo. No puedo hacerlo una vez que el combate ha comenzado. Precisamente por eso, este es el movimiento inicial.
+
+La estructura del edificio, el tamaño del terreno—ya los tengo captados.
+
+"Vamos".
+
+Desde donde mis manos tocaron, muros de piedra se hincharon, envolviendo por completo la propiedad de Randolph. En un instante, la mansión de Randolph quedó aislada del mundo exterior.
+
+Ahora son ratas en una trampa. Muy bien, entonces... vamos a hacerlos pedazos.
+
++++
+
+# **191 – Asalto**
+
+"¡¿Qué está pasando?! ¡¿Qué ocurre?!"
+
+"¡Traigan luces!"
+
+Atravesamos el caótico patio de la mansión con facilidad. Como estamos usando Magia de Visión Nocturna, podemos ver los movimientos del enemigo perfectamente.
+
+"Absorción de Llama."
+
+Las llamas de las antorchas y linternas traídas a toda prisa estaban siendo absorbidas por el Contrahechizo de Llama. Los alrededores volvieron a la oscuridad, impidiéndoles confiar en su superioridad numérica para atacarnos.
+
+Pusimos a dormir o derribamos y retuvimos a aquellos que ni siquiera podían establecer una postura de defensa adecuada. Pero más que a los demás, nuestro objetivo principal era Randolph. Yo también sabía dónde estaba.
+
+"Según Isabella, el propio Randolph es un combatiente bastante capaz. Es reservado, así que no lo demuestra a menudo, pero... ¡ahí está!"
+
+Randolph estaba intentando escapar al sótano a través de una puerta oculta en el patio junto con sus guardias.
+
+"¡¿Quién diablos son ustedes?! ¡Saben quién soy, ¿verdad?!"
+
+Cuando Randolph nos divisó a lo lejos, montó en cólera.
+
+No llevaba ninguna fuente de luz. Lo que significa que debe haber un mago en su grupo usando también Magia de Visión Nocturna.
+
+"—Deberías reconocer mi rostro y saber exactamente por qué estoy aquí."
+
+Sheila se quitó la capucha, mostrando su rostro a Randolph. Él intentó mirarla con furia, pero tras observar fijamente su cara, sus ojos se abrieron de par en par.
+
+"Tú... la hija de Bartolo y Lucia—"
+
+Murmuró con expresión atónita, luego cerró la boca de golpe como si se diera cuenta de su error.
+
+"No me digas que no sabes nada sobre el incidente del carruaje."
+
+Esta era la trampa de Sheila. Un ataque psicológico. Al escuchar sus palabras, Randolph —quizás dándose cuenta de que no podía ocultar lo que su actitud ya había revelado— resopló desafiante.
+
+"¡Ja! Así que ahora vienes a desenterrar esa historia mohosa y vieja. ¡Después de haber llegado tan lejos, no creas que saldrás de aquí con vida!"
+
+Rugió de esa manera. El pelaje de las orejas y la cola de Sheila se erizó bruscamente.
+
+—La razón que desencadenaría el futuro conflicto también fue así. Debería haberse llamado "traición contra el antiguo Maestro del Gremio". Si bien ignorar las reglas podría interpretarse como traición, y esos elementos probablemente sirvieron como base para la rebelión... el detonante real del conflicto fue probablemente diferente.
+
+Debido a la naturaleza de la organización del Gremio de Ladrones, rara vez surgían nombres específicos incluso dentro de BFO. Pero ya fuera la hija del antiguo Maestro del Gremio o Isabella. O tal vez—Sheila, una de ellas notó las acciones de Randolph. Ese fue probablemente el punto de partida.
+
+Esta vez, la cautela hacia Dexter sirvió como el comienzo, pero una vez que las cosas empezaron a rodar, incluso Sheila acabaría por descubrirlo. Después de eso, solo era cuestión de dejar que las cosas siguieran su curso.
+
+No sabía quiénes perderían la vida en el conflicto. Ambos bandos sufrirían numerosas bajas, y el bando del antiguo Maestro del Gremio acabaría ganando. Eso era todo lo que se podía discernir desde fuera. Aunque no sabía si Sheila estaba entre ellos, definitivamente se vería involucrada. Por lo tanto, no tenía intención de pasarlo por alto.
+
+—Randolph es mío—,
+
+—Entendido. Te daré apoyo—.
+
+dijo Sheila. La miré a los ojos y asentí.
+
+Si ella tenía la fuerza para hacerlo con sus propias manos, comprendía ese sentimiento y quería concedérselo. De pie hombro con hombro con Sheila, vertí poder mágico en Ouroboros y lo hice girar como un molino de viento. El zumbido y el resplandor del poder mágico llenándose, junto con la voz jubilosa de Ouroboros, resonaron en la oscuridad.
+
+Circulación. Refinando el poder mágico. El resplandor de Ouroboros se intensificó aún más.
+
+Sheila y yo cargamos casi simultáneamente. Tomando eso como señal, nuestros compañeros también se movieron.
+
+Una Piedra Mágica estaba incrustada en la empuñadura de la espada larga de Randolph. Tan pronto como apareció el brillo del Círculo Mágico, una luz mágica flotó para iluminar los alrededores.
+
+—¡Él también usa magia!—
+
+Sheila y yo nos separamos a izquierda y derecha, saltando hacia los lados. Un momento después, una Bola de Fuego lanzada desde la espada de Randolph explotó donde habíamos estado parados. Entre la luz mágica y la Bola de Fuego... así que primero quería asegurar la visión de sus aliados. Qué astuto. No era un ejecutivo del Gremio de Ladrones por nada.
+
+—¡Maldito mocoso!—
+
+Un hombre gigante que empuñaba un hacha de batalla cargó contra mí.
+
+"¡Muévete!"
+
+Usé a Ouroboros para desviar el hacha que descendía, luego invertí mi bastón para asestar un golpe dirigido a su brazo. Sentí cómo se rompía el hueso. Pero el hombre gigante no mostró preocupación, balanceando con fuerza su hacha de batalla hacia arriba desde abajo. Moví mi cuerpo medio paso lateralmente para esquivarlo.
+
+—¡No está funcionando!—
+
+El hombre se rió mientras balanceaba su hacha de batalla con una sola mano. —Drogas. Ya fuera por Slugthrow o alguna otra sustancia. No sentía dolor y mostraba una fuerza bruta. Pero qué más da.
+
+—Tramplethorn—.
+
+—¿¡Qu-qué!?—
+
+Enredado por la magia de madera Tramplethorn, quedó envuelto en una esfera de espinas con solo su cabeza fuera.
+
+Esta no era una magia que pudiera superarse con mera fuerza. Lancé Levitación sobre él y lo envié volando, luego estrellé la masa de espinas contra el grupo que corría hacia mí.
+
+—Algunos de ellos no sienten dolor. Trátenlos como monstruos de ahora en adelante—.
+
+—¡Sí!
+
+Llegaron respuestas de Grace y los demás. Como pauta de acción, era simple y clara. Sin contar con que retrocedieran por la percepción del dolor, lanzaríamos ataques destinados a la incapacitación.
+
+Una Nube de Sueño brotó de las manos de Ashley, envolviendo al grupo enemigo. Entonces, como si les hubieran cortado los hilos, se desplomaron en montones. El hielo se extendió desde los pies de Lavigne, congelando a las personas dormidas junto con su entorno y pegándolas al suelo.
+
+Las flechas de Irmhild, habiendo tomado la posición elevada, fueron succionadas hacia abajo, atravesando los empeines de los enemigos y clavándolos al suelo, mientras el Platillo de Marlene volaba y asestaba un poderoso golpe en sus cabezas, segando su conciencia.
+
+En cuanto a Grace, ella no perdía en las pruebas de fuerza, así que los derribaba al suelo con calma y les destrozaba los huesos de las piernas.
+
+—Caigan.
+
+Las figuras de aquellos que entraron en el Círculo Mágico desplegado alrededor de Claudia fueron borradas.
+
+Los hombres que habían sido teletransportados al aire gritaban mientras caían. ...Ya veo. Así que el aire sobre la ciudad también es parte del Laberinto.
+
+Miriam también estaba bien. Contra oponentes que no mostraban miedo a su látigo, les enredaba las piernas para derribarlos y golpeaba el dorso de sus manos para privarlos de su capacidad de combate. También había tiradores, pero las flechas que volaban hacia ellas fueron todas destrozadas por el cuerno de Seraphina.
+
+"Molestos".
+
+Aunque eran miembros del Gremio que habían ido tras Sheila, ante el destello del brillo de la Espada de Perla, sus tendones fueron cortados y rodaron por el suelo.
+
+"Onda Magnética".
+
+"¡¿Whaaaugh?!"
+
+Lancé magnetismo hacia el hacha de batalla del hombre atrapado en Tramplethorn, y luego lo hice girar. Mejor aprovechar al máximo a este hombre también. Cargué hacia los guardias de Randolph.
+
+Cuando lo hice girar como si segara con una masa de espinas, muchos de ellos probablemente no estaban usando drogas, ya que los gritos surgieron de los hombres ensangrentados.
+
+"¡Tch! ¡Monstruo!"
+
+Randolph chasqueó la lengua y maldijo.
+
+"¡Tu oponente soy yo!"
+
+Sheila cargó contra Randolph. Mientras él bloqueaba el tajo de su espada recta, la patada de Randolph subió con fuerza. Sheila inclinó la parte superior de su cuerpo y voló hacia atrás mientras giraba. Una cuchilla se extendió desde la punta del pie de Randolph. Magia, armas ocultas... tenía un arsenal considerable.
+
+Como era de esperar, Randolph siguió el ritmo de los movimientos de Sheila mientras ella volaba por el aire. ¿Estaba controlando él mismo el Escudo desplegado a sus pies? Si podía usar tanto la espada como la magia, no había razón para que no lo hubiera aprendido.
+
+"¡Kuku, buenos instintos!"
+
+Sheila rebotó en el aire como si lo usara de apoyo y cargó. Randolph bloqueó la espada de Sheila en el aire. Usando su peso superior, la lanzó con fuerza mientras liberaba simultáneamente una hoja de Espíritu de Lucha, y luego disparó una Bola de Fuego con tiro de desviación para cubrir sus rutas de evasión.
+
+Sheila bloqueó la hoja de Espíritu de Lucha con su Escudo mágico y avanzó por la distancia más corta. Si esquivaba y recibía la Bola de Fuego, la explosión obstruiría su visión.
+
+"¡Impresionante! ¡¿Heredaste eso de tus padres?!"
+
+"¡Tú...!"
+
+Sheila mostró su ira ante la sonrisa burlona de Randolph.
+
+"Nah, fue un trabajo duro. ¡Tus padres también tenían instintos anormalmente agudos! Después de todo, ¡si fallaba, el hedor me delataría! ¡Después de pensar en cómo matarlos, hice que plantaran un Gólem debajo del carruaje! ¡Así!"
+
+Un pequeño gólem fue creado y cargó hacia Sheila. La Espada de Perla, envuelta en Espíritu de Lucha, partió al gólem por la mitad. Escondido tras él, Randolph lanzó una daga. Mientras Sheila la esquivaba inclinando la cabeza, Randolph descargó su espada desde una postura elevada por encima de su cabeza.
+
+El agudo sonido del choque de espadas resonó. Juzgando quizás que no podría bloquearlo con una sola mano, Sheila abandonó su postura de una sola espada y lo recibió con ambas. Este no era el movimiento habitual de Sheila; lo normal en ella era desviar o evadir.
+
+Esta era la treta de Randolph. Escuchar solo envenenaría sus oídos.
+
+—Seraphina.
+
+—¡Mmh!
+
+Seraphina, comprendiendo mi intención, robó la voz de Randolph. Randolph intentó decir algo más mientras seguía sonriendo, pero no salió ningún sonido.
+
+Seraphina estaba recolectando las palabras de Randolph. Inútil que me mirara con odio.
+
+—Si vale la pena escucharlo, se lo comunicaré yo mismo.
+
+La atención de Randolph se desvió por apenas un instante. Pero para entonces, Sheila ya se estaba moviendo. Se deslizó a lo largo de la hoja de la espada de Randolph mientras él intentaba presionar, y luego se alejó dando una voltereta lateral como agua que fluye. Su capa se activó, haciendo que su figura se desvaneciera.
+
+La Espada de Perla salió volando de debajo de la capa de Sheila, reluciendo. La Espada de Perla fue lanzada apuntando a sus pies. Aunque Randolph mostró una expresión de asombro, reaccionó incluso a eso, intentando saltar hacia atrás para evitarla. Pero—.
+
+—No dejaré que escapes.
+
+Un Hilo Pegajoso estaba conectado al pomo de la Espada de Perla. La hoja, balanceándose como un látigo, trazó un gran arco, cortando el muslo de Randolph.
+
+Si perdía su movilidad contra Sheila, el asunto estaba prácticamente decidido.
+
+—¡Ya es suficiente!
+
+Lo que detuvo a Sheila antes de que pudiera cerrar la distancia de un solo golpe fue un guardia que sujetaba a una de las sirvientas de la mansión por la espalda, con una daga presionada contra su garganta.
+
+—¡Malditos! ¡Si hacen cualquier movimiento extraño, mataré a esta mujer!
+
+Para evitar que las personas capturadas fueran usadas de esta manera... hice que Caduceus causara estragos en el sótano simultáneamente con la captura de Randolph.
+
+Aun así, usar a sus propios sirvientes sin vacilar, ¿eh? Independientemente de cuán efectivo fuera el rehén, debía de estar bastante acorralado.
+
+Pero en realidad, Sheila me miró por un solo instante y dejó de moverse. No podía usar el Círculo Mágico. Incluso un hechizo sin cántico sería una apuesta desfavorable. No había mucho tiempo para pensar.
+
+Randolph mostró los dientes en una mueca y trató de acercarse a Sheila con su espada en una mano. Con su mano libre, incluso estaba usando Magia Curativa. Al ser magia de bajo rango, tardaría tiempo en sanar—.
+
+—¡Oigan! ¡Suelten sus armas!
+
+Ante las palabras del captor, la expresión de Sheila se ensombreció en silencio mientras soltaba la Espada de Perla.
+
+Había una forma. Por un momento, miré a Irmhild. Había refinado suficiente poder mágico dentro de mi cuerpo para manejar la mayoría de las situaciones. Desplegué una Fórmula de Hechizo basada en eso. La Fórmula Interna usando mi propio cuerpo como catalizador, tal como hice también con Gardinis.
+
+Manejé dos fórmulas de hechizo. Dejando el Cuerpo Espejismo en su lugar, usé Magia de Teletransportación para situarme detrás de él. Usando mi propio cuerpo como catalizador. Olvidando el dolor del retroceso. Simultáneamente a la teletransportación, asesté un golpe de impacto desde atrás. En un solo movimiento, derribé a Ouroboros y le rompí la clavícula, para luego patearlo de lleno en la entrepierna.
+
+—¡Gwaaaagh!
+
+El cuerpo del hombre mostró un momentáneo movimiento de rebote en todas direcciones antes de desplomarse, soltando a la sirvienta de su agarre. La sirvienta gritó mientras huía.
+
+Randolph, que había estado alzando su espada hacia Sheila, se quedó helado al mirarme. Tenía la boca abierta como un pez anzuelado, pero su voz seguía sellada. Bueno, podía imaginar lo que intentaba decir.
+
+—Podría escuchar las excusas del perdedor.
+
+En ese momento de retraso, la flecha de Irmhild atravesó la mano alzada de Randolph.
+
+Los ojos de Randolph se abrieron de par en par por la agonía mientras intentaba usar Levitación para una huida a alta velocidad. Sheila tampoco era de las que dejaban pasar movimientos tan descuidados. Persiguiéndolo con una velocidad similar al viento, rebanó a Randolph en pedazos con la Daga del Jabalí de Espada que sostenía en ambas manos mientras se cruzaban.
+
+"¿¡Guh!?"
+
+La voz de Randolph regresó. Lo que brotó de su boca fue un grito. Una niebla de sangre se esparció. Aunque le cortó los tendones de las extremidades para anular su capacidad de combate, no le había infligido ninguna herida mortal.
+
+—¡Theodore!
+
+Una señal de Sheila. Si usa magia... para capturarlo vivo, primero necesitamos arrebatarle la conciencia.
+
+—Duerme.
+
+Usando Onda Magnética para atraer la masa de espinas hacia mí, salté con la fuerza combinada de Nemea y Capella. Saltando, alcanzándolo. Directamente sobre Randolph. Posicionando la masa de espinas para cubrirlo. Desplegando un Escudo directamente arriba. Pateándolo hacia abajo para un descenso a alta velocidad. Naturalmente, la Bola de Espinas fue arrastrada hacia abajo vigorosamente por las líneas magnéticas. Es decir, desde directamente encima de Randolph hacia el suelo.
+
+—¡Espe... ¡ghebh!
+
+Randolph recibió el impacto de la Bola de Espinas presionando todo su cuerpo y soltó un grito extraño antes de ser estampado contra el suelo junto con ella.
+
++++
+
+# **192 – Regreso a casa al atardecer**
+
+Mientras atábamos a los miembros restantes uno tras otro y los dejábamos esparcidos por el patio, Randolph pareció recuperar el conocimiento.
+
+Tras mirarme con ojos hostiles, puso una expresión sutil. Debió darse cuenta de que su magia había sido sellada.
+
+—Tú... bastardo...
+
+Randolph me fulminó con la mirada como si quisiera maldecirme hasta la muerte.
+
+—Solo quiero confirmar una cosa. Sobre los padres de Sheila. Lo que dijiste antes no era mentira, ¿verdad? ¿Hubo otros perpetradores?
+
+—¿Así que por eso me mantuviste con vida? Qué tonto tan compasivo.
+
+Randolph sonrió con suficiencia. Dado que también habíamos capturado vivos a sus subordinados, podríamos descubrirlo todo sobre el tráfico de esclavos y los asuntos relacionados con las drogas. Pero respecto a las conexiones con el Gremio de Ladrones, especialmente lo concerniente al antiguo Maestro del Gremio, no teníamos más remedio que escucharlo de él.
+
+El interrogatorio mediante la Inquisición Mágica sería difícil dada la posición de Sheila dentro del Gremio de Ladrones.
+
+—Sí, hubo otros involucrados en aquel entonces. Si quieres descubrir quiénes son, no puedes simplemente entregarme, ¿verdad?
+
+Randolph parecía estar calculando esto, pero yo ya había previsto que intentaría prolongar su vida con esa palabrería. ¿De verdad creía que le dejaría salirse con la suya con una estrategia de supervivencia tan sucia?
+
+—Fortok. ¿Qué opinas?
+
+—... No está mintiendo.
+
+Fortok el Carbúnculo, que se había estado escondiendo en mi bolsillo, se retorció antes de responder con una voz tenue. Cuando partimos, se había ofrecido a cooperar.
+
+—Eso es lo que dice. No tengo nada más que preguntarte.
+
+"¿Eh?"
+
+Randolph puso una expresión de tonto, pero al momento siguiente, Sheila lo golpeó en el cuello con la empuñadura de su Espada de Perla, dejándolo inconsciente de nuevo.
+
+—... Bueno, ya que no puede resistirse más. De aquí en adelante, a quien se lo confiemos probablemente dará igual... pero considerando la posición de Theodore, se lo dejaré a él.
+
+Cuando nuestras miradas se cruzaron, Sheila dijo eso.
+
+A quien se lo confiemos. Si lo entregamos al país, será juzgado, y si lo entregamos al Gremio de Ladrones, ellos saldarán la cuenta.
+
+—... Entendido. Apurémonos con el resto de la limpieza.
+
+—Mm.
+
+Aunque el sótano había sido asegurado, todavía teníamos que deshacernos de las colas de Slugthrow.
+
+Las personas que habían estado encarceladas bajo tierra esperaban en silencio en el patio, sabiendo que podían escapar. Aunque parecían algo inquietos al estar rodeados por muros de piedra, muchos se tomaban de las manos con expresiones de alivio. Elfos, enanos. E incluso había algunos con apariencia de monstruos.
+
+—¿Es eso... la droga?
+
+Preguntó Grace.
+
+—Eso parece. Solo con mirarlo, no puedo decir qué es.
+
+En mi mano había una masa de savia, de un verde translúcido.
+
+Tenía una textura como la del ámbar convertida en un verde vívido. Por lo que vi de las instalaciones experimentales subterráneas, parecían procesarla aquí, convirtiéndola en polvo antes de su uso.
+
+Pero... en este estado, al menos no parece la materia prima de una droga. Probablemente pasaría la vigilancia fácilmente. Si la llevaran al lugar en este estado y la pulverizaran en el punto de venta, sería difícil identificarla como la misma cosa, ¿no?
+
+Guardamos solo una planta de Slugthrow del sótano como evidencia para presentar.
+
+—¿Qué hay del resto?
+
+—Petrifícalas todas.
+
+Fui lanzando magia de petrificación sobre las colas de Slugthrow. Teníamos que asegurarnos de que no pudieran ser utilizadas. Quemarlas también funcionaría, pero me preocupa que el humo pueda ser peligroso.
+
+—¿Qué harás después de esto?
+
+—Ya que hemos hecho algo a tan gran escala, se supone que los soldados vendrán corriendo.
+
+De esa manera, encontrarían a las personas encarceladas y capturarían a esos tipos. En cuanto a la eliminación de las colas de Slugthrow, supongo que le pasaremos el testigo al Rey Melvin.
+
+Dexter... no parecía estar aquí, pero ese tipo probablemente será perseguido tanto por las autoridades como por el Gremio de Ladrones de ahora en adelante.
+
+Tras derribar los muros de piedra y esperar a que los soldados irrumpieran, nos retiramos… pero mi reencuentro con Dexter ocurrió sorprendentemente pronto.
+
+Fui a llevar a Miriam de vuelta a su tienda, pero Sheila dijo que había oído voces en el callejón de atrás, así que cuando me asomé… allí estaban Dexter y su grupo, e Isabella y el suyo.
+
+Bueno, esto… parecía que los compañeros de Isabella estaban reteniendo a Dexter y a su grupo…
+
+"—¿Quién anda ahí? Salid de una vez".
+
+Isabella pareció notar nuestra presencia y nos llamó así. Cuando me mostré, puso una expresión algo desconcertada.
+
+"¡M-Miriam! ¡¿Y-y hasta el Embajador?! ¡P-por favor, decidles que es un malentendido! ¡Estos tipos se han equivocado! Yo solo… sí. ¡Solo venía a enmendar las cosas…!"
+
+Cuando Dexter nos reconoció, dijo eso. Miriam y yo intercambiamos miradas. ¿Qué demonios está pasando?
+
+"—¿Cuál es la situación aquí?"
+
+"Bueno, ya ves. Nosotros tampoco esperábamos encontraros aquí…"
+
+Isabella se encogió de hombros. Al comprender que yo conocía a Isabella, la expresión de Dexter se tornó en desesperación.
+
+Isabella no llevaba el vestido que traía cuando nos vimos en el distrito oeste, sino un equipo de cuero que parecía fácil de mover. Este debía de ser su equipo al estilo del Gremio de Ladrones.
+
+"Después de nuestra charla, algunas cosas no cuadraban, así que investigué un poco y resultó que Dexter estaba reuniendo a sus antiguos camaradas y moviendo hilos. Como intentaba entrar en esta casa armado… pensé que mejor lo sacaba a rastras para interrogarlo sobre varias cosas".
+
+…Así que intentaba emboscar a Miriam en su tienda. Y por el contenido de las preguntas que le hice, Isabella debió de sospechar algo y estaba buscando a Dexter para interrogarlo.
+
+Ciertamente… para intimidar a alguien y obtener información, esta situación le venía de perlas a Isabella, pero el propio Dexter debió de librarse de mi redada por un margen muy estrecho…
+
+"Jefa. Este tipo llevaba esto encima".
+
+"¡Ah! ¡Eso es!"
+
+"¿Mmm?"
+
+Cuando Isabella comprobó el contenido de la bolsa, frunció el ceño.
+
+"Probablemente sepas qué es eso, ¿verdad?"
+
+Me lanzaron una bolsa de cuero. Al abrirla, vi que dentro había semillas de plantas.
+
+…Son semillas de cola de lanzababosas. Así que este tipo las sacó de allí.
+
+"Esto es una prueba. ¿Podemos quedarnos con su custodia?"
+
+"Bueno, claro, supongo".
+
+Al oír nuestro intercambio, Dexter gritó.
+
+"¡M-malditos! ¡No creáis que os saldréis con la suya haciéndome esto! ¡Esperad a que Randolph se entere de esto…!"
+
+"Ah, ya nos encargamos de ese tipo hace un rato".
+
+"—¿Eh?"
+
+Dexter puso una cara de tonto. Como estaba ocupado aquí, probablemente no sabía nada del alboroto en el distrito oeste. Incluso cuando se lo dijeron, no parecía comprenderlo.
+
+Aun así, ¿qué planeaba hacer con esas semillas que sacó?
+
+Randolph parecía haber sido muy cuidadoso con el ocultamiento… no debería haber permitido una extracción tan descuidada. Si estaba esperando para emboscar a Miriam con las semillas, y además conocía mi identidad…
+
+"...No estarías planeando secuestrar a Miriam-san y huir de Termwills, ¿verdad? ¿Y te atreves a mencionar el nombre de Randolph?"
+
+Cuando le dije esto a Dexter, el color desapareció visiblemente de su rostro. Tanto Isabella como Miriam parecían exasperadas.
+
+Lo confirmaré debidamente más tarde, pero probablemente ni siquiera necesite preguntarle a Fortok la verdad.
+
+Si investigas los movimientos de Miriam, probablemente podrías rastrear mi identidad y la compra de la tienda. Eso significa que podrías deducir que el Embajador del Otro Mundo estaba intentando abrir un negocio.
+
+Si me convierto en el respaldo, incluso si el Gremio de Ladrones está detrás, no podrán hacer ningún movimiento de ahora en adelante. Así que, aunque causara problemas, si huía al extranjero, mi identidad no importaría.
+
+Aun así, no tiene remedio, o cómo debería decirlo. Traicionó a Randolph, quien lo había acogido bajo su protección, y planeó llevarse solo el dinero y las semillas para empezar de nuevo en una tierra nueva. La razón por la que está tan bien preparado podría ser porque ya tenía un plan para escapar al extranjero y volverse independiente.
+
+Bueno. El problema es... qué hacer con este tipo...
+
+"...Sobre eso de que derrotaste a Randolph"
+
+preguntó Isabella.
+
+"Es cierto. Ha causado un gran revuelo en el distrito oeste".
+
+"Ya veo... Entonces te entregaré a Dexter".
+
+"¿Está bien así?"
+
+Debería haber algún tipo de ajuste de cuentas, ¿no? Bueno, si hablamos de eso, Randolph también.
+
+“Though I’ve already incurred a big debt from you. I need to ==return== at least some ==of== what I owe. We’re just good citizens who caught some petty thieves ==return== handed them over.”
+
+Isabella sacudió la cabeza mientras se pasaba la mano por el cabello.
+
+"Sinceramente, si Randolph ha sido derrotado, tenemos demasiado que hacer como para molestarnos con peces chicos".
+
+"Entendido. Nos haremos cargo de estos tipos".
+
+Incluso si no es el enemigo directo de Sheila, fue una causa indirecta. Miré a Sheila, pero ella se encogió de hombros y sacudió la cabeza.
+
+Ya veo. Entonces terminemos con esto rápido. Me puse en contacto con Mercedes mediante el dispositivo de comunicación. No debería haber ningún problema en tratar a este tipo como uno de los cómplices de Randolph.
+
+"...Dijiste que debería aprovechar la situación, pero una deuda sigue siendo una deuda. Puede que vuelva en otro momento para expresar mi gratitud adecuadamente".
+
+"Entendido".
+
+Isabella probablemente no sepa que Randolph era el enemigo del anterior Maestro del Gremio... pero la información podría llegarle eventualmente. Debido a mi posición, necesito marcar un límite, pero si es algo ajeno a los asuntos del Gremio, no me importa. Además, esa conversación también le incumbe a Sheila.
+
+Isabella y su grupo ataron rápidamente a Dexter y a los demás con cuerdas antes de marcharse.
+
+"Bueno, ¿regresamos después de entregar a estos tipos?"
+
+Sheila asintió.
+
+"...Vaya, vaya. Ha sido bastante agitado, pero me esforzaré para abrir mi tienda pronto también".
+
+"Así es. Hagamos que sea una buena tienda".
+
+Prometí volver a ver a Miriam.
+
+Tras entregar a Dexter y su grupo a la Orden de Caballeros que había acudido al lugar, finalmente emprendimos el camino a casa.
+
+Ya era el crepúsculo. El cielo estaba rojo.
+
+"...Estoy cansada. Quiero sumergirme en el baño".
+
+Sheila miró hacia la puesta de sol y entrecerró los ojos. Quizás quería algo de tiempo a solas.
+
+Sí. Después de que use ese tiempo para poner en orden sus sentimientos, pasemos todos un tiempo juntos, con calma y en paz.
+
+Irmhild tomó la mano de Sheila.
+
+—Vámonos a casa, Sheila-chan.
+
+—...Mm. Irmhild. Quiero volver a escucharte tocar el laúd.
+
+—Está bien. Cuando quieras.
+
+De esa manera, ambas intercambiaron sonrisas.
+
+—A todos... gracias por ayudarme.
+
+Entonces Sheila nos hizo una reverencia. Tanto yo como los demás sonreímos y asentimos en silencio.
+
++++
+
+# **193 – Las circunstancias de la Familia Real**
+
+Parece que Miriam está gestionando con energía los preparativos para la apertura de la tienda, comprando y trayendo los artículos necesarios, así que debería estar lista pronto.
+
+Estaba siguiendo con mi entrenamiento habitual, pero también quería darle a Sheila algo de tiempo para que se asentara.
+
+Así que el entrenamiento de hoy queda cancelado. Decidí dirigirme al Castillo Real para recibir varias actualizaciones del Rey Melvin y de Rosemary.
+
+Primero, cuando fui a solicitar una audiencia con el Rey Melvin, me dijeron que estaba recibiendo invitados y que no tendría tiempo por un rato.
+
+En ese caso, probablemente debería hablar primero con Rosemary.
+
+Les dije que volvería más tarde para solicitar otra audiencia, y una doncella me despidió con una reverencia antes de dirigirme a la Torre Norte. Subiendo la torre en la Piedra Flotante, aparecí en la habitación de Rosemary.
+
+—¿Se ha resuelto el problema?
+
+Esas fueron las primeras palabras que salieron de la boca de Rosemary al verme.
+
+—Por ahora. Aunque la ciudad podría experimentar algunos disturbios.
+
+—Aquellos que manejan ese tipo de droga... deben estar conectados con los círculos de mercaderes del inframundo. Con su líder fuera, podría haber algo de confusión.
+
+—Parece que hay otros organizadores, así que la confusión probablemente no durará mucho.
+
+—¿Es así? Bueno, eso es bueno entonces. Ahora, procedamos con nuestra discusión.
+
+Como de costumbre, nos sentamos uno frente al otro a la mesa.
+
+—La última vez, creo que discutimos el análisis de documentos antiguos relacionados con los demonios.
+
+—Sí. No solo los códigos, sino que incluso los caracteres utilizados y las convenciones de fraseo cambian con cada época, lo que me da dolor de cabeza... Pero he estado rastreando literatura sobre la conexión entre los demonios y los sellos. Según las leyendas, mucho después de que aparecieran los demonios... ocurrieron varias batallas a gran escala entre ellos y los humanos.
+
+Se dice que varios países fueron destruidos, y aquellos que fueron llevados experimentaron sufrimientos infernales como ganado de los demonios. Se dice que los demonios respetan a los fuertes, pero por el contrario no muestran piedad hacia los débiles.
+
+Dado que su preferencia dietética son las emociones negativas de los demás, la relación se convierte inevitablemente en una de depredador y presa. Hay innumerables anécdotas, como cuando se envió una delegación buscando amistad solo para ser despedazada.
+
+Así que las batallas contra los demonios fueron aparentemente extremadamente feroces. Muchos documentos se perdieron durante las guerras demoníacas, dejando pocos registros restantes.
+
+En ese sentido, Termwills nunca ha sido conquistada, gracias a la protección de Claudia. Dado el sistema del laberinto, tanto el reabastecimiento de suministros como la mejora del combate pueden gestionarse dentro de la ciudad.
+
+Además, la Bendición de la Diosa de la Luna es efectiva contra el poder mágico negativo como el miasma y las maldiciones, al igual que el Amuleto de Repulsión del Mal. Esto debe dificultar las cosas para los demonios.
+
+Respecto a estas guerras entre demonios y humanos, cronológicamente ocurrieron mucho después de la tormenta mágica que mencionó Claudia. Al menos, una vez que la tormenta amainó... las naciones humanas se establecieron y organizaron lo suficiente como para luchar contra los demonios.
+
+"Así que el punto de inflexión en esa situación desventajosa llegó cuando se desarrollaron las contramedidas contra los demonios y la magia de barrera".
+
+Actualmente, las barreras se despliegan en zonas urbanas y en los principales bastiones de varios países. Esto sirve como contramedida contra la intrusión de demonios, permitiendo la defensa de los baluartes.
+
+Simultáneamente, al hacer que los bastiones sean más difíciles de atacar, se corta el suministro de alimento de los demonios.
+
+"Así es. Y eso es lo que hemos descubierto. Por favor, ten en cuenta que esta es una hipótesis armada a partir de varios documentos y de las circunstancias actuales".
+
+Tras este prefacio, Rosemary continuó.
+
+"Contramedidas contra los demonios —como la difusión de la Bendición de la Diosa de la Luna, o el uso de técnicas de barrera y sellado aprovechando el poder mágico ambiental... Parece que apareció un grupo de magos que trajo consigo una tecnología mágica tan avanzada".
+
+"Un grupo de magos..."
+
+"Lo que estás usando es... probablemente la circulación de poder mágico, ¿verdad? Entre ellos, algunos aparentemente la dominaron como una contramedida contra los demonios. Aquellos capaces de realizar la circulación debido a su aptitud mágica eran bastante limitados. Además, al ser magos que luchaban en el frente, la técnica decayó tras disminuir la actividad demoníaca... pero la circulación de poder mágico en sí figura en documentos antiguos como una de las técnicas avanzadas".
+
+Eso tiene sentido. Rosetta también había investigado y conocía la existencia de la circulación. Imagino que probablemente sea una técnica ideal para el estilo de lucha de Rosetta.
+
+"Volviendo a nuestro tema. Con las contramedidas establecidas y la defensa de los bastiones, la balanza se inclinó un poco hacia el lado humano. Tras batallas a gran escala con los demonios, lograron repelerlos pero no pudieron destruir al soberano de los demonios... así que decidieron sellarlo. Los reyes de varios países lo discutieron, y el método empleado fue dividir al soberano demonio en alma y recipiente, sellándolos en lugares separados".
+
+Soberano... Probablemente se refiere al primero que mencionó Gardinis.
+
+"¿Entonces uno de los sellos está en Termwills?"
+
+"No hemos encontrado descripciones de dónde o cómo fue sellado. Así que aún no tenemos documentos que conecten esa parte, pero probablemente sea así. Alma y recipiente. No sabemos cuál de los dos está sellado en el laberinto..."
+
+En ese caso... el Orbe de Miasma debe haber sido traído de dondequiera que esté sellada la otra mitad.
+
+"El otro lugar debe estar en alguna parte".
+
+"—¿Silvatoria, tal vez? Cronológicamente, quizá su predecesora Beriondora".
+
+Considerando que los monstruos emergen del norte... creo que podría estar por allí.
+
+"Ya veo... De hecho, la tecnología mágica de ese país está muy por encima de los demás... y considerar que el grupo de magos procedía de Beriondora tiene sentido. La ubicación desconocida del sello también encaja si asumimos que los magos se asentaron allí y fundaron un país..."
+
+"Eso es verdad..."
+
+Eso explicaría por qué Beriondora fue atacada por demonios hasta el final.
+
+"... ¿Debería visitar ese país?"
+
+"Investigar en Silvatoria podría ser necesario... pero probablemente deberías evitar la propia Beriondora. Dado que los demonios rompieron el sello y sacaron el Orbe de Miasma, ¿deberíamos asumir que Beriondora podría albergar la base principal del enemigo?"
+
+"Si solo pueden enviar fuerzas de élite aquí en pequeños números, ¿entonces repelerlos y desgastar continuamente su fuerza es el enfoque correcto?"
+
+"Eso es lo que pienso. Empezando por la demonio de Cardiff que derrotaste, luego Calor Ardiente, Espada Danzante y Huesos Negros. La notoriedad de estos tres últimos es bastante significativa. Aunque no sabemos cuántos demonios de calibre similar quedan..."
+
+... Ciertamente. No hay razón para abandonar la ventaja de poder derrotarlos individualmente. Con Claudia aquí también, el laberinto es definitivamente nuestro terreno de juego.
+
+"Advertir a Silvatoria a través de canales diplomáticos podría ser posible, pero superficialmente las cosas están tranquilas ahora. Es posible que el envío de investigadores desde Silvatoria pudiera convertirse en la causa... de algo."
+
+"... Bastante difícil. He oído que ese país también tiene inestabilidad política."
+
+"Ah. El asunto del Príncipe Heredero."
+
+Rosemary sonrió significativamente.
+
+"Nunca lo he conocido personalmente. Pero dado que la amable Stephania lo detesta, debe ser todo un personaje."
+
+La Primera Princesa Stephania, ¿eh? Bueno, esa es información en la que puedo confiar.
+
+"Aunque Verdgar tampoco está en posición de reírse de eso."
+
+"Mira quién habla."
+
+Ante mis palabras, Rosemary se cubrió alegremente la boca con su abanico de plumas, con los hombros temblando de risa.
+
+"Aunque yo también fui de las que se deshicieron, desde que te encargaste de Roy, nuestra inestabilidad política se limita a la discordia entre las familias del Gran Duque y del Duque."
+
+"... ¿Es así?"
+
+"¿No te lo ha dicho mi padre, entonces? Padre nació de la unión entre la hija de la familia del Duque y la familia real."
+
+"He oído hablar del tira y afloja entre las familias real, gran ducal y ducal."
+
+Pero esta es la primera vez que oigo hablar de discordia entre esas dos familias.
+
+"La familia real de Verdgar, debido a la relación con la Ceremonia de Protección de la Nación, también tiene problemas de mantenimiento de talento, ¿verdad? Las familias gran ducal y ducal, originalmente emparentadas, producen candidatos fuertes para casarse con la familia real. La autoridad real es fuerte, pero precisamente por eso, hay un tira y afloja entre las tres familias. De hecho, la Primera Reina es la hija de la familia gran ducal. Debido a esto, las familias gran ducal y ducal intentan interferir con la familia real, y mi padre finge escuchar mientras neutraliza su influencia, o a veces media entre ellas; está atrapado en varios dilemas."
+
+... Eso suena como una navegación bastante difícil con solo escucharlo.
+
+"Dejando a Roy de lado... Josiah y Stephania están siguiendo el ejemplo de mi padre, tratando de mantenerse lo más moderados posible. En ese sentido, esos dos son estudiantes de honor. La Primera Reina tampoco da un trato especial a la familia gran ducal."
+
+Dijo la delincuente Rosemary. Bueno, en términos de independencia real, el pensamiento de Rosemary se alinea con la moderación. Ella aboga por la meritocracia por encima de los antecedentes familiares o la jerarquía.
+
+"¿Qué hay de Rosemary?"
+
+"Mi madre pertenecía a la familia del Marqués del país vecino, Glowfonica".
+
+"Ah. Así que por eso el destino de estudios en el extranjero del Príncipe Helfried es—"
+
+"Sí. Glowfonica. Yo seguía el ejemplo de Josiah y mantenía mi distancia con Glowfonica".
+
+Después de todo, Rosemary operaba básicamente bajo la premisa de convertirse en rey.
+
+"De todos modos, contigo aquí, a mi padre le resultará más fácil realizar varios movimientos".
+
+La expresión de Rosemary al decir esto quedó oculta tras su abanico de plumas.
+
++++
+
+# **194 – Gran Duque Devonis**
+
+…Imagino que el ideal de Rosemary es probablemente el fortalecimiento de la autoridad real y la centralización.
+
+El hecho de que dejara la buena voluntad con Glowfonica a su hermano menor mientras formaba su propia facción sugiere que no quiere que los parientes maternos ganen poder. Seguir los métodos del Príncipe Josiah y la Princesa Stephania indica claramente que desea disminuir la influencia de las familias del Gran Duque y del Duque sobre la casa real.
+
+Esto también se refleja en sus aspectos meritocráticos: según el pensamiento de Rosemary, priorizaría los matrimonios con excelentes magos, clérigos y doncellas del santuario "por el futuro del Laberinto y de la casa real" por encima de esas dos familias. Con los ejemplos reales de Albert y Marlene ya existentes, Rosemary reconoce las habilidades de ambos.
+
+El Rey Melvin y la Primera Reina parecen estar dirigiendo las cosas en una dirección en la que no toman partido por ninguna de las dos familias para evitar conflictos entre ellas. Tras salvar las apariencias de la familia del Gran Duque mediante el matrimonio con la Primera Reina, tanto la Segunda como la Tercera Reina parecen haber sido elegidas para no tener conexión con ninguna de las dos familias.
+
+Teniendo en cuenta estos antecedentes mientras se observa la situación actual desde arriba…
+
+"…¿No pudieron investigar a fondo el intento de asesinato de Marlene porque recelaban de los parientes maternos?"
+
+"Más que recelo, yo diría que se trata de mantener las relaciones. Sería bastante problemático si al hurgar demasiado en el arbusto apareciera una serpiente. Tras el ataque de los demonios, la reconstrucción era la máxima prioridad, y para ello necesitábamos la cooperación tanto de la familia del Gran Duque como de la del Duque. Si hubiéramos llevado a cabo una investigación exhaustiva y encontrado conexiones con cualquiera de las dos familias, el empeoramiento de las relaciones habría sido inevitable".
+
+Como resultado, colocar a una persona de la familia del Gran Duque en el puesto vacante de Roy sugiere que Roy no tenía conexión con la familia del Gran Duque y que fue un acto en solitario… pero Roy probablemente comprendió las circunstancias y actuó en consecuencia.
+
+Dicho esto, también ha estado molestando al Rey Melvin… La razón por la que recientemente apoyó mi investigación es probablemente porque la situación es diferente a la de aquel entonces.
+
+A esto se refería Rosemary cuando dijo que el Rey Melvin puede moverse con más facilidad ahora.
+
+Las cicatrices del ataque del Rey del Sueño Mortal se han restaurado en gran medida, la Orden de Caballeros ha sido reconstruida con personal y equipo renovados, y la casa real puede adoptar una postura mucho más firme frente a ambas familias.
+
+Yo mismo tampoco tengo vínculos con ninguna de las dos familias.
+
+"El Gran Duque Debonnis debería venir hoy al Castillo Real… Bueno, pensé que sería mejor hacértelo saber. El Gran Duque Debonnis no es tonto, así que no creo que haya ningún problema".
+
+Ya veo. Así que el visitante del Rey Melvin era el Gran Duque Debonnis.
+
+Dado que el segundo hijo del Gran Duque es primo del Rey Melvin, ¿eso significaría que la tía del Gran Duque se casó con el Rey Melvin? El árbol genealógico debe de ser bastante complicado.
+
+Tras terminar mi conversación con Rosemary, me dirigí hacia la Torre del Rey para solicitar otra audiencia con el Rey Melvin cuando vi a un anciano que se acercaba desde la dirección opuesta con sus asistentes.
+
+Al notar mi presencia, habló en voz baja.
+
+"Hmm. Ese color de pelo y de ojos. Debes de ser el rumoreado Embajador del Otro Mundo. Soy Debonnis Bartwhistle".
+
+"Usted debe de ser el Gran Duque Debonnis. Como bien ha observado, soy Theodore Gartner, el Embajador del Otro Mundo".
+
+"…Sí. He oído hablar de tus logros. Sigue esforzándote".
+
+Debonnis continuó su camino sin detenerse.
+
+…De alguna manera, me había preparado esperando algo más. También me dio la impresión de que tenía cuidado de no involucrarse demasiado conmigo. Y esa expresión con la que entrecerró ligeramente los ojos y sonrió al final… parecía la de una persona cansada, incluso algo solitaria.
+
+"—¿Theodore-kun?"
+
+Mientras observaba el pasillo por donde había desaparecido el Gran Duque Debonnis, el Príncipe Heredero Josiah me llamó desde atrás.
+
+"Su Alteza Josiah".
+
+"No habrás visto por aquí al Gran Duque Debonnis, ¿verdad? ¿Te dijo algo?"
+
+"Intercambiamos unas breves palabras de saludo, pero…"
+
+Me pregunté si debería mencionar mi impresión, pero el Príncipe Josiah me miró como instándome a continuar.
+
+"Parecía algo cansado".
+
+"Ya veo…"
+
+El Príncipe Josiah también puso una mueca amarga ante mi respuesta.
+
+"Le pedí un momento después de mi charla con mi padre. Hablamos sobre el conflicto con la familia del Duque y el asunto de Roy… Me puse un poco emocional, ya ves".
+
+¿Dijo algo excesivo?
+
+Probablemente sea cierto que el conflicto entre las familias del Gran Duque y del Duque estaba de fondo en el intento de asesinato de Marlene. También es cierto que Roy se aprovechó de eso.
+
+Desde la perspectiva del Gran Duque Debonnis, probablemente tenía quejas contra el Rey Melvin, la Primera Reina, el Príncipe Josiah y la Princesa Stephania por no mostrarle mucho favor.
+
+Pero con Roy era diferente. El hecho de que una persona de la familia del Gran Duque fuera colocada en el puesto vacante de Roy también significa que Roy había acortado un poco la distancia con el Gran Duque.
+
+Así que la idea de que las palabras y acciones del Gran Duque Debonnis influyeron en la forma de pensar de Roy… no es del todo impensable.
+
+Y el príncipe Josiah probablemente le criticó por ello. Desde la perspectiva del príncipe Josiah, Roy era originalmente su hermano menor cercano... así que querría expresar al menos una queja al Gran Duque Debonnis.
+
+Aunque alguien de la talla del Gran Duque probablemente no tenga un pensamiento tan ingenuo... a juzgar por cómo mantuvo las distancias conmigo, las palabras del príncipe Josiah podrían haberle calado hondo.
+
+"...Si te arrepientes, ¿no sería bueno decirle unas palabras?"
+
+"—Tienes razón. Lo haré."
+
+El príncipe Josiah esbozó una sonrisa irónica ante mis palabras y se alejó rápidamente por el pasillo.
+
+"Ah. Siento haberte hecho esperar, Theodore."
+
+Mientras esperaba en el salón, apareció el rey Melvin.
+
+"Sí."
+
+El té se sirvió puntualmente.
+
+"He visitado la Torre Norte hace un momento."
+
+Los asuntos relacionados con el Gran Duque Debonnis y el príncipe Josiah no parecían algo en lo que yo debiera entrometerme.
+
+Proseguí con mi propio relato. Primero, le conté al rey Melvin lo que había hablado con Rosemary. Dado que involucraba a Silvatoria, probablemente sería relevante para nuestra discusión a partir de ahora.
+
+"Ya veo... Que los fundadores de la Magia de Barrera —aquellos que construyeron el Salón de los Espíritus y el Templo de la Luz de Luna— tuvieran conexiones con Silvatoria... No es una historia imposible."
+
+"¿Se ha descubierto algo sobre esos magos del otro día?"
+
+"Al parecer, esos individuos son vasallos del marqués Zilbolt de Silvatoria. Insisten en que son antiguos vasallos, pero creemos que es algo organizado formalmente como medida contra la Inquisición Mágica."
+
+En realidad, si está organizado formalmente, no sería una mentira y podrían poner excusas. Teniendo en cuenta que han tomado medidas preventivas, es muy probable que finjan ignorancia aunque protestemos.
+
+Pero el marqués Zilbolt, eh. No estoy muy familiarizado con la nobleza de Silvatoria, así que no sé qué tipo de persona es...
+
+"Pertenece a la facción del Príncipe Heredero... pero no he oído buenos rumores sobre él. Precisamente por eso, no puedo decir que esto llegue directamente hasta el Príncipe Heredero."
+
+Así que la cuestión es si se trata de una decisión independiente del marqués Zilbolt o de la intención del Príncipe Heredero. Probablemente no podrían determinarlo ni siquiera interrogando a esos dos.
+
+Escuchar las opiniones de los individuos probablemente no tendría sentido de todos modos. Fundamentalmente, todavía no vemos con claridad el motivo para enviar operativos a nuestro lado.
+
+"Respecto a la confirmación de la identidad de los magos y nuestra protesta. Definitivamente debemos proceder con esto. Prepararé una carta personal para que no llegue a oídos del Príncipe Heredero. También necesitamos advertencias sobre el incidente de Beriondora."
+
+"Cierto... Existe la posibilidad de que el Príncipe Heredero interfiera si utilizamos enviados ordinarios."
+
+"Sí. A continuación, respecto a Randolph y la cola de Slugthrow."
+
+"Sí."
+
+"Confiscaremos la riqueza que Randolph acumuló por medios indebidos. Se utilizará para compensar a las víctimas. Tras algunos experimentos de verificación, la cola de Slugthrow también será eliminada. Con eso debería bastar."
+
+Bueno... parece razonable. Aunque no sé cuánto habrá acumulado Randolph."
+
+"...Así que, dejemos la charla estresante aquí. Yo también estoy un poco cansado hoy. Todavía hay mucha confusión respecto al gobierno del sur".
+
+Así que ese era el asunto del Gran Duque Debonnis. Aunque el poder del Culto Duoveris ha disminuido, el sur todavía parece tener su buena dosis de problemas.
+
+"¿Cambiamos de tema entonces?"
+
+"Eso estaría bien. Albert me contó que todos ustedes están haciendo cosas bastante interesantes".
+
+"¿Se refiere a abrir una tienda en el Distrito Este?"
+
+"Sí, eso es. Estaba pensando en encargar para el castillo algunas de las cosas que venderán allí".
+
+¿Billar y dardos? ¿Y cartas también, probablemente? ¿La máquina de granizados y las bebidas carbonatadas también?
+
+Es posible que Albert le haya contado sobre los asuntos de la sala de entretenimiento. De hecho, colocarlos en el castillo sería una buena publicidad.
+
+"La Torre del Rey y la Torre del Caballero. Y también la Casa de Huéspedes. ¿Crees que sea posible?"
+
+"Entendido. Me encargaré de entregarlos lo antes posible".
+
+"Sí. Cuento contigo".
+
+Con eso, el Rey Melvin mostró una sonrisa que me recordó a la de Albert.
+
++++
+
+# **195 – Artesanos y Banquetes**
+
+"...Y así, nuestro primer pedido será para entregar a la familia real y al Castillo Real".
+
+Dado que el pedido del Rey Melvin era para la tienda, decidimos que en lugar de fabricar los artículos yo mismo, entregaríamos productos hechos por los artesanos.
+
+Expliqué la situación actual a los artesanos que Miriam había reunido de entre los maestros del Gremio de Comercio. Como era de esperar, había bastantes enanos entre ellos. El lugar era el Distrito Este. Nos habíamos reunido en una de las tiendas que Miriam había encontrado para esta explicación. Como la parte trasera de la tienda tenía un jardín, planeamos usar esa zona como nuestro taller.
+
+"La familia real desde el principio..."
+
+"Ese es un negocio bastante prometedor".
+
+Los artesanos estaban visiblemente emocionados.
+
+Sí. Espero que esto les sirva de buena motivación. No se podría pedir un primer trabajo mejor.
+
+"Dicho esto, aquí están las muestras de los productos".
+
+Retiré la tela y mostré a los artesanos las muestras de los productos. Se los presenté tanto como productos terminados como desmontados en sus materiales y componentes individuales para que pudieran ensamblarse.
+
+Dado que muchos de estos artículos no existían en otros lugares, quería que primero entendieran qué eran. La mejor manera de ayudarlos a comprender los productos era que realmente los manipularan y jugaran con ellos. También estaba el objetivo de ayudarlos a estrechar lazos entre ellos.
+
+"¿Hmm? Esta cosa... ¿fue hecha usando Magia para darle forma y pulirla...?"
+
+"Nosotros también usamos Magia para procesamientos menores a veces... pero esto está a otro nivel..."
+
+Dada su profesión, parecían centrarse en aspectos diferentes. Sostenían las bolas de billar a contraluz para examinar sus superficies esféricas y alineaban los patrones del reverso de las cartas, todo con expresiones serias.
+
+"Nos gustaría que fabricaran esto. Imagino que traeré otros prototipos en el futuro también. Y además, por favor, incorporen este diseño grabándolo o pirograbándolo en los productos".
+
+Coloqué una medalla de piedra sobre la mesa. Al ver el diseño, los artesanos asintieron con gesto de entendimiento.
+
+"Parece interesante. Si pueden mostrarnos algo tan bueno hecho con Magia, nosotros, como profesionales, no podemos permitirnos perder".
+
+"Sí. Parece un trabajo que vale la pena".
+
+"Por favor, intenten jugar con ellos y ponerlos a prueba. Creo que les ayudará a ver qué áreas necesitan atención para mejorar su calidad".
+
+Cuando dije eso, los artesanos sonrieron de oreja a oreja y empezaron a divertirse a su manera: leyendo las reglas y lanzando dardos, iniciando juegos de cartas o haciendo funcionar la máquina de granizados.
+
+Un artesano enano se bebió una bebida carbonatada de un trago y puso los ojos en blanco. Su barba dificultaba comer algodón de azúcar, y sus compañeros artesanos lo señalaban y se reían de él... Bueno, es bueno que parezcan estar disfrutando.
+
+"¿Qué te parece?"
+
+Me preguntó Miriam al terminar mi explicación.
+
+"Tendremos que ver sus habilidades de aquí en adelante... pero parecen confiables".
+
+"Me alegra oír eso".
+
+Miriam sonrió.
+
+El hecho de que pudieran notar que las cosas estaban hechas con Magia sugería que tenían una experiencia considerable. Si su capacidad de observación es aguda, deberían producir un trabajo de buena calidad, y además se veían muy motivados.
+
+"Entonces, ¿esto significa que ya estamos casi listos para la inauguración de la tienda?"
+
+Alfred sonrió.
+
+"Sí. El letrero también está terminado".
+
+Era un letrero colgante con el logo. Hecho de una placa de cobre con un acabado impresionante... Viola lo había procesado para nosotros.
+
+El nombre de la tienda era Compañía Comercial del Laberinto Brightwelt.
+
+Era un derivado del Taller Brightwelt, ya que distribuiríamos productos fabricados en el taller. Alfred había dicho que quería que la parte de "Laberinto" hiciera pareja con el Teatro de la Frontera, así que lo incorporé.
+
+También estaba pensando que, en el futuro, podríamos proporcionar algo de empleo a los residentes de la Aldea del Laberinto y a los niños del orfanato. También pensé que si tener los productos de la Compañía Comercial en el Castillo Real generaba expectación, podríamos recibir más pedidos, pero ya veremos cómo va eso.
+
+"Así que, aunque no es exactamente para la celebración de la inauguración... me gustaría invitar a Alfred, a todos y a Miriam-san a mi casa. ¿Qué les parece?"
+
+Se sentía como cumplir una promesa. Cuando dije eso, los ojos de Miriam brillaron.
+
+"Gracias por recibirnos hoy".
+
+Heather, la recepcionista del Gremio de Aventureros, hizo una reverencia educada. Tres personas habían venido del Gremio de Aventureros: Auria, Oswald y Heather. Forestbird, Justia y Dominique también estaban con ellos.
+
+Heather originalmente había tenido bastante contacto conmigo, y recientemente también había estado realizando trabajos relacionados con el teatro.
+
+"Por favor, por aquí".
+
+"Vaya".
+
+Cuando Cecilia vino a guiarlos, los ojos de Auria se abrieron un poco.
+
+"Soy Auria. Encantada de conocerte, amiga del bosque".
+
+Cecilia parecía algo nerviosa, pero Auria fue quien sonrió y le tendió la mano.
+
+"El placer es mío, Lady Auria".
+
+Cecilia también sonrió y tomó su mano.
+
+"Aunque, debo decir que no he regresado al bosque en bastante tiempo. Es presuntuoso que alguien como yo se llame a sí misma amiga del bosque".
+
+"Estoy en una situación similar".
+
+"Ya veo. Entonces ahora ambos vivimos en la misma tierra. Si alguna vez tienes problemas, no dudes en consultarme en cualquier momento".
+
+"Gracias".
+
+Auria era una persona despreocupada, así que parecía que habían logrado romper el hielo con éxito. Los elfos que han abandonado el bosque y se han acostumbrado a los asentamientos humanos no suelen aferrarse estrictamente a las costumbres raciales. Son conscientes de ellas, por supuesto, pero entre ellos, Auria es especial: tiene un entendimiento particularmente profundo.
+
+Los invitados siguieron llegando. El desglose de los asistentes al banquete era el siguiente: del taller, Alfred, Viola, Talcott y Miriam. Luego, el maestro artesano enano. Además de Ophelia y Cindy. Del Templo de la Luna, la Suma Sacerdotisa Penélope, y del orfanato, la directora Sandra. De la Orden de Caballeros, Mildred, Chester y Mercedes. El hecho de que también hubiera residentes de la Aldea del Laberinto... hizo que fuera una reunión bastante grande y animada.
+
+…Bueno, inicialmente no había planeado que fuera tan grandioso. Pero después de invitar a unas pocas personas, la cosa creció rápidamente como una bola de nieve.
+
+Bueno, solo una parte de los miembros del taller se quedaría a pasar la noche.
+
+La sala de recreo y el patio central estaban preparados con comida hecha por Grace, Cecilia, Mihaela y los residentes de la Aldea del Laberinto. Habían estado preparándose desde la mañana, así que era bastante lujoso. Había ave asada rellena de hierbas, entre otros platos preparados de forma creativa.
+
+"Para conmemorar nuestra inauguración, estoy realmente feliz de tenerlos a todos reunidos aquí hoy. Puede que sea un evento modesto, pero espero que se diviertan".
+
+Tras ese saludo y una reverencia, los asistentes prorrumpieron en aplausos.
+
+"Creo que les resultará más ameno escuchar su actuación que mi aburrido discurso, así que les cedo el turno".
+
+Dicho esto, hice una reverencia una vez más y bajé del borde de la fuente.
+
+Al terminar mi saludo, Irmhild y las demás comenzaron su actuación. Era una melodía brillante y alegre, apropiada para un banquete. Solo con escucharla uno se sentía animado; eran realmente impresionantes.
+
+"¡Eso es muy poco común! Bueno, todo en esta mansión es poco común, pero... poder escuchar su actuación antes de la próxima luna llena es un verdadero privilegio".
+
+Los ojos de Miriam brillaban. Su mirada estaba fija en la batería que tocaba Sheila. Intercambiando sonrisas con Irmhild, Sheila parecía estar pasándoselo en grande tocando.
+
+"Son varios tipos de instrumentos de percusión combinados en uno solo. Con cierto nivel de habilidad, una sola persona puede encargarse de la sección de percusión de esa manera. En el caso de Sheila, se trata menos de habilidad y más de su Destreza innata".
+
+"Ya veo…"
+
+Mientras usaba orejeras que incorporaban magia de viento para proteger su oído del volumen de los tambores, el ritmo de Sheila se mantenía preciso. Su manejo de las baquetas también era espléndido. Era posible precisamente gracias a su excelente destreza y reflejos.
+
+"¿Tienes planeado vender eso también como producto? Aunque quizás sea mejor esperar hasta que la tienda esté establecida y tengamos un poco de margen de maniobra".
+
+"Sí. Creo que es algo innovador. Tengo algunos conocidos músicos, así que pensé en pedirles su opinión en algún momento".
+
+Incluso mientras decía eso, Miriam parecía estar convencida de ello.
+
++++
+
+# **196 – La Suma Sacerdotisa y la Diosa**
+
+"Ya veo... Así que la clave está en cómo aplicas el efecto".
+
+Talcott frunció el ceño mientras murmuraba sobre el movimiento de la bola blanca que yo había golpeado. Una observación bastante aguda.
+
+"La has golpeado un poco por encima justo ahora, ¿verdad? Al moverla con esa habilidad, puedes asegurar una posición ventajosa para tu próximo tiro o ajustar la trayectoria tras el caramboleo".
+
+"Cuando golpea la banda, el ángulo de rebote cambia dependiendo de la fuerza del impacto".
+
+"Esto es más profundo de lo que pensaba..."
+
+Alfred, Talcott, Chester y Miriam —los cuatro— estaban inmersos en una seria discusión sobre el billar.
+
+Querían ver mis habilidades, así que me uní al juego, y parecía estar proporcionándoles un buen estímulo. Intentar técnicas que llevan a remontadas o a cavar tu propia tumba le añade profundidad al juego.
+
+Como era de esperar, Chester, originalmente hábil con la lanza, también mostraba una destreza considerable con el taco.
+
+A continuación, apliqué un efecto de retroceso a la bola blanca, haciéndola rebotar en las bolas 8 y 9 hacia la tronera. Estallaron vítores y aplausos.
+
+"Hay métodos como hacer que la bola salte o curve... pero si no estás acostumbrado, podrías rasgar el tapete, así que agradecería que se limitaran al juego normal por un tiempo".
+
+"Entendido. En ese caso, déjame intentar la técnica que nos acabas de mostrar".
+
+Era bueno ver a todos divirtiéndose, no solo con el billar. Me preguntaba cómo estarían los demás.
+
+A Seraphina parecía haberle gustado los dardos personalizados. Parecía divertirse jugando a los dardos con Ashley.
+
+Forestbird, Oswald y Auria parecían estar jugando a las cartas.
+
+"Vamos, Oswald. Entrega tus cartas".
+
+"Maldita seas..."
+
+Parecía que Auria estaba dominando en ese momento. Oswald se veía obligado a entregarle sus cartas más poderosas.
+
+"...Eh, disculpe. Me he estado preguntando desde que nos vimos en el teatro el otro día... ¿Nos conocemos de algún sitio? Es como si la conociera de hace mucho tiempo, supongo. Siento algo... peculiar".
+
+Mientras recorría con la mirada la sala de recreo, vi a Penelope hablando con Claudia con una expresión algo desconcertada. Cerca de allí, Marlene sonreía feliz.
+
+Penelope era la Suma Sacerdotisa. Quizás sentía algo sobre la presencia de Claudia.
+
+"Tal vez... así sea".
+
+Claudia miró en mi dirección. Parecía estar preguntando si debía revelarlo.
+
+Asentí y me acerqué a ellas. Penelope era de confianza, especialmente considerando su relación con Marlene. A Claudia no parecía gustarle ser tratada con especial consideración... pero si explicaba las circunstancias, Penelope lo entendería.
+
+Claudia probablemente comprendía el carácter de Penelope y quería revelarle la verdad, razón por la cual buscó mi opinión. En ese caso, quería honrar los deseos de Claudia.
+
+¿Podrías venir conmigo?
+
+Los tres salimos al patio y nos dirigimos a un banco a poca distancia.
+
+—Imagino que esto será una sorpresa—
+
+Con ese prefacio, Claudia reveló que ella era Shuath.
+
+—Eso... yo, bueno... ciertamente estoy sorprendida...—
+
+Penelope pareció aturdida al principio, pero pronto asintió con expresión seria, entrecerrando los ojos como si contemplara algo divino.
+
+—Pero, de hecho... ahora que lo menciona, tiene sentido. Siento la misma presencia en Claudia-sama que durante el Oráculo.
+
+Marlene asintió repetidamente, y Penelope sonrió mientras acariciaba la cabeza de Marlene.
+
+—Lamento no tener el aspecto de la figura descrita en el Templo. Si necesitas pruebas, puedo enviarte una revelación, Penelope.
+
+Ah, es cierto. Claudia se sentía algo cohibida por su apariencia infantil.
+
+—No será necesario. He oído leyendas de que el Mensajero toma la forma de una hermosa doncella. Reflexionando sobre ello ahora, esa debía de ser Claudia-sama.
+
+—Si se refiere a los relatos del Laberinto... tal vez sea así.
+
+Claudia esbozó una sonrisa irónica.
+
+—Si es el deseo de Claudia-sama, guardaré esta conversación para mí. Es un honor servir a Claudia-sama, quien nos ha vigilado y guiado todo este tiempo.
+
+Penelope se llevó una mano al corazón, cerró los ojos y se inclinó. Sabiendo que a Claudia no le gustaba ser tratada como una diosa, pareció evitar el exceso de ceremonia sin dejar de mostrar el máximo respeto.
+
+—Yo también estoy agradecida con los hijos del Templo. Sin ustedes, la gente de aquí podría no haber sido aceptada tan fácilmente.
+
+Claudia inclinó ligeramente la cabeza y sonrió con dulzura. Probablemente tenía razón sobre los cimientos para la aceptación de los residentes de la Aldea del Laberinto.
+
+—...Hablando de eso, ¿qué hay de los otros dioses además de Claudia?
+
+La pregunta se me ocurrió de repente.
+
+Claudia —Shuath— no era la única venerada como deidad. En diversas sectas, sin duda había seres que respondían a las plegarias de las doncellas del santuario y otorgaban poder como bendiciones.
+
+Entonces, ¿quizás los otros llamados dioses eran miembros del linaje del Rey de la Luna?
+
+—Esos son muy probablemente Reyes Espíritu que han existido por eras.
+
+—Reyes Espíritu... ya veo. Dado que los espíritus se ven influenciados por los pensamientos humanos...
+
+Era similar a cómo Seraphina adquirió rasgos extraños durante el incidente de los espíritus.
+
+—Exactamente. Los espíritus poderosos, al ser venerados, terminaron por fijar sus aspectos y alcanzaron la divinidad. Yo tengo similitudes, pero a diferencia de los espíritus, mi esencia no se ve alterada.
+
+Eso explicaba por qué los mandamientos de la Diosa de la Luna eran comparativamente indulgentes. Los espíritus con aspectos fijos probablemente serían menos flexibles que Claudia en muchos sentidos.
+
+Aun así, al originarse como espíritus, muchos tendían al culto a la naturaleza, lo que propiciaba relaciones mutuas en lugar de conflictos entre deidades, minimizando las disputas religiosas.
+
+Bueno, con amenazas como tormentas mágicas, monstruos y demonios por doquier, tal vez eso también fomentó la unidad entre los humanos.
+
+—Ah, ha sido un baño maravilloso.
+
+—Me alegra oírlo.
+
+El banquete había terminado y Miriam regresó del gran baño muy animada.
+
+—Esta será tu habitación.
+
+—Vaya... Es un diseño bastante interesante.
+
+Miriam, guiada a la habitación de invitados por Cecilia, dejó escapar una voz de admiración. Como era de esperar, el altillo pareció captar su interés.
+
+Los altillos tenían el inconveniente de atrapar el calor en verano, pero al grabar magia simple de viento y agua en piedras mágicas, podíamos enfriar y hacer circular el aire, prestando cierta atención al control del clima.
+
+—Si la habitación se calienta demasiado, por favor, inserte una piedra mágica en este hueco para ajustarla.
+
+—Has pensado en todo...
+
+Esta vez lo omitimos porque requería herramientas mágicas algo elaboradas, pero para el invierno esperaba usar construcción mágica para instalar calefacción central con tuberías de agua caliente en cada habitación.
+
+Alguien llamó a la puerta.
+
+—Adelante.
+
+Mientras Miriam respondía, la puerta se abrió para revelar a Grace, quien hizo una reverencia.
+
+"¿Ocurre algo?"
+
+—Ophelia-sama, Talcott-sama y Cindy-sama también han expresado su deseo de quedarse a pasar la noche.
+
+—Mmm. Tenemos habitaciones libres, así que no veo por qué no.
+
+—Mencionaron que, después de sus baños, querían reunirse en la habitación de Alfred-sama para un torneo de cartas... ¿Qué desea hacer?
+
+—Me uniré. ¿Y usted, Miriam-san?
+
+—Me encantaría, si me lo permiten.
+
+Miriam sonrió.
+
+—Cecilia, ¿por qué no te unes a nosotros también? Es de noche, así que tu carga de trabajo debería ser menor.
+
+"¿Está bien así?"
+
+—También trabajaste duro durante el banquete. Por favor, invita a Mihaela-san también. Los otros sirvientes probablemente estén tomando descansos por turnos.
+
+—Gracias. Creo que Mihaela-sama se alegrará.
+
+Cecilia asintió felizmente.
+
+—Entonces, terminaré las tareas restantes para poder unirme a todos ustedes lo antes posible.
+
+Con esas palabras y una reverencia, salió de la habitación.
+
+Grace vio a Cecilia marcharse con una sonrisa.
+
+—En ese caso, prepararé un poco de té.
+
+Cierto. Parecía que estaríamos despiertos hasta bastante tarde esta noche. Disfrutemos todos juntos de una relajante partida de cartas.
+
++++
+
+# **197 – Interludio: La batalla de la capital abandonada**
+
+—... ¿La Cámara de las Llaves ha sido ocupada?
+
+—Sí. Parece que se impacientaron esperando a que Gardinis regresara...
+
+—Necios.
+
+Valros escupió las palabras al escuchar el informe de Zaradi.
+
+Los seguidores de confianza de Gardinis probablemente tenían la intención de actuar solo después de que Gardinis regresara con resultados. Pero por mucho que esperaran, el propio Gardinis nunca apareció. Mientras tanto, ellos y su facción estaban bajo la vigilancia de Valros y Zaradi.
+
+¿Era este movimiento temerario una expresión de lealtad a Gardinis o miedo a su maestro? Ya no podían quedarse de brazos cruzados esperando... pero esto era exactamente lo que Valros temía.
+
+Había sospechado que podrían atacar el último Jardín del Árbol Sagrado bajo la gestión de Mustra y tomar el Sello como rehén. Un asalto a los Árboles Sagrados se consideraría un incumplimiento de contrato, y Valros quería evitar que todo el tiempo dedicado a la liberación del sello fuera en vano.
+
+Por ello, había reunido aliados con intereses comunes y cierto grado de confianza para vigilar el Jardín del Árbol Sagrado... pero ahora esto.
+
+—Así que, la Cámara de las Llaves.
+
+Era un buen lugar para un asedio. Probablemente calcularon que, incluso si estallaba el combate, Valros no podría desatar todo su poder por miedo a destruir la cámara.
+
+—Ratas astutas.
+
+Cuando Valros se puso en pie, Zaradi lo siguió.
+
+—¿Qué haremos?
+
+—¿Qué más sino aplastarlos?
+
+—Ja.
+
+Zaradi sonrió ante las palabras de Valros.
+
+Al salir de la cámara, se dirigieron a la Cámara de las Llaves. Caminando por el corredor de Beriondora, encontraron a Mustra apoyada contra la pared con una sonrisa.
+
+—Me he enterado. Parece que la Cámara de las Llaves ha sido ocupada.
+
+Debía de haber salido del Jardín del Árbol Sagrado tras escuchar las noticias. El pasaje lateral conducía al corredor que iba hacia el jardín asignado a Mustra.
+
+—En efecto. Voy a aplastarlos ahora mismo.
+
+—Vaya, vaya. Qué espantoso.
+
+La expresión de Mustra se transformó en una sonrisa más amplia ante las amenazantes palabras de Valros.
+
+—¿Cómo va tu progreso?
+
+—Un poco más, diría yo. Pero en tus planes, ¿no necesitarás también la Cámara de las Llaves?
+
+—Eso depende. En el peor de los casos, no me importa si es destruida.
+
+—Ya veo. ¿Y Lord Zaradi, entonces?
+
+—Exactamente. He hecho otros preparativos también.
+
+Cuando Valros intentó pasar de largo, Mustra intervino.
+
+—¿Quieres que te ayude? Lord Zaradi destaca en la defensa. Si hay algo más importante que la Cámara de las Llaves, sería más apropiado que él montara guardia cerca del Jardín del Árbol Sagrado.
+
+Tras decir esto, Mustra se rio. Valros frunció el ceño con sospecha, pero se encogió de hombros y respondió.
+
+—... Está bien. Zaradi, ¿has oído?
+
+—Sí... Que la fortuna os favorezca.
+
+Zaradi hizo una reverencia y caminó hacia el pasaje que conectaba con el Jardín del Árbol Sagrado.
+
+Valros y Mustra se dirigieron a la Cámara de las Llaves sin mediar más palabra.
+
+Atravesando el corredor flanqueado por pilares de piedra, pronto llegaron ante una enorme puerta de piedra negra.
+
+Ante la puerta de piedra, un grupo de demonios esperaba a Valros y su acompañante. Parecían haber formado múltiples capas defensivas; eran aquellos que habían estado esperando una oportunidad para derrocar a Valros.
+
+—¡Valros está aquí! ¡Mustra lo acompaña!
+
+Mientras un demonio gritaba, Azurabelg, el seguidor de confianza de Gardinis, emergió de lo profundo de la Cámara de las Llaves y exclamó:
+
+—¡Deteneos ahí mismo!
+
+Valros entrecerró los ojos y mostró los colmillos en una mueca.
+
+—Las intrigas de Gardinis no valen nada si el propio maestro no regresa.
+
+—¡Silencio! ¡Cómo podría nuestro señor perder contra simples humanos! ¿¡Acaso entiendes la situación!? ¡Tenemos a todos estos partidarios! ¡Con la Cámara de las Llaves a nuestras espaldas, el terreno nos favorece! Entrega las llaves pacíficamente y cede tu autoridad—
+
+Las palabras de Azurabelg fueron interrumpidas. Un destello negro, lanzado con indiferencia desde la mano de Valros, talló una grieta en la puerta de piedra.
+
+Azurabelg miró a Valros con total incredulidad.
+
+—¿Por qué...? ¿Sabes por qué os mantuvimos bajo vigilancia mientras os dejábamos moveros libremente?
+
+Al decir esto, Valros abrió mucho los ojos y mostró sus colmillos. Era una sonrisa propia de una bestia en forma humana. Aunque se le llamaba demonio a diferencia de otros demonios, su sonrisa encarnaba la ferocidad de su especie, enviando un escalofrío a través de las filas demoníacas.
+
+"Era para dejar que aquellos que me guardan rencor pero no pertenecen a la facción de Gardinis se reunieran. Pensé que sería mejor exprimir todo el pus de una vez. Supuse que incluso si fingían lealtad, como demonios que son, tarde o temprano mostrarían los colmillos. Pero ahora que lo han hecho, ¿no creerán que seré blando con ustedes?"
+
+Azurabelg era plenamente consciente de que estaban siendo vigilados.
+
+Precisamente porque su señor estaba ausente y se encontraban bajo vigilancia, temían tanto las purgas como la rebelión. Incluso entre sus propias filas había demonios hábiles en el combate pero ajenos a los que Valros había reunido... Seguían a Gardinis, pero era dudoso que Azurabelg pudiera controlarlos a largo plazo. En otras palabras, ante la prolongada ausencia de Gardinis, la tensión de Azurabelg se rompió primero.
+
+Por eso había ejecutado el plan destinado a activarse solo tras el regreso de Gardinis.
+
+"Así que termina como una purga para demostración y unidad. Qué lástima".
+
+Mientras Valros se agachaba, cargó hacia adelante con una velocidad que no dejaba rastro.
+
+El primero en ser alcanzado fue un demonio en la línea del frente.
+
+"Val—"
+
+Un golpe de palma que impactó hacia arriba en el abdomen. El demonio golpeado salió volando a través del techo del pasillo como una ramita atrapada en una tormenta, dando vueltas por el aire. En su abdomen se arremolinaba un miasma en espiral. Mediante algún poder, cuando Valros cerró el puño que mantenía en alto, un enorme agujero se abrió en el estómago del demonio como respuesta.
+
+"¡¿Guhah?!"
+
+"¡Eek!"
+
+Un golpe de mano. Lo que parecía ser un ataque lanzado con indiferencia partió a un demonio por la mitad a través del torso, ignorando su barrera de miasma. Agarrando a un demonio cercano que estaba aturdido, lo aplastó literalmente.
+
+"¿¡Imposible!?"
+
+Azurabelg miró con los ojos muy abiertos.
+
+Ese demonio afirmaba ser excelente desplegando barreras. Lo había colocado al frente precisamente porque era apto para asedios y para ganar tiempo. Sin embargo, fue masacrado de un solo golpe.
+
+Se mirara como se mirara, este poder de ataque era anormal. Si Valros hubiera formado una hoja de miasma, se entendería que cortara la barrera. Pero Valros solo tenía un miasma similar a una fina niebla envolviendo una mano. La escena superaba el sentido común de Azurabelg y no podía comprenderla.
+
+O tal vez esta era la habilidad de Valros: el poder de un Trascendente, otorgado solo a demonios de alto rango como Gardinis, Luceriage y Zevion.
+
+En las batallas entre demonios, no había bendiciones ni ciclos para reducir los atributos del miasma. Se convertía en una contienda de fuerza bruta. Lo entendía, pero aun así, esto...
+
+"¡Bastardo!"
+
+Los demonios que habían formado hojas de miasma se lanzaron contra Valros. El cuerpo de Valros se balanceó ligeramente. Sus movimientos sugerían claramente un entrenamiento riguroso.
+
+Los tres demonios que habían blandido sus hojas quedaron atónitos cuando Valros se escabulló sin que sus espadas llegaran a cruzarse. Y para entonces, todo había terminado.
+
+El rostro, sobre el corazón y el bulbo raquídeo. Allí se arremolinaba la oscuridad: el miasma que Valros dejó tras de sí al contacto mientras se deslizaba entre ellos.
+
+Valros apretó la mano en silencio. Centrados en la oscuridad que dejó tras de sí, las partes de los cuerpos de los demonios fueron arrancadas como si hubieran sido vaciadas. Poco después, los cadáveres de los demonios asesinados se convirtieron en polvo.
+
+—¡Eek! ¡Eeeek!
+
+Ya fuera porque el miedo los había superado ante tal visión, algunos demonios intentaron huir pasando junto a Valros. Él los miró como si viera algo aburrido, pero los dejó marchar en silencio. Sabía que no podrían escapar incluso sin que él moviera un dedo.
+
+—Vaya, vaya. ¿A dónde creen que van?
+
+Esperándolos estaba una demonio que reía: Mustra.
+
+Sus movimientos, a diferencia de los de Valros, eran lánguidos. De su cuerpo emanaba un miasma insondable.
+
+"¡Muévete!"
+
+Un demonio presa del pánico disparó una Bala de Miasma contra Mustra. Ella respondió disparando otra Bala de Miasma, cruzando los brazos para defenderse. Mientras la bala impactaba, otro demonio saltó por detrás del primero y clavó una Hoja de Miasma hacia el corazón de Mustra. Ella... ni siquiera intentó esquivarlo.
+
+La Hoja de Miasma se hundió profundamente. Al sentir el impacto, el demonio sonrió, presintiendo un golpe crítico.
+
+Un grito provino del demonio de atrás que había bloqueado la Bala de Miasma. Al girarse para ver qué ocurría, presenció algo increíble.
+
+—¡¿Uwaaah?! ¡¿Mi brazo, mi brazo?!
+
+Como si fuera caramelo derretido. Los brazos derecho e izquierdo del demonio se habían fusionado en su posición cruzada.
+
+—Jaja, qué lástima. No está mal para ser un esfuerzo improvisado.
+
+«Esto no puede ser», pensó el demonio que había clavado la hoja, dándose cuenta de que su sonrisa se había torcido. Al volver la vista, vio a Mustra todavía sonriendo con la hoja atravesándole el corazón. Feliz. Encantada.
+
+Sí, estaba complacida. Sus ojos, distorsionados por la alegría, escudriñaban cómo jugar con él mientras se lamía los labios con anticipación.
+
+Atributos de miasma. Distancia. Peligro mortal. Una sonrisa de locura. Soltando la Hoja de Miasma, intentó retroceder. Pero no pudo escapar. ¿De dónde había venido el ataque? Estaba empalado desde todas las direcciones por algo parecido a lanzas negras.
+
+—De vez en cuando, el miedo provocado por los de tu propia especie no está tan mal, ¿verdad?
+
+Dicho esto, se encogió de hombros y rió. Los demonios restantes se quedaron sin palabras.
+
+Habilidades que hacían que incluso otros demonios las encontraran absolutamente horripilantes. La que derretía brazos y la que desataba una formación de lanzas desde todos los flancos. A pesar de haberlo presenciado todo, no lograban comprender la verdadera naturaleza de sus atributos de miasma.
+
+Si Valros era un demonio que encarnaba una brutalidad tormentosa, Mustra era una demonio que parecía personificar otro aspecto de su raza. Ya fuera quedándose o avanzando, aquello era el infierno.
+
+—¡F-fuego!
+
+Los demonios desataron una ráfaga de Balas de Miasma contra Valros. Pero en el momento en que tocaron el miasma de Valros, fueron desviadas en direcciones aleatorias, fluyendo lejos detrás de él.
+
+Alrededor de Valros, el miasma oscuro flotaba como una esfera que giraba rápidamente a su alrededor. Un destello negro surgió de su mano alzada. Simultáneamente, desde la esfera, un Rayo Oscuro atravesó el lugar iluminado por el destello.
+
+—¡¿Estás loco?! ¡¿Sabes lo que hay detrás de nosotros...?!
+
+—Es un poco lamentable, pero no me importa si se pierde. Ni siquiera vale la pena compararlo con el Jardín del Árbol Sagrado.
+
+Valros habló como si no fuera nada.
+
+Arrasando. Segando. Las filas formadas. Los demonios. Destrozados y volados por los aires.
+
+"¡Maldito seas...! ¡Maldito, maldito, maaaaldito!"
+
+Enfurecido, Azurabelg cargó contra Valros mientras transformaba la forma de su cuerpo. Su figura se convirtió en la de una bestia cuadrúpeda aerodinámica. Su velocidad estaba a la par con la carga anterior de Valros. Una sombra plateada centelleó.
+
+"¿Ah, sí?"
+
+Valros inclinó ligeramente la cabeza, dejando escapar lo que pareció su primer murmullo de impresión. Un pequeño corte apareció en su mejilla. Azurabelg, habiendo convertido el miasma en una hoja delgada y alcanzado la velocidad máxima desde el estallido inicial, le había cortado al pasar. Su forma era como un meteoro. Usando los pilares de piedra alineados como puntos de apoyo, rebotó a gran velocidad y cargó desde la retaguardia diagonal de Valros.
+
+"¡Muere—!"
+
+"Demasiado ingenuo."
+
+Junto con una sensación de incongruidad, esta vez Azurabelg perdió las palabras por completo.
+
+Valros había detenido la estocada de la Hoja de Miasma desde su retaguardia diagonal con solo dos dedos.
+
+"Eso es—"
+
+Más rápido de lo que pudo decir "imposible", Azurabelg sintió que su cuerpo era jalado y luego estampado de espaldas contra el suelo.
+
+La pura fuerza del impacto. El suelo se hundió, con grietas irradiando desde el punto de choque.
+
+"¡Guhah!"
+
+"Adiós".
+
+Retorciéndose por la conmoción y el intenso dolor, Azurabelg miró hacia arriba. Sobre la palma levantada de Valros había una esfera de un negro azabache que emitía chispas negras—.
+
+"—Vaya, vaya. Qué decepcionante."
+
+Mustra asestó el golpe de gracia al último que suplicaba clemencia, y luego sacudió los hombros riendo.
+
+El corredor hacia la Cámara de las Llaves. Y dentro de la propia Cámara, ninguno de los insurgentes sobrevivió. Habían sido masacrados por solo dos demonios; solo quedaban los guardias heridos, mirando fijamente a Valros y Mustra.
+
+Aunque en el corredor quedaban rastros extraordinarios de destrucción, al tratarse de una batalla entre demonios, ni siquiera quedaron cadáveres.
+
+"Parece que te estás divirtiendo."
+
+"Sí. Sin cosas como esta, simplemente no puedo ponerme en forma. ¿Está intacta la Cámara de las Llaves?"
+
+Valros miró el Altar y sus alrededores dentro de la Cámara antes de responder.
+
+"Algunos daños. Tomará un poco de tiempo repararlo, pero... debería ser manejable."
+
+"Es un alivio. Si adquirir las llaves no hubiera servido de nada, ella también se enojaría, ¿no?"
+
+Ante las palabras de Mustra, Valros esbozó una pequeña sonrisa irónica.
+
+"Probablemente. Él también es libre ahora. Respecto al Orbe de Miasma que usé para romper el sello, escuché que lo entregará en Termwills."
+
+"Ya veo. Entonces, según lo planeado."
+
+"Le dije que evitara el combate. Me pregunto cómo resultará eso."
+
+"...Hmm. Así que el viejo Gardinis realmente perdió, ¿eh?"
+
+"Eso parece. Si ha sido derrotado después de Zevion y Luceriage... ya no hay lugar para la duda."
+
+"¿Duda sobre qué?"
+
+En respuesta a la pregunta de Mustra, Valros entrecerró los ojos y respondió.
+
+"Lo que hay en Termwills es una especie de monstruo."
+
++++
+
+# **198 – Fortaleza del Calor Ardiente**
+
+Entre ocuparme de los asuntos del Gremio de Ladrones y el pasado de Sheila, preparar la tienda, el banquete de inauguración con todos quedándose a dormir, el torneo de cartas y otros eventos diversos… no podía dedicar todo mi tiempo a las actividades del pueblo.
+
+Especialmente en lo que respecta al Último Guardián del Laberinto y los asuntos relacionados con los Demonios, necesitábamos fortalecer aún más nuestras capacidades de combate. Por ejemplo, mediante el entrenamiento y la exploración del Laberinto, o descifrando el código en las notas de mi madre.
+
+"Absorber poder mágico del entorno… Hmm".
+
+"¿Son esas las notas de Lady Lisa?"
+
+Grace, que me había traído té, preguntó por el murmullo que se me escapó mientras investigaba con las notas de mi madre en el escritorio del dormitorio principal.
+
+"Sí. También contenían información sobre la constitución de mi madre".
+
+Respecto a la constitución de mi madre, parecía que su aptitud mágica estaba más cerca de la esencia original del poder mágico en sí que de la de un hechicero sanador.
+
+Si los hechiceros sanadores sufren porque su fuerza vital se disuelve en poder mágico y se debilitan, el caso de mi madre sugería que su poder mágico podría estar disipándose en el entorno natural.
+
+Si eso fuera cierto, debería haber experimentado debilidad debido al agotamiento del poder mágico, pero los síntomas de mi madre no eran tan graves. La razón por la que no empeoró más parecía ser que su aptitud mágica única en realidad le permitía manipular el poder mágico para absorberlo del entorno natural.
+
+Sin embargo, tras absorber el poder mágico ambiental en su cuerpo, necesitaba neutralizar el exceso. Los monstruos cumplen esta función con las piedras mágicas dentro de sus cuerpos. Como ella carecía de eso, las notas planteaban la hipótesis de que esta podría haber sido la razón por la que enfermaba con frecuencia.
+
+"Ya veo… Lady Lisa…"
+
+Ante mi explicación, Grace se tocó el anillo y mostró una expresión ligeramente melancólica.
+
+"No dejo de pensar en qué habría pasado si hubiera podido usar el Ki Circulante en aquel entonces".
+
+"Por favor, no te culpes. Yo… no, todos los demás también hemos recibido mucho de Theo y hemos sido apoyados por él".
+
+"Mmm…"
+
+Yo también estoy recibiendo apoyo. Asentí a Grace y le devolví la sonrisa.
+
+Mi madre… parecía haber suprimido su propia constitución con una Herramienta Maldita que sellaba sus características… pero eso no cambiaba la naturaleza fundamental de su poder mágico, y aunque la disipación se ralentizaba, nunca se detenía por completo. Con Grace ocurre lo mismo. El contragolpe de su impulso de succión de sangre tampoco desaparece, lo que requiere que lo equilibre de alguna manera. El anillo no es, ni mucho menos, una solución perfecta.
+
+En el caso de Grace, estar conmigo puede solucionar el problema, pero mi madre necesitaba quitarse el anillo ocasionalmente y realizar la tarea esencial de absorber poder mágico; en otras palabras, necesitaba salir a tomar aire. Por eso nunca pudo escapar del todo de su mala salud.
+
+Basándose en la hipótesis, también se registraron métodos para mejorar su propia constitución.
+
+Esto todavía era un trabajo en progreso, con la teoría inconclusa… Esencialmente, se trataba de si ella podía crear una fórmula mágica para absorber y manipular libremente el poder mágico del entorno, neutralizándolo a través de dicha fórmula. En otras palabras, probablemente estaba pensando en reforzar su propia constitución con una fórmula mágica. La teoría de Rosetta de que el Ki Circulante podía compensarlo también era correcta, pero desafortunadamente, se había perdido en nuestra generación actual.
+
+"…Dejémoslo aquí por hoy".
+
+"Sí. Mañana toca la Fortaleza Ardiente, ¿verdad?"
+
+"Cierto. Descansemos bien y preparémonos para mañana".
+
+Después de continuar con la decodificación por un rato, vacié mi taza de té y me estiré profundamente.
+
+Entonces pensé:
+
+…¿No podría intentar completar esta fórmula mágica con mis propias manos?
+
+Sería como heredar la investigación de mi madre. Completar un trabajo inacabado. Definitivamente debería ser algo que valga la pena aprender para mí también.
+
+Al día siguiente—. Cuando nos transportamos con la ayuda de Claudia desde el monumento de piedra de la entrada del Laberinto, nos encontramos en un mundo abrasador.
+
+Todo el techo de la enorme caverna estaba cubierto de un mineral similar al cristal, al rojo vivo, que sobresalía hacia abajo. Y no solo el techo. Brotaba de varios lugares del pavimento de piedra, dispersando un calor intenso por doquier.
+
+"Así que esta es la Fortaleza Ardiente—"
+
+Ashley miró hacia la enorme estructura que se alzaba a lo lejos y murmuró.
+
+Sí. Era un castillo. Una fortaleza con altos muros de piedra que brillaban en rojo y numerosas agujas. Un lugar situado a gran profundidad dentro del Laberinto. Los enemigos son fuertes y el terreno es sumamente peligroso, lo que la convierte en una zona de dificultad considerablemente alta. Mientras manteníamos el mayor margen de seguridad posible, nuestro objetivo era ganar experiencia de combate aquí y fortalecer aún más nuestras capacidades de lucha. Considerando el ejemplo del Gran Lago de la Corrupción, esta zona podría convertirse en el campo de batalla principal durante una batalla contra Demonios. Ganar experiencia para manejar eso no sería en vano.
+
+"¿Estás bien, Lavigne? ¿Y los demás?"
+
+Defensa contra el calor abrasador mediante pieles de rata de fuego. Bloqueo del calor y enfriamiento con Magia de Viento y Magia de Agua. Habíamos tomado todas las contramedidas imaginables, pero ¿qué tan efectivas eran?
+
+"Lavigne… parece estar bien".
+
+"Yo también estoy bien".
+
+"Yo también".
+
+Todos asintieron. Cuando mis ojos se encontraron con los de Marlene, ella asintió con una expresión seria.
+
+"Bien… Bueno, supongo que empezaremos por atravesar esa puerta del castillo".
+
+La larga pendiente pavimentada de piedra continuaba interminablemente. Más allá, podíamos ver la enorme puerta del castillo, pero, para nuestra molestia, no podíamos infiltrarnos en el interior de la fortaleza sin conquistar primero esos muros.
+
+"¿No podemos sobrevolar esos muros desde arriba?"
+
+preguntó Sheila.
+
+Sí. Alguien en BFO también pensó en eso. En cuanto a cómo resultó… bueno, fue bastante desastroso.
+
+"Los cristales del techo emiten un calor considerable y hay una barrera que cubre todo el espacio aéreo superior. Podemos apañárnoslas hasta cierto punto, pero es mejor no ganar demasiada altitud. Si nos quedamos inmovilizados, nos dispararán con arcos. Incluso si entramos al interior del castillo, las agujas no tienen nada parecido a ventanas, así que tarde o temprano tendríamos que avanzar por dentro de todos modos".
+
+"Ya veo…"
+
+El simple hecho de tener el Equipo de Combate Aéreo es bastante útil, incluso si no podemos optar por la aproximación a gran altitud. No tener que preocuparse por caer desde las alturas es especialmente conveniente.
+
+Dicho esto, respecto a la puerta del castillo, no tenemos más remedio que cargar directamente contra ella.
+
+"Hay un monumento de piedra pasando la puerta del castillo. Hoy es solo un reconocimiento, pero al menos lleguemos hasta ese punto".
+
+"Entendido".
+
+"Vienen".
+
+El camino que lleva a la puerta del castillo es un sendero único. La visibilidad es buena, con abismos a ambos lados de la pendiente. No hay desvíos. Al vernos, las Armaduras Vivientes formaron filas y atacaron. Había puestos de guardia en varios puntos de la pendiente, y atacaban desde allí.
+
+La puerta del castillo de la Fortaleza Ardiente. Los movimientos de tipo militar de las Armaduras Vivientes lo hacían difícil, y cuando vine aquí por primera vez, tuve que formar un Grupo de Incursión para abrirme paso—.
+
+"Avanzad".
+
+Hice que los Gólems formaran filas y formaciones de lanzas para avanzar. Sin embargo, limitarse a clavar lanzas en Armaduras Vivientes huecas no tendría sentido. Por eso, las filas de Gólems estaban equipadas con sasumata, herramientas para inmovilizar. Además, el material de los Gólems era tierra, lo que hacía que las armas del enemigo también fueran ineficaces contra ellos.
+
+Por lo tanto, la táctica consistía en avanzar sin importar nada mientras luchábamos. Inmovilizando a las Armaduras Vivientes con las sasumata, o haciendo que los cuerpos de tierra absorbieran sus armaduras para paralizarlas. Y entonces—.
+
+"Ahí va".
+
+Un hacha lanzada por Grace, que había saltado, voló a una velocidad tremenda. El hacha de peso superpesado penetró el torso de la Armadura Viviente como si fuera papel.
+
+El arco y las flechas de Irmhild también fueron efectivos. Seraphina, posada en el hombro de Irmhild, amplificó y disparó Flechas de Luz imbuidas con Melodía Maldita. Esto parecía tener un efecto bastante fatal en las Armaduras Vivientes, ya que las que eran alcanzadas se sacudían violentamente y dejaban de funcionar.
+
+Cuando Sheila, que había flanqueado, pateó el casco de una Armadura Viviente desde el aire, la armadura sin cabeza entró en pánico, soltó su arma y buscó su cabeza. Fue entonces cuando los Gólems la inmovilizaron. Las redes adhesivas también parecían estar funcionando de manera muy efectiva.
+
+Contra los arqueros desde posiciones elevadas, Ashley y Lavigne crearon Muros de Hielo, y Marlene desplegó Platillos para manejar la situación por completo. Subimos la pendiente como si estuviéramos expandiendo nuestro territorio.
+
+"¡Rocas!"
+
+El aviso de Sheila.
+
+Las Armaduras Vivientes estaban haciendo rodar esferas de roca ardiente desde lo alto de la pendiente. Debieron de cambiar de táctica al ver a la vanguardia en desventaja. Normalmente, el enfoque estándar sería retirarse a los puestos de guardia de las Armaduras Vivientes que ya habíamos suprimido—.
+
+"No hace falta esquivarlas. Seguid avanzando".
+
+Salté sobre los Gólems, cargué a Ouroboros con poder mágico y lo blandí con fuerza. Aplasté a las Armaduras Vivientes con las que estábamos luchando, arrojándolas al abismo junto a la pendiente, avanzando más allá de la línea del frente.
+
+El rugido de deleite de Ouroboros. El oleaje creciente del poder mágico circulante. Entre chispas que saltaban, clavé el Bastón de Dragón en la roca que rodaba hacia nosotros. Transmití el impacto desde un solo punto para triturar la roca mientras usaba Levitación y Magia de Fuego simultáneamente. Reboté la explosión hacia las Armaduras Vivientes de refuerzo que intentaban atacar junto con las rocas. Las filas de Armaduras Vivientes alcanzadas por la metralla se sumieron en el caos.
+
+"¡Carguen!"
+
+A mi orden, Grace y los demás se impulsaron desde sus escudos y avanzaron. Marlene también corrió a gran velocidad junto a Dullahan. Dispersaron a las Armaduras Vivientes, subieron la pendiente a toda prisa y avanzaron hasta el área abierta frente a la puerta del castillo.
+
+"¡Séllenlo!"
+
+—¡Sí!
+
+Una vez que todos nuestros camaradas hubieron entrado, Ashley y Lavigne crearon muros de hielo en el camino que conectaba la pendiente con la plaza. Esto era para evitar que llegaran refuerzos de Armaduras Vivientes desde los diversos puestos de guardia en la retaguardia. Estos tipos aquí intentarían con calma tácticas traicioneras, como dejar fuerzas de combate excedentes para flanquearnos en la plaza.
+
+Es un área realmente desafiante. Ashley construyó un campo de defensa con su herramienta mágica, formando una formación defensiva.
+
+Del puesto de guardia junto a la plaza emergió un grupo de especies superiores de Armaduras Vivientes, las Armaduras Pesadas. La puerta principal se abrió, y tras ella apareció un Gigante empuñando una bola de hierro con púas y un Demonio de Llama revestido con una armadura.
+
+Son los llamados de nivel Sub-Guardián: monstruos estacionados en ubicaciones específicas. ¿Acaso la Fortaleza Ardiente también fue creada con el propósito de ser conquistada? Al derrotar a estos tipos, podremos abrir la puerta del castillo.
+
+"Yo me encargaré del que arde".
+
+"Entonces yo me ocuparé del Gigante".
+
+Di un paso al frente junto a Grace. Una bienvenida bastante entusiasta.
+
+"Den la señal si pasa algo".
+
+"Mmm".
+
+Claudia siempre está lista para responder en caso de retirada, así que nuestra ruta de escape está asegurada... pero si no podemos atravesar este punto, no servirá de nada. Bien, entonces, que comience la batalla.
+
++++
+
+# **199 – Demonios y Gigantes**
+
+Aunque se les llama de clase Sub-Guardián... dada su posición como jefes en los niveles inferiores, el Demonio de Llama probablemente sea un oponente de mayor nivel que los verdaderos Guardianes como el Jabalí de Espada o el Capitán Nautilus. Es un tipo clásico que maneja tanto el corto como el largo alcance sin dejar aberturas. Derrotarlo pone a prueba la habilidad pura de uno.
+
+Pero no hay necesidad de observar. Cargo directamente hacia el Demonio de Llama.
+
+Para interceptarme, un espadón llameante se balancea hacia arriba desde abajo. Despliego mi escudo. Mientras me defiendo, salto como si aprovechara el impulso del espadón. Elevándome sobre la cabeza del Demonio de Llama, me impulso en el aire más rápido de lo que él puede darse la vuelta, trazando una trayectoria recta.
+
+El golpe de Ouroboros deja un rastro de luz azul pálido en el aire. El Demonio de Llama apenas logra esquivarlo contorsionando su cuerpo. Mientras el demonio lanza su mano izquierda hacia arriba, surge un enorme pilar de fuego que intenta consumirme.
+
+Incluso con la capa de Rata de Fuego, hay aberturas. Si me viera envuelto por las llamas tal cual, recibir daño sería inevitable.
+
+Así que, al igual que hice con Zevion, creo una capa de aire para bloquear el calor. Atravesando el pilar de fuego, arremeto contra el Demonio de Llama, que bloquea mi estocada con su mandoble. El Bastón de Dragón y el mandoble chocan, desprendiendo chispas.
+
+Un rugido y un viento abrasador. Alas de llamas embravecidas brotan de su espalda. Ascendemos mientras permanecemos en un punto muerto.
+
+Algo parecido a un tronco se aproxima por el flanco. Es la cola del Demonio de Llama. El brazo de Nemea sale disparado desde una abertura de la capa para interceptarlo.
+
+Ambos salimos despedidos. Invirtiendo la dirección al instante, nos cruzamos innumerables veces en el aire, dejando estelas de fuego y luz mágica. Cada vez, las ondas de choque nos recorren y la Luz de Chispas se dispersa.
+
+Un intercambio de golpes y tajos. Cola y garras. Ondas explosivas e impactos. Desvío el Aliento ígneo que se propaga con Absorción de Llama y golpeo hacia abajo.
+
+Su velocidad de reacción es extraordinaria. Desconozco su estructura mental, pero no muestra agitación alguna. Incluso los movimientos irregulares y el aumento de ataques al usar a Capella y Nemea son aceptados y contrarrestados tal cual.
+
+Activo Cuerpo de Espejismo. Deslizándome más allá del mandoble y la cola, asesto un golpe con el Bastón de Dragón en su flanco, pero no reacciona e inmediatamente descarga el mandoble desde una posición alta. Lo desvío con el Bastón de Dragón mientras giro lateralmente y haciendo. Estrello el Bastón de Dragón directamente en su rostro, pero responde moviendo la cabeza como si blandiera sus cuernos para pararlo.
+
+Tanto su resistencia como su espíritu de lucha son más que suficientes. Sus habilidades de combate y velocidad de reacción son excelentes. Vaya, vaya... ¿no se está poniendo esto interesante?
+
+El hecho de que hayan creado una formación con Campo de Defensa y Muro de Hielo significa que a las Armaduras Pesadas les resultará más difícil rodearnos o reprimirnos. Entrar en el campo dificultaría su movimiento.
+
+Por lo tanto, parece que han optado por formar filas desde una sola dirección y aplastarnos con el peso de sus armaduras.
+
+Conteniéndolos y respondiendo están Ashley a lomos de Lavigne, Marlene con Platillos flotando a su alrededor y el Dullahan, y desde la retaguardia, Irmhild y Seraphina encargándose de rematarlos con flechas.
+
+El impulso de las lanzas es anulado por el Campo de Defensa, y sus puntas son engullidas por árboles de hielo que brotan del suelo, deteniendo su avance por la fuerza.
+
+Aprovechando ese hueco, arremete un golpe de una Maza Larga envuelta en hielo. Usando Levitación en conjunto, manda a volar sin esfuerzo a la Armadura Pesada, estrellándola contra las filas traseras. Mientras la formación se desmorona, el Dullahan irrumpe pisoteando. Blandiendo su mandoble, lanza a las Armaduras Pesadas por los aires. Los contraataques no les alcanzan porque los Platillos, que giran a gran velocidad, desvían lanzas, espadas y flechas por igual.
+
+Las Armaduras Pesadas lanzadas por los aires son atravesadas una tras otra por Flechas de Luz. Incluso estando totalmente armados y sosteniendo escudos, ser mandados a volar por Dullahan los vuelve inútiles.
+
+"¡Sheila!"
+
+El papel de Sheila es la ofensiva. Mientras los lanceros de vanguardia colapsan, ante la palabra de Irmhild, Sheila salta. Lanzando Hilo Pegajoso al suelo y usando el punto de adherencia como pivote, traza un gran arco, rompe el cerco con facilidad y se posiciona muy por detrás de las Armaduras Pesadas circundantes.
+
+Su objetivo: la Armadura Pesada con una decoración de plumas en su casco. El llamado comandante. Su capacidad de combate es superior a la de los demás, y comanda a las Armaduras Vivientes y Armaduras Pesadas en esta zona. Por el contrario, eliminar al comandante desbarataría su coordinación y movimientos.
+
+"Voy a entrar".
+
+Tras volar erráticamente en varias direcciones, Sheila hace su movimiento. El comandante responde. Bloqueando la Espada de Perla envuelta en espíritu de lucha con su espada recta plateada, da un paso adelante, empujando su escudo de la mano izquierda hacia el frente.
+
+Aprovecho el impulso. Saltando sin resistirse a la fuerza del escudo. Mostrando un movimiento carente de peso, se invierte en el aire y rebota linealmente.
+
+Espada y escudo. Los sonidos agudos del choque resuenan.
+
+Interferencias: no entra ninguna. El Muro de Hielo separa el campo de batalla de Sheila y Ashley.
+
+Potenciada por la Magia de Agua del Circlet, la capacidad de control espacial de Ashley es ahora considerable. El hielo en sí también se ha vuelto más robusto.
+
+Acercándose al comandante con movimientos tridimensionales, blande libremente sus Espadas Gemelas. Los ataques de tajo danzan salvajemente como si estuviera actuando. Movimientos donde la evasión y el ataque se funden en uno solo. El comandante intenta frenéticamente imponer su ventaja con el escudo, pero contra Sheila, solo crea más puntos ciegos para sí mismo.
+
+Cruzan espadas varias veces. Los ataques con la Espada de Perla son algo menos efectivos, pero el objetivo de Sheila no es la fuerza bruta.
+
+El Golpe de Escudo del comandante. Pero Sheila no está allí. Aprovechando la ausencia de atacantes de Calor Ardiente cercanos, deja atrás la capa de Rata de Fuego como una piel mudada, desapareciendo y emergiendo luego por debajo de ella.
+
+Pisoteando ante la falta de la resistencia esperada, el comandante encuentra a Sheila ya girada, habiendo apuntado desde atrás con el Anillo Arachnear.
+
+La bola de hierro entrante es recibida de frente.
+
+La bola de hierro del Gigante y el hacha de Grace. Ambas están envueltas en espíritu de lucha. Colisionan con un sonido tremendo. En términos de alcance, el Gigante tiene la ventaja. Mientras Grace avanza apartando la bola de hierro, el Gigante realiza un movimiento de barrido con la cadena conectada a la bola recuperada. El espíritu de lucha también se enrosca alrededor de la cadena.
+
+Incluso si volara lejos para escapar, es probable que esta cambiara de dirección y la persiguiera; pero Grace no muestra signos de miedo frente al Gigante, avanzando directamente hacia adelante.
+
+La potencia del golpe tipo látigo cae en picado si se falla su punto de impacto. Increíblemente, ella agarra la cadena y da un paso directo hacia el frente.
+
+El Gigante ruge irritado y lanza una patada. Las grebas de hierro, envueltas en espíritu de lucha, insinúan un poder destructivo.
+
+Entonces, Grace se detiene. Despliega un Escudo al frente. Una parada abrupta. En el momento en que la patada pasa con una ráfaga de viento, ella salta hacia un lado aún sosteniendo la cadena. Se fija en el aire con el Escudo. El cuerpo del Gigante, todavía sujeto a la cadena, es arrastrado, agitándose. Su postura se quiebra.
+
+—Toma esto.
+
+Lanza el hacha de espíritu de lucha, que emite un destello púrpura. Apunta al cuello. El gigante se inclina hacia atrás para esquivarla. A pesar de la absurda densidad muscular del Gigante, el hacha le arranca parte del hombro. Un salto. Se acerca con el impulso de una bala de cañón.
+
+Rugiendo de agonía, el Gigante le hace frente. Como para demostrar que podía dominar a corta distancia con sus manos desnudas, no con la bola de hierro. Recubre su puño con espíritu de lucha y golpea. Lleva guanteletes. Más que suficientes como armas.
+
+Las acciones de Grace no cambian. Intercepción con su hacha. Sin embargo, no solo envuelve su hacha, sino todo su cuerpo en espíritu de lucha. El hacha de Grace y el puño del Gigante chocan violentamente. El Gigante avanza. Grace, incluso si es repelida, retrocede instantáneamente. Una carga.
+
+Ella no retrocede. No retrocede. El puño y el hacha chocan. No, colisionan. Con un sonido explosivo, espíritu de lucha contra espíritu de lucha. Una contienda frontal de poder contra poder. La fuerza del brazo de Grace no muestra desventaja a pesar de la diferencia de masa.
+
+Grace, envolviendo todo su cuerpo en espíritu de lucha para volar, y el Gigante, usando el espíritu de lucha solo para el ataque y la defensa. En términos de resistencia, el Gigante probablemente ganaría. Una batalla prolongada favorecería al Gigante.
+
+Así es como debería haber sido.
+
+Esa era la antigua Grace. Grace, provista del poder de la noche de su vestido, incluso sonríe levemente, luego desata un espíritu de lucha aún más refinado, balanceando su hacha.
+
+Entonces, lo que decide la victoria es la calidad del equipo. Aunque usa espíritu de lucha, el equipo del Gigante es simple hierro. Incapaz de soportar los repetidos impactos intensos, el guantelete del Gigante se hace añicos y el hacha hiende profundamente su puño.
+
+Grita de angustia, retirando el puño. Grace se adentra a quemarropa. Él intenta agarrarla con su brazo ileso. Ella estampa el hacha contra su palma y Grace realiza un Cambio de Forma. El ataque oculto por la sombra de su cuerpo fue un punto ciego total para el Gigante. Además, activa un hacha fantasma para evitar que lea su trayectoria.
+
+Justo a través de la visera del casco de hierro del Gigante —su rostro— sus ojos son rebanados de lado a lado. El ataque de tajo proyectado desde el espíritu de lucha le arrebata por completo la visión.
+
+—¡Grace!
+
+Sheila llama. La figura de Sheila ha capturado al comandante en una red pegajosa. El hielo controlado de Ashley crea un camino como un riel desde el comandante hasta el Gigante. Grace discierne la intención, se impulsa desde su Escudo y aterriza en el suelo.
+
+Golpea con su hacha el talón expuesto del Gigante mientras este se retuerce, cubriéndose el rostro. Como si de talar un árbol colosal se tratara, el cuerpo del Gigante se tambalea. Ashley, corriendo junto a Lavigne, lanza Levitación sobre el comandante. Sheila balancea la telaraña pegajosa con fuerza centrífuga, deslizando al comandante por el raíl de hielo—.
+
+"¡Haaah!"
+
+Grace agarra la pierna del Gigante con ambas manos y, con un grito agudo, lo lanza mediante un movimiento de proyección sobre el hombro. Directo hacia el comandante que se deslizaba.
+
+El espadón envuelto en llamas. Las ondas de calor que irradia. Pero es diferente a lo de Zevion. Las contramedidas contra el fuego están totalmente listas. Por lo tanto, intercambiar golpes a una distancia mínima, donde nuestras armas se reflejan mutuamente, juega a mi favor. El rango donde puede aprovechar plenamente las propiedades de su arma... dentro de ese espacio está mi distancia. Nemea, revestida con una armadura de hielo por Magia de Agua, sujeta firmemente la cola del Demonio de Llama con sus garras, impidiéndole escapar.
+
+Aun así, el Demonio de Llama persiste. Chocando bastón y espadón repetidamente, mostrando los colmillos, lanzando garras afiladas. El viento abrasador roza mi mejilla. Sonidos agudos resuenan mientras danzamos por el aire, cruzando aceros.
+
+Invirtiendo el cielo y la tierra, alternando ofensiva y defensiva. Danzamos, derribando de paso a los arqueros apostados en lo alto de las murallas del castillo.
+
+Un golpe ascendente con el pomo. Simultáneamente, un rodillazo para desviar la atención de la postura alta. Intercepto la postura alta con mi Escudo, la baja con el cabezazo de Capella. Recibiendo el ataque con mi Escudo mientras libero un golpe de impacto.
+
+El Demonio de Llama retira su espadón, pero abre sus fauces de par en par y desata un Aliento. El efecto del Aliento de fuego es débil. Él también lo sabe, combinando el Aliento con Magia de Tierra para disparar perdigones dispersos de piedra calcinada.
+
+Aun así, el objetivo de nublar la visión con las llamas permanece inalterado.
+
+Despliego el Escudo en todas direcciones para la detección. Una estocada de garra afilada desde abajo en diagonal, apuntando a mi flanco. Giro mi cuerpo para evadir y, sin siquiera darme la vuelta, lanzo una estocada hacia atrás con Ouroboros.
+
+Incluso tras recibir un golpe de impacto en la cabeza, vuelve a blandir su espadón. Un tajo desde una postura rota. Despliego mi Escudo en diagonal, desviándolo con fuerza.
+
+Impresionante espíritu de lucha, pero eso depende del momento y el lugar. Realizo otro Cambio de Forma, pongo mi mano en su abdomen, asesto un golpe de impacto e inmediatamente sigo con un azote de Ouroboros.
+
+"¡Grooargh!"
+
+El Demonio de Llama sigue sin retroceder. Ignorando el daño, bate sus alas, ascendiendo rápidamente como para apartarme. Para evitar que escape, enreda deliberadamente su cola con Nemea, presionándome por ambos lados con sus brazos a través de mi Escudo, adoptando una postura temeraria que abandona toda defensa.
+
+Su objetivo: estamparme contra la Barrera, tal vez—.
+
+Despliegue del Círculo Mágico. Los ojos del Demonio de Llama se abren de par en par ante su magnitud. Aun así, no deja de ascender. Pensando que a esta distancia, podría atraparme en su propia magia dependiendo del tipo de hechizo. Si es Gran Magia, en efecto. Esa evaluación es tanto correcta como errónea. Tanto él como yo nos reímos.
+
+—Pero eso también es inútil.
+
+Mi Fórmula de Hechizo se completa antes de que me estrelle contra la Barrera. Simultáneamente, llega el impacto. Defiendo mi espalda con mi Escudo justo antes de chocar contra el muro del castillo, usando Magia de Viento para suavizar el impacto de la colisión.
+
+Usando teletransportación, me moví junto con el Demonio de Llama. Clavando el Bastón de Dragón en la boca abierta del Demonio de Llama antes de que pueda comprenderlo. Ouroboros gruñe como si se riera.
+
+—¡Atraviesa!
+
+Magia de Agua de 5º Nivel: Hoja de Carámbano. Una magia que crea un espadón de hielo afilado.
+
+La espada de hielo desplegada desde la punta de Ouroboros penetra la cabeza del Demonio de Llama. Liberándome del agarre del debilitado Demonio de Llama, giro verticalmente mientras realizo un barrido. El espadón de hielo dibuja un arco plateado, y el Demonio de Llama, con la cabeza partida verticalmente en dos detrás de mí, cae en picado.
+
+Gracias por leer mi obra.
+
+Los informes de erratas o caracteres faltantes, impresiones, marcadores, calificaciones, visitas, etc., son siempre un gran aliento para mi escritura.
+
+Gracias a ustedes, he llegado al capítulo 200. Expreso mi gratitud aquí.
+
+He publicado un breve artículo de introducción para los personajes de los capítulos 101 al 150 en el informe de actividad.
+
+Como de costumbre, para evitar spoilers, contiene información mínima, pero espero que les resulte útil.
+
+Además, dado que hubo un comentario previo queriendo conocer la apariencia de los personajes,
+
+aunque sea brevemente, he publicado empezando por los miembros del grupo y algunos personajes cercanos a la familia real.
+
++++
+
+# **200 – La hija de la generación anterior**
+
+—¿Están todos heridos?
+
+—Estamos bien por nuestra parte.
+
+Después de lidiar con el Demonio de Llama, el Gigante y el comandante, y luego limpiar el resto, la situación se había calmado un poco.
+
+Nadie parecía estar particularmente herido. Bueno, dado que monstruos como las Rocas Bomba aparecieron dentro del castillo, las Armaduras probablemente no eran una gran amenaza de todos modos.
+
+A las Armaduras Vivientes y Armaduras Pesadas desactivadas se les podían extraer sus Piedras Mágicas o recolectarlas tal cual para obtener armaduras o materiales metálicos. Las flechas de Irmhild habían dejado las formas originales de las Armaduras Vivientes prácticamente intactas... Probablemente se venderían a buen precio, lo cual fue bastante afortunado.
+
+Al Gigante y al Demonio de Llama se les extrajeron sus Piedras Mágicas. Resultaron ser piedras de una calidad bastante alta. Tendría que pensar en cómo usarlas más tarde.
+
+…Y así, tras terminar de recoger nuestro botín, regresamos a través del monumento de piedra situado justo después de la puerta del castillo.
+
+—¿…La Fortaleza Ardiente? ¿Significa esto que derrotaron a los guardianes?
+
+Los ojos de la recepcionista Heather se abrieron de par en par mientras observaba los trofeos dispuestos.
+
+—Básicamente, sí. Pero esos tipos acaban reapareciendo incluso después de ser derrotados, ¿verdad?
+
+—Ese debería ser el caso. Los registros son bastante antiguos, pero mencionan reapariciones.
+
+En BFO, se basaba en las fases lunares. En la realidad actual, parece que no revivirán por un tiempo... pero eventualmente lo harán. Tener Demonios de Llama y Gigantes que reaparezcan para entrenamiento de combate práctico cada vez tampoco es una mala idea.
+
+"Dicen que es la Fortaleza Ardiente..."
+
+"He oído que derrotaron a los guardianes de la puerta. ¿Deberíamos intentarlo?"
+
+"No seas tonto. En primer lugar, llegar a los niveles inferiores es prácticamente imposible. E incluso llegar a la puerta del castillo se supone que es bastante peligroso, por lo que he oído".
+
+"Sí. Ese chico... ¿no es el que construyó el teatro recientemente?"
+
+"Las apariencias engañan, como dicen".
+
+"Eso es. Debe ser una maga que ha entrenado durante cientos de años".
+
+"Ya veo…"
+
+...Ah. Los rumores se propagan por su cuenta y llegan a conclusiones extrañas, pero fingiré que no escuché eso. Heather mostró una sonrisa irónica ante los chismes de los alrededores.
+
+"De todos modos, ha pasado mucho tiempo desde que tuvimos un grupo capaz de explorar el interior de la fortaleza, por lo que el Gremio tiene altas expectativas sobre su botín. Pero, por favor, tengan cuidado de no lastimarse".
+
+"Tendré cuidado".
+
+"Tú también tienes mucho trabajo, Theo-kun".
+
+"Absolutamente".
+
+Cuando le conté a Alfred, que había venido de visita, lo que pasó en el Gremio, me dedicó una sonrisa irónica, como era de esperar, o mejor dicho, tal como anticipé.
+
+"¿Entonces, esta es esa Piedra Mágica?"
+
+"Sí. Pero... esta piedra ya tiene un elemento imbuido desde el principio".
+
+La Piedra Mágica del Demonio de Llama colocada en el mostrador de la sala de recreación se sentía cálida al tacto. Entre las Piedras Mágicas de alta calidad, aparecen algunas como esta con elementos imbuidos. Carecen de versatilidad pero pueden ser bastante poderosas en sus áreas especializadas.
+
+"¿Has decidido cómo usarla?"
+
+"Todavía no. Estoy pensando en usos tanto para esta como para la Piedra Mágica del Gigante, pero no me he decidido".
+
+Aunque llevar esto al taller estaría bien, no estoy seguro de cómo utilizarlo. Con una calidad tan buena, podría usarse para herramientas mágicas a gran escala, o tal vez debería desafiarme a mí mismo para crear algo completamente nuevo.
+
+Mientras Alfred y yo discutíamos varios usos potenciales, Cecilia apareció en la sala de recreación.
+
+"Amo. Lady Isabella está aquí para verlo".
+
+"¿Una invitada? No te preocupes por mí, deberías ir".
+
+"...Entendido. Iré a la sala de recepción de inmediato. ¿Podrías llamar a Sheila por mí también?"
+
+"Ciertamente".
+
+Cecilia hizo una pequeña reverencia y se retiró.
+
+"Hmm. Siento esto".
+
+"No te preocupes por eso. De todos modos, solo estoy aquí para pasar el rato".
+
+Alfred sonrió y miró hacia la mesa de billar. Realmente le había tomado gusto.
+
+"Si te gusta tanto, ¿debería poner una en el taller también?"
+
+"Te lo agradecería, pero tener demasiadas distracciones podría ser problemático... Eventualmente, podré jugar en el Castillo Real también, así que debería mantener la moderación".
+
+Dicho esto, Alfred comenzó a jugar al billar con los residentes de la Aldea del Laberinto que estaban en su descanso.
+
+Cuando me dirigí a la sala de recepción con Sheila, Isabella y otra persona estaban allí.
+
+Veamos... siento que la he visto en alguna parte antes... Ah, ella era la recepcionista del burdel, ¿verdad?
+
+"Gracias por su generoso trato hacia personas como nosotras a pesar de esta visita repentina. Ella es Dorothy".
+
+"Mis disculpas por no haberme presentado el otro día. Soy Dorothy".
+
+En cuanto Isabella me vio, inclinó la cabeza junto con Dorothy, la recepcionista que estaba a su lado. La apariencia de Isabella había cambiado de nuevo desde la última vez que la vi. A diferencia de su vestido de trabajo o del atuendo del Gremio de Ladrones enfocado en la movilidad, tanto ella como Dorothy vestían ropa formal elegante y sobria. Su forma de hablar también era mucho más formal ahora...
+
+"Para nada. Yo debería disculparme por hacerlas esperar. Soy Theodore Gartner. Ella es Sheila".
+
+Dicho esto, me senté con Sheila. Un sirviente nos trajo té de inmediato.
+
+"He venido hoy por el asunto del otro día".
+
+"Isabella-san. Yo me encargaré a partir de aquí".
+
+Dorothy tomó el relevo de Isabella y luego inclinó la cabeza mientras se arrodillaba sobre una pierna.
+
+"Gracias por vengar a mi padre".
+
+Así que se trata del incidente del Gremio de Ladrones. Dado que Isabella también vino, ella debe ser la hija del líder anterior. Probablemente, mientras se lidiaba con las secuelas de Randolph en relación con el Gremio de Ladrones, la información debió filtrarse de alguna parte.
+
+"Por favor, levante la cabeza. Eso también era parte de mi trabajo".
+
+"Aun así. Después de que mi padre falleció, Isabella-san me acogió... He estado bajo su cuidado pero no he podido compensárselo en absoluto. Pero... no. Precisamente por eso, no puedo olvidar la amabilidad que he recibido. Puede que no sea capaz de mucho, pero si hay algo que pueda hacer para recompensarle..."
+
+Ante las palabras de Dorothy, Isabella sonrió levemente con una expresión algo preocupada. Trabajar como recepcionista en el burdel fue probablemente... idea de la propia Dorothy.
+
+"Ciertamente he recibido sus palabras".
+
+"Sí..."
+
+"Bueno, como dije antes, era parte de mi trabajo. Desde mi posición, ocasionalmente podría pedir colaboración a través de conocidos. Eso es todo lo que puedo decir. Además, no me gustan especialmente las deudas pesadas".
+
+Insinué vagamente que podría utilizarla como fuente de información para el Gremio de Ladrones en el futuro.
+
+Hice una pausa allí y miré a Sheila. Ella asintió levemente y tomó el control de la conversación.
+
+"Randolph también era mi enemigo".
+
+"Isabella-san me lo contó".
+
+Dorothy sonrió con amargura y una expresión algo solitaria.
+
+"Mis padres y el padre de Dorothy... al parecer se conocían por el trabajo, pero nosotras nos vemos por primera vez. Así que..."
+
+Sheila extendió su mano derecha y dijo:
+
+"Me haría feliz que Dorothy fuera mi amiga".
+
+"¡E-Estaría encantada si me aceptaras...!"
+
+Dorothy tomó la mano de Sheila y se puso de pie.
+
+Amigas, ¿eh?... Bueno, creo que está bien.
+
+"Ya que tenemos la oportunidad, ¿por qué no van a jugar juntas a la sala de recreo un rato?"
+
+"Mm. Dorothy, ¿quieres venir conmigo?"
+
+"¿Eh, esto?"
+
+"Deberías ir".
+
+Despedidas por Isabella y por mí, las dos se marcharon.
+
+Aunque tengan conexiones profundas con el inframundo... tanto Isabella como Dorothy ocupan posiciones de influencia en la ciudad. Dado que operan con un sentido del deber y sentimientos humanos, si el Gremio de Ladrones es favorable hacia los monstruos amistosos, eso debería ser algo que agradecer.
+
+"¿Le va bien al Gremio?"
+
+"Estoy logrando organizar a los miembros restantes. Supe de algunos de los capturados por Randolph… Bueno, así fue como me enteré de lo que Randolph le hizo al líder anterior".
+
+"...Ya veo".
+
+Así que había miembros del Gremio de Ladrones entre los encarcelados en la mansión de Randolph.
+
+"Al igual que la señorita, también considero esto una deuda impagable… pero considerando la posición del Embajador, pensé que podría ser problemático si gente como nosotros apareciera en grandes grupos. Aun así, una deuda es una deuda. Tenía que expresar mi gratitud".
+
+"¿Así que vinieron como individuos en lugar de representar al Gremio?"
+
+"Sí. También quiero decirle que, de ahora en adelante, estaremos del lado del Embajador. Dada su posición, probablemente no pueda anunciarlo públicamente, pero si sucede algo, vendremos corriendo en cualquier momento".
+
+"Lo tendré en cuenta".
+
+Cuando respondí, Isabella asintió en silencio.
+
+"Bueno… ya es suficiente de eso. Isabella-san, ¿por qué no pasas tú también por la sala de recreo?"
+
+Ante mis palabras, Isabella parpadeó sorprendida.
+
++++
+
+# **201 – Hierba Malvada y Huerto Casero**
+
+Después de invitar a las dos a la sala de entretenimiento, conquistamos todos los juegos allí junto con Sheila, Alfred y los residentes de la Aldea del Laberinto.
+
+Isabella y Dorothy rápidamente se hicieron amigas de los residentes de la Aldea del Laberinto también. Sus buenas habilidades interpersonales probablemente provenían de entornos que involucraban a mucha gente con circunstancias complicadas alrededor del Gremio de Ladrones y los burdeles.
+
+"¿Actúas en ese teatro?"
+
+"Solo en las noches de luna llena".
+
+En cuanto a Dorothy, estaba discutiendo con entusiasmo sobre canciones e instrumentos musicales con Sheila e Irmhild. Parecía estar pasándoselo muy bien. Isabella observó a Dorothy y Sheila con una mirada afectuosa antes de volverse hacia mí.
+
+"Hablando de eso… el Embajador abrió una tienda en el Distrito Este, ¿verdad? ¿Planea vender estos allí?"
+
+"Sí. Ese es el plan".
+
+"En ese caso… ¿me gustaría hacer un pedido también, si está bien? Bueno, es en parte porque personalmente me gustan, pero—"
+
+Según Isabella… parece que tener juegos casuales como cartas y dardos sería perfecto para los burdeles.
+
+"Eso sería de gran ayuda. Después de todo, la tienda acaba de abrir".
+
+Supongo que esto cuenta como desarrollo de canales de venta. No tengo motivos para negarme.
+
+La propia Isabella también se había absorto bastante en los dardos. Sheila tenía buen control, pero Isabella parecía captar la técnica rápidamente también. Siendo una ejecutiva del Gremio de Ladrones, esta era probablemente su área de especialidad.
+
+"No estoy familiarizada con esta bebida—pero sospecho que podría haber imitadores para estos juegos. ¿Deberíamos estar atentos a aquellos que comercian con imitaciones de mala calidad?"
+
+Isabella murmuró algo así. Sonaba como si estuviera hablando de tomar medidas contra las versiones piratas.
+
+—No, no será necesario. Los artesanos del Gremio de Comercio parecen estar guardando la información con total confidencialidad, y si alguien quisiera fabricarlos, tendría que aprender observando e imitando, ¿verdad? A menos que sea algo particularmente malintencionado, creo que está bien.
+
+Nosotros tenemos la primicia del conocimiento técnico y contamos con la cooperación adecuada de los artesanos a través del Gremio de Comercio. Si la calidad difiere, ahí es donde entrará en juego el valor añadido de nuestro logotipo. No tengo intención de quedarme atrás de nadie.
+
+—Entonces te informaré si considero que hay mala fe.
+
+"Entendido".
+
+Esbocé una sonrisa irónica. Realmente es muy cumplidora.
+
+—¿Cómo va Harvesta?
+
+Por la noche, mientras realizaba experimentos y observaciones sobre la Harvesta de Evil Weed en la mesa baja de la habitación de estilo japonés, vigilando atentamente con las manos apoyadas en el borde de la mesa junto a Marlene y Seraphina, Ashley preguntó.
+
+—Sí. Es bastante interesante.
+
+—¡Harvesta es increíble!
+
+Estábamos acercando varios tipos de insectos que habíamos capturado en jaulas hacia Harvesta para observar sus reacciones...
+
+A las criaturas como las lombrices de tierra, que ayudan a mejorar el suelo, las dejaba en paz; pero a los insectos que comen hojas, o bien intentaba devorarlos activamente como una planta carnívora, o hacía gestos para ahuyentarlos con sus hojas.
+
+Lo que resulta especialmente interesante es que Harvesta parece ignorar a los insectos como las abejas, que ayudan con la polinización, o a los insectos beneficiosos que se alimentan de plagas.
+
+Bueno, eso es todo. Liberé a los insectos capturados por la ventana, dando por terminado el experimento por ahora.
+
+—No parece que simplemente sea caprichosa con lo que le gusta y lo que no.
+
+—Sí. Creo que juzga correctamente si los insectos le son beneficiosos o no. Por ejemplo, este insecto se come a otros, así que para Harvesta es neutral, pero no un enemigo.
+
+—Harvesta parece bastante lista.
+
+—¿Y qué hay de las plantas en macetas de afuera?
+
+Cuando Grace preguntó tras las palabras de Claudia, Ashley respondió.
+
+—Esas también... cuando se cultivan junto con Evil Weed, la velocidad de crecimiento es completamente diferente.
+
+Hmm... Definitivamente parece que vale la pena realizar pruebas de campo.
+
+—Sería bueno intentar cultivarlas junto con algunos cultivos.
+
+—Ya veo. Theodore está pensando en si se puede utilizar en métodos agrícolas.
+
+Asentí ante las palabras de Claudia.
+
+—Eso será más adelante. Por ahora, necesitamos mantenerlo a menor escala y verificar la seguridad.
+
+—La Aldea del Laberinto tiene varias semillas y plantones de cultivos.
+
+—Momento perfecto. Si podemos conseguir algunos, hagamos un huerto junto al cobertizo de almacenamiento.
+
+—Si se llega a una escala mayor, creo que la Baronía de Silun también podría cooperar.
+
+—Sí. Eso sería de gran ayuda.
+
+—Si la cosecha del territorio aumenta, sería maravilloso.
+
+Diciendo eso, Ashley sonrió.
+
+El territorio de Ashley es una región productora de grano. Teniendo en cuenta que Ashley y yo estamos comprometidos, si se establecen métodos agrícolas utilizando Evil Weed, probablemente sería de los primeros en adoptarlos.
+
+La escala de prueba actual es como un huerto casero, pero me gustaría realizarla a una escala algo mayor en el futuro. Para ello, necesitamos comprobar el sabor y las propiedades de los cultivos que crecen junto a la Hierba Malvada.
+
+Así que al día siguiente, decidimos crear un huerto junto al cobertizo de almacenamiento.
+
+Incluso con los cultivos, hay temporadas de siembra adecuadas, pero cuando se trata de agricultura, los residentes de la Aldea del Laberinto tienen más experiencia, por lo que los consejos están siempre a mano.
+
+"Para esta temporada... um. ¿Qué tal si plantamos calabazas?"
+
+"Sí. Tenemos algunos plantones de sobra".
+
+Claire la Arachne y Cyrille la Centauro se miraron y respondieron así. Así que serían calabazas. Si las plantamos ahora, deberíamos poder cosechar en otoño.
+
+El trabajo agrícola —especialmente crear un huerto desde cero— suele dar la impresión de ser bastante problemático... pero en mi caso, puedo usar Golems para tareas como quitar piedras del área del huerto o labrar la tierra. Así que hice que los Golems se dividieran el trabajo y lo terminaran rápidamente. Seraphina cabalgaba alegremente sobre la cabeza de un Golem que trabajaba.
+
+Trasplantamos las flores cultivadas por la Hierba Malvada dentro de una valla para crear un parterre adecuado.
+
+Mientras tanto, para el huerto de hortalizas, hicimos surcos redondeados y trasplantamos las Hierbas Malvadas entre ellos, luego plantamos los plantones para completar la configuración básica. Según mis conocimientos, consideré esparcir cal, pero como queremos ver los efectos de la Hierba Malvada, sería mejor crear tanto un huerto sin ella como uno con ella para realizar pruebas.
+
+Como teníamos los plantones, decidimos plantarlos a mano todos juntos. Aunque suene un poco irónico viniendo de mí, que uso Golems para facilitar las cosas, hay algo esencialmente propio de un huerto en hacerlo así.
+
+"Me gusta este tipo de trabajo".
+
+Claudia plantó los plantones con alegría. Parecía bastante hábil; tal vez se ha acostumbrado a tales tareas en la Aldea del Laberinto.
+
+"Claudia, ¿después de todo en la Aldea del Laberinto?"
+
+"Sí. Aunque no me dejan ayudar mucho, diciendo que no debería estar haciendo trabajos manuales".
+
+"Preferiríamos que nuestra princesa fuera más elegante".
+
+"¿Verdad?"
+
+Claire y Cyrille asintieron la una a la otra con sonrisas, y Claudia esbozó una pequeña sonrisa irónica.
+
+Lavigne cavaba agujeros con sus patas delanteras, Marlene plantaba los plantones y Seraphina los cubría con tierra; el trabajo agrícola progresó pacíficamente en todo momento. Era una escena bastante conmovedora, y las sonrisas de las mujeres parecían particularmente radiantes.
+
+"Los plantones han sido regados a fondo. Después de esto, iremos ajustando las cosas mientras observamos su progreso. Cuando las calabazas florezcan, necesitarán ser polinizadas".
+
+Claire explicó varias cosas. Parecía que aún quedaban procesos como la poda y la polinización artificial.
+
+Hmm. Dejando a un lado la poda, ¿se encargaría la Hierba Malvada también de la polinización artificial?
+
+Aunque pensé que podría estar esperando demasiado, una parte de mí se preguntaba si podría ser así. Al fin y al cabo, ellas son las que parecen estar cultivando las plantas circundantes.
+
+"Por favor, cuídenlas bien".
+
+Ashley estaba acariciando la cabeza de las Hierbas Malvadas. Las que estaban situadas entre los surcos permanecían dóciles y receptivas.
+
+Mmm. Básicamente, mientras podamos confirmar esa escena... Si no se nos pasa el momento de la floración, deberíamos ser capaces de observar las reacciones de la Hierba Malvada.
+
+Bueno, también me preocupa un poco el progreso del crecimiento del jardín, así que lo revisaré con frecuencia mientras observo.
+
++++
+
+# **202 – El Libro de los Cautivos**
+
+Después de que el trabajo en la granja se calmara por un rato, Cecilia nos trajo granizado. Como hacía buen tiempo, decidí comerlo afuera y tomarme un descanso con todos.
+
+"Calabazas, ¿eh? Tengo ganas de que llegue la cosecha".
+
+"También hay algunos aspectos experimentales, pero yo también los espero con ansias".
+
+"Sí. A mí... siempre me han gustado los pasteles de calabaza que hace Mihaela-sama".
+
+"¿Ah, sí? Si conseguimos una cosecha lo suficientemente buena como para comer, sería estupendo que nos horneara algunos pasteles".
+
+Ante esas palabras, Mihaela enderezó su postura e inclinó la cabeza.
+
+"No sé si será de su agrado, pero si mi repostería es aceptable..."
+
+"Por favor, déjanos ayudarte cuando llegue el momento", dijeron Grace y Cecilia.
+
+Mihaela mostró una sonrisa gentil, asintió y se llevó elegantemente el granizado a la boca.
+
+"...Hablando de eso, ¿hay algún cultivo inusual en la Aldea del Laberinto?"
+
+Curioso, le pregunté a Claudia. No estaría mal intentar cultivar algo raro si lo tuvieran. Como hay consideraciones estacionales como la siembra de semillas y la plantación, es mejor planificar con antelación.
+
+Ante mis palabras, Claudia mostró una expresión pensativa antes de responder.
+
+"No hay productos agrícolas particularmente raros... pero podría haber algo que podría llamarse un producto especializado. No sé mucho sobre asuntos mundanos, así que no estoy segura".
+
+"Un producto especializado, ¿eh? Podría ser bueno considerar venderlo. Como vender solo lo que recibimos".
+
+Si solo vendemos lo que recibimos, la carga sobre la producción sería ligera.
+
+"Eso podría estar bien. Se trata de la ropa que usan los residentes de la aldea, pero está hecha de tela tejida con hilo hilado por las Arácnidas".
+
+"Eso es... ciertamente inusual".
+
+"¿Sería algo que podríamos vender?"
+
+Claire, que estaba comiendo granizado, parecía insegura...
+
+"De hecho, en Termwills, la ropa tejida con seda de araña de agua por Sirenas y Tritones se importa mediante el comercio y se vende. Sería bueno preguntar a un experto. Por supuesto, solo procederemos si obtenemos opiniones positivas".
+
+"En ese caso, les preguntaré a las otras Arácnidas".
+
+Mmm. Si pudiéramos vender esa tela aquí, usar el dinero ganado para comprar bienes del exterior y traer prosperidad a la Aldea del Laberinto... esencialmente se convertiría en una forma de comercio.
+
+"Las Arácnidas parecen entusiasmadas. Tenían algo de tela antes de confeccionarla, así que la traje conmigo... ¿qué te parece?"
+
+Esa noche, recibí una respuesta de Claudia. Me dejó tocar la tela que sostenía y tenía una textura muy agradable. Seda de araña, ¿eh? He oído que, como hilo, es bastante duradero. Si ese es el caso, el Hilo de Arácnida también debería tener una durabilidad excelente.
+
+"Entonces llevaré eso a la ciudad y preguntaré por ahí".
+
+El sastre que nos ayudó antes con el abrigo de Lunaworm sería una buena opción. Iré con Miriam otro día.
+
+"Dijeron que quieren probar si se puede vender como producto", dijo Claudia con una sonrisa.
+
+Sí. Parece que les está estimulando de varias formas, lo cual es bueno.
+
+Mientras me relajaba en la habitación de estilo japonés pensando en la tela, recibí un mensaje de Alfred a través del dispositivo de comunicación.
+
+"¿Puedes venir a la Torre Norte ahora? Parece que hay un problema".
+
+…¿Un problema en la Torre Norte? Debe de tener que ver con Rosemary… pero ¿qué habrá pasado?
+
+Aunque sea un mensaje de Alfred, probablemente debería considerarlo como si viniera del Rey Melvin.
+
+"…Tengo que ir al Castillo Real un momento. Parece que hay algo que discutir sobre Rosemary. Puede que llegue tarde".
+
+"Entendido".
+
+"Dejaré a Caduceus aquí. Si pasa algo, contáctame por el dispositivo de comunicación".
+
+…Me llevaré a Ouroboros conmigo. Quién sabe qué podría pasar. Poniéndome mi abrigo de quimera, respondí que iría de inmediato y luego me dirigí a donde Lindwurm estaba jugando con los carbunclos en el patio.
+
+"Al Castillo Real".
+
+Montando en el lomo de Lindwurm, anuncié nuestro destino y él soltó un grito. Tras esperar a que los carbunclos se alejaran, emprendió el vuelo.
+
+Apresurándome hacia el Castillo Real, aterricé cerca del establo de dragones y me dirigí a la Torre Norte. Los guardias de la entrada parecían normales. Al parecer, no se trata de una fuga.
+
+Subiendo en la piedra flotante, ascendí a los pisos superiores de la Torre Norte. Al pasar por el pasillo, me asomé a la habitación de Rosemary y me encontré con que el Rey Melvin estaba allí. También estaban presentes varios sirvientes destinados en la Torre Norte. Rosemary… parecía estar sentada inmóvil en su silla.
+
+"Has venido", dijo el Rey Melvin con una expresión algo tensa.
+
+"¿Qué pasó?"
+
+"Hmm. El estado de Rosemary es extraño. Supera un poco mi capacidad de manejo".
+
+Miré a Rosemary. Lo había notado desde que entré en la habitación… la anomalía era evidente.
+
+Su expresión era tan inerte que te lo creerías si te dijeran que era una muñeca. Sus ojos permanecían nublados, como si le hubieran arrebatado toda emoción. Ciertamente, esto podría calificarse de situación anormal.
+
+A juzgar por las circunstancias, probablemente un sirviente notó la anomalía y se lo informó al Rey Melvin.
+
+Si tuviera que adivinar, podría ser una poción mágica. O algo más… Si es una poción mágica, debería ser posible eliminarla más tarde con el amuleto de repulsión del mal, pero…
+
+"Con permiso".
+
+Toqué la mano de Rosemary y realicé una circulación de Ki.
+
+El flujo de poder mágico es extraño. Es muy bajo… o mejor dicho, parece estar filtrándose fuera de su cuerpo de alguna manera…
+
+Seguí su poder mágico lentamente, como trazando un hilo fino. El lugar al que conduce es—
+
+"…¿Quién la descubrió primero?"
+
+"F-fui yo", una sirvienta levantó la mano tímidamente.
+
+"¿Podrías contarme con detalle la situación en ese momento?"
+
+"Bueno… cuando me di cuenta, ya estaba en este estado. Le había traído la cena, pero no respondió cuando la llamé… Pensé que estaba investigando en su escritorio como de costumbre, pero…"
+
+Ya veo…
+
+Había un solo libro sobre el escritorio. El poder mágico de Rosemary parecía estar siendo absorbido por ese libro.
+
+Debe ser una fórmula de hechizo similar a la magia de maldición. Las páginas del libro estaban abiertas, pero como se quedaron así y nadie excepto Rosemary había experimentado anomalías, parecía que el simple hecho de mirarlo no causaba nada. Los caracteres escritos parecían ser de una época bastante antigua y, a simple vista, era imposible saber qué decían.
+
+Caracteres antiguos, eh… Esto es, bueno…
+
+Utilicé el dispositivo de comunicación para establecer contacto. Tras explicar brevemente la situación, recibí una respuesta al poco tiempo.
+
+"Es una trampa mágica tendida por magos antiguos. La incrustan en los libros para capturar las almas de quienes comprenden el significado de páginas específicas, arrastrándolos al mundo dentro del libro".
+
+Ese fue el contenido de la respuesta de Claudia.
+
+Captura, eh… Es una suerte que no fuera una trampa mortal inmediata… pero dijo que es problemático porque, si se deja así, equivaldría al agotamiento del poder mágico.
+
+"¿Cuál es el método para romper la maldición?"
+
+"Desde fuera, es imposible excepto para quien puso la trampa. Desde dentro, es posible… derrotando al guardián, aunque requiere el uso de la fuerza… He oído que el carcelero del libro es bastante formidable".
+
+Según Claudia, la fórmula del hechizo solo funciona dejando una vía de escape desde el interior, aumentando así el riesgo para potenciar su eficacia. Por lo tanto, incluso si uno es capturado por el libro, no significa una perdición inmediata. Dentro del libro, puedes luchar igual que fuera… pero, por supuesto, eso también significa que el carcelero se fortalece en consecuencia.
+
+Probablemente sea una trampa para contrarrestar a quienes perturbaran el estudio.
+
+Supongo que para un archivo de libros prohibidos se prepararían tales trampas. Desde la perspectiva de quien puso la trampa, puede hacer lo que quiera —hervir, asar, preparar a su gusto— con el oponente que ha sido capturado y convertido en una especie de muñeco.
+
+Permítanme organizar la situación. Así que Rosemary intentó descifrar el documento antiguo con la trampa y fue capturada por el libro.
+
+El autorrescate sería imposible para Rosemary, que tiene su magia sellada. Para ir tras ella en una misión de rescate… necesito entender el significado de las páginas del documento antiguo. Alrededor del libro estaban las notas de Rosemary. También había una tabla comparativa de los caracteres que Rosemary había descifrado. Con esto…
+
+"La situación se ha aclarado".
+
+Tras explicar la información de Claudia y las contramedidas que había considerado al Rey Melvin, este frunció el ceño y cerró los ojos.
+
+"¿Qué pasará si se queda así?"
+
+"Sería lo mismo que continuar en un estado cercano al agotamiento del poder mágico. Si no puede salir durante mucho tiempo, se debilitará y se consumirá… eventualmente, claro está".
+
+El rey Melvin puso una expresión de dolor. Dicho esto, mi curso de acción ya estaba decidido.
+
+"...Estoy pensando en entrar en el libro".
+
+"—¿Tú? Pero considerando lo que ella hizo, no sería justo obligarte a cruzar un puente tan peligroso".
+
+"Puede que sea así, pero eso es otra cosa. Parte de la razón por la que está en este estado es porque estaba ayudando con mi trabajo... y, sobre todo, no soporto ver cómo se debilita".
+
+La situación de un familiar que solo observa cómo su pariente se debilita es repugnante, incluso desde la perspectiva de un espectador.
+
+Confiarlo a la Orden de Caballeros es imposible. Es necesario comprender el contenido del grimorio. El Cuerpo de Magos podría ir tras ella, pero... Claudia dijo que el oponente es bastante formidable. Con habilidades a medias, podríamos terminar con un desastre doble.
+
+En cualquier caso, en esta situación, no tengo la opción de dejárselo a otros. Para no volver a probar tal amargura, quiero volverme mucho, mucho más fuerte.
+
+"¿Puedo llevarla a ella y al libro a la mansión? Si no regreso, por favor envíen refuerzos".
+
+Al decir esto con una sonrisa, el rey Melvin agonizó durante bastante tiempo... pero finalmente me dijo:
+
+"Mis disculpas... debo decir esto no como rey, sino como padre. Por favor, perdona mi necedad por ponerte siempre en la línea de fuego".
+
+"No. Yo elijo mis propios campos de batalla. Este es el resultado de eso".
+
+Bueno, entonces... El guardián del libro, ¿eh? Me pregunto qué tipo de oponente será.
+
++++
+
+# **203 – El contenido del libro**
+
+Rosemary y su diario. Un libro del que se dice que captura almas.
+
+Primero, decidimos trasladarlos a mi mansión. Esto era para asegurar el apoyo de Claudia.
+
+Rosemary fue puesta bajo restricciones mediante Magia de Subyugación, prohibiéndole usar magia o crear pociones mágicas, y prohibiéndole además filtrar información obtenida a través de pociones mágicas.
+
+Lo primero es el problema actual. Si pudiera usar magia, la ayudaría a escapar del libro, ya fuera por su cuenta o cooperando conmigo. Sin embargo, para eliminar la Magia de Subyugación, su propia conciencia es absolutamente necesaria, lo que significa que la propia Rosemary debe responder.
+
+Para eliminarla, ya sea la persona que sostiene las riendas de la Magia de Subyugación, alguien que haya dominado la fórmula del hechizo de eliminación, o alguien que posea la herramienta mágica de eliminación, que es un tesoro, debe hacer contacto directo con ella misma.
+
+En resumen, esto significa que el prerrequisito para la eliminación no puede cumplirse sin entrar en el libro. Dado que el rey Melvin sostiene las riendas de la Magia de Subyugación de Rosemary, no podemos permitir que entre en el libro.
+
+Lo mismo ocurre con alguien que conozca la fórmula del hechizo. Incluso si entran, si no son combatientes, no tiene sentido.
+
+Así que, yo irrumpiría en el libro llevando la herramienta mágica... pero quien la posee es mi cuerpo físico. No era seguro si se aplicaría una vez que estuviera dentro del libro, en un estado de solo mi alma.
+
+"El contenido escrito... cuando entiendes la descripción de la Fórmula del Hechizo hasta cierto punto, se activa una trampa y eres arrastrado al mundo interior. Ya te he dicho las precauciones respecto al guardián... ¿tienes alguna otra pregunta?"
+
+"Estoy bien. Primero, simplemente copiaré las páginas que estaban abiertas sin descifrarlas, así que por favor prepara un sistema para manejar una situación de doble emergencia."
+
+Copié los caracteres escritos con tinta en el papel tal como estaban y se los entregué a Claudia. Esto era para que ella pudiera proceder a descifrarlos de una manera que no involucrara el libro directamente, permitiendo un despliegue rápido de personal más tarde si fuera necesario.
+
+"Sí. Déjame a mí los asuntos después de que Theodore entre."
+
+Claudia recibió los papeles y asintió con expresión seria.
+
+"...Por favor, ten cuidado. Si pasa algo, yo también iré."
+
+"Theodore-sama... por favor, no salgas herido."
+
+"Vuelve... pronto."
+
+Grace, Ashley y Marlene... todas mostraban expresiones de preocupación.
+
+"Está bien."
+
+Les sonreí y las abracé por un momento. Al tratarse de una infiltración en solitario, las circunstancias eran diferentes a las habituales, por lo que probablemente estaban inquietas. En cuanto al debilitamiento del cuerpo físico debido al agotamiento del Poder Mágico, debería ser posible retrasarlo suministrando Poder Mágico con Pociones Mágicas.
+
+"Ten cuidado, Theodore."
+
+"Cuando lleguen Justia y Dominique, te apoyaremos con Melodía Maldita."
+
+"Yo también ayudaré a Ilum."
+
+Sheila, Irmhild, Seraphina. Les asentí.
+
+"Que la fortuna favorezca tus armas."
+
+"Por favor, cuídate."
+
+Y luego Cecilia y Mihaela. Fortok, Claire y los demás residentes de la Aldea del Laberinto. Bajo su mirada, me enfrenté al libro.
+
+"Mm. Bueno, me voy."
+
+Había un problema al dirigirse al interior. Normalmente, parece que es imposible llevar equipo cuando tu alma está siendo succionada.
+
+Así que tomé contramedidas haciendo circular Poder Mágico a través de Ouroboros y el Abrigo de Quimera para que fueran reconocidos erróneamente como pseudo-partes de mí. Tanto Ouroboros como el Abrigo de Quimera son Criaturas Mágicas. Diría que las probabilidades de que esto funcione son de cincuenta-cincuenta.
+
+Dejé atrás el Caduceo. Confirmé que la conexión de Poder Mágico se mantenía. Quizás podamos crear un medio de comunicación con el exterior.
+
+Mientras aumentaba mi Poder Mágico mediante la circulación, comparé el diccionario con el diario de Rosemary y procedí con el descifrado. Los caracteres utilizados eran de una era antigua... pero estaba acostumbrado al trabajo de descifrado por haber hecho varias cosas similares.
+
+Dado que originalmente era una trampa y el diario de Rosemary también estaba allí, la dificultad del descifrado en sí no era tan alta.
+
+La descripción de la Fórmula del Hechizo. A medida que el significado se volvía más claro a través del descifrado, sentí una sensación como si aparecieran escenas en mi mente.
+
+Era un pueblo. Las calles de algún pueblo. Sombras retorciéndose y peces plateados volando en el cielo.
+
+Por un momento, mi conciencia se desvaneció —sentí una sensación de mareo— y cuando volví en sí, estaba en medio de un pueblo desconocido.
+
+Los alrededores estaban despejados y varias cosas se retorcían, pero no había señales de que atacaran. Ouroboros y el Abrigo de Quimera... están bien. Vinieron conmigo. La circulación... es posible. No hay problema. El flujo de Poder Mágico conectaba mi cuerpo físico con el libro.
+
+Puedo sentir la conexión con Caduceus... pero parece que no puedo vincularme. No puedo ver la situación exterior, pero bueno, como puedo enviar instrucciones mínimas, debería poder hacerles saber que estoy a salvo.
+
+Miré a mi alrededor. El paisaje urbano se sentía algo antinatural. No había rastros de gente viviendo allí. No había el deterioro ni la pátina que deberían aparecer con el tiempo. Daba la impresión de ser artificial, como una réplica de una ciudad insípida y seca.
+
+A lo lejos, un enorme Castillo. La gente que caminaba por las calles era como sombras huecas. De vez en cuando, soltaban algo que sonaba como gemidos de dolor.
+
+Ojos y una boca. Rostros con solo tres agujeros redondos. Cuerpos como una niebla vaga. Parecían deambular sin rumbo fijo.
+
+Al mirar al cielo, criaturas plateadas volaban a velocidades de bala. Esos son... gigantescos
+
+Pececillos de plata (Shimi), ¿verdad? ¿Se les llamaba polillas de los libros? El cielo estaba lúgubre y nublado, inquietante... pero, en efecto, esto era el interior de un libro.
+
+El insecto que suele llamarse polilla del libro es el escarabajo del reloj de la muerte, pero no veo ninguno de esos aquí. Dado que los pececillos de plata causan menos daño, ¿quizás se tolera su presencia?
+
+De todos modos, ni los residentes sombríos ni los pececillos de plata me prestan atención. No sé qué pasaría si los provocara.
+
+Aun así... de alguna manera, siento una sensación de nostalgia, de familiaridad.
+
+"Ah... esto es—"
+
+Esta incomodidad es similar a estar dentro de un espacio reproducido en RV.
+
+Mirando desde esa perspectiva, noto que el paisaje urbano ocasionalmente tiene interferencias, y símbolos fragmentarios y sin sentido parpadean aquí y allá.
+
+Claudia dijo que el guardián es el soberano que construye y mantiene este mundo, pero el cautivo es, en última instancia, igual. Esa es la naturaleza de la Fórmula del Hechizo del contrato, la Magia de Maldición, al parecer.
+
+Dijo que las habilidades reales de la persona se reflejan con precisión, pero la esencia es más cercana a un mundo mental... Ya veo.
+
+Un espacio virtual que atrae a las almas. Ahora que lo mencionas, es similar a la RV.
+
+Pero en lugar de reflexionar sobre eso, tengo otras cosas que hacer ahora. Detendré el análisis aquí; necesito encontrar a Rosemary.
+
+El problema inmediato es cómo encontrar a alguien cuya ubicación desconozco.
+
+La primera idea que me viene a la mente es dirigirme hacia el conspicuo Castillo a lo lejos... pero Rosemary es más del tipo que comprende a fondo la situación antes de moverse, en lugar de dirigirse directamente a un lugar tan obvio.
+
+En ese caso... el enfoque razonable sería crear un alboroto mientras le envío una señal reconocible.
+
+Primero, caminé por la ciudad durante un rato y llegué a una plaza. Esta zona debería estar bien. Decidí enviar una señal a Rosemary, también para comprobar la sensación de usar Magia dentro del libro.
+
+El método: crear un Gólem. Rompí los adoquines y comencé a construir un Gólem enorme.
+
+Los residentes de las sombras se alejaron lentamente, pero los pececillos de plata parecieron notarme y vinieron volando hacia mí.
+
+Pececillos de plata, eh. Realmente no quiero lidiar con ellos, pero—.
+
+"No estorben".
+
+Derribé a los pececillos de plata que cargaban a gran velocidad con Ouroboros. En el momento en que tocaron el Bastón de Dragón imbuido de Poder Mágico, se hicieron añicos, dejando salpicaduras plateadas. Sus movimientos son rápidos, pero son frágiles. Probablemente no necesite comprobar su Poder de Ataque.
+
+Desplegué un Escudo. En el momento en que un pececillo de plata lo tocó, usé la manipulación de Poder Mágico para asestar un golpe de choque, y estalló como un fuego artificial plateado. Un momento después, caracteres antiguos corrieron como estática y desaparecieron.
+
+Alrededor de una docena, supongo. Mientras agrandaba el Gólem y me encargaba casualmente de los pececillos de plata, parecieron darse cuenta de que no tenían oportunidad y se alejaron por su cuenta.
+
+Todavía vuelan a lo lejos, pero parece que los pececillos de plata han dejado de atacarme por ahora. Como no hay nadie más atacando, me concentré en construir el Gólem.
+
+Magia de Tierra de 7º Nivel: Crear Gólem Gigante. Es un Gólem más grande que los edificios circundantes, pero su apariencia está modelada directamente a mi imagen. Creo que es más probable que Rosemary lo note y venga a investigar. Yo mismo puedo simplemente flotar a la altura de la cabeza usando Levitación.
+
+Bueno… si esto no llama su atención, puede que tenga que destrozar un poco el paisaje urbano.
+
+"Pensé que finalmente me había vuelto loca…"
+
+Tal como planeé, o mejor dicho, poco después, Rosemary apareció en la plaza.
+
+Fue justo cuando estaba pensando en destrozar la ciudad. Menos mal que llegó a tiempo.
+
+"Me alegra que no estés herida".
+
+Dicho esto, aterricé en el suelo. Quizás había sido atacada por los pececillos de plata; el dobladillo del vestido de Rosemary estaba desgarrado. Sostenía un palo que debía haber recogido de algún lado, pero por lo que se veía, no parecía estar herida.
+
+"¿Por qué estás aquí?"
+
+Rosemary parecía asombrada al decir eso.
+
+"Para rescatarte. Fuera del libro, el cuerpo de Rosemary se ha vuelto como una cáscara vacía".
+
+Cuando di esa respuesta, los ojos de Rosemary se abrieron de par en par.
+
+"Fuera… ¿del libro? Así que… es eso. Así que entendiste que fui capturada, no que huí. ¿Mi cuerpo se quedó afuera? Ya veo…"
+
+Rosemary pareció comprender su situación con relativa precisión a partir de mis palabras.
+
+"Primero… gracias, diré eso. Pero—"
+
+Vaciló por un momento y luego puso una mueca de disgusto.
+
+"Considerando la situación, tu persona es mucho más importante, ¿no? ¿Es esta la decisión de mi padre?"
+
+¿Cree que irrumpí sin información previa? Ciertamente… desde la perspectiva de Rosemary, ni siquiera sabe si hay una salida.
+
+Para el actual Reino de Verdugal, mi persona es más importante y, sobre todo, ella piensa esto porque es quien cometió el error.
+
+"No. Yo lo propuse. Por ahora, ¿nos sentamos a hablar allí?"
+
+I pointed towards the table seats at what looked like a food ==return== drink establishment near the fountain. Rosemary seemed concerned about the silverfish in the sky, but when she realized they weren’t attacking, she nodded.
+
+Even after sitting down, no waiter came to take our order, but we sat facing each other at the table.
+
+“To give you the conclusion first, we can get out.”
+
+“How can you say that?”
+
+Rosemary seemed somewhat uncomfortable. Maybe because she didn’t have the feather fan she always uses. Though she is wearing a dress.
+
+“There’s someone who knows about the trap set in the book. The way out is apparently to defeat the guardian who is somewhere inside this book.”
+
+“Guardian…?”
+
+“The ruler ==of== this world, but conditionally, they’re equal to us. That’s how they enhance the power ==of== the Curse Magic.”
+
+“…So by taking on a disadvantage, the effect is strengthened.”
+
+“And, I’ve brought the Magic Tool to remove the Subjugation Magic… but it’s no use. ==if== I don’t have it with me here, there’s no way to use it, so to speak.”
+
+It’s a Magic Tool shaped like a key… but right now, I don’t have it with me.
+
+“You brought out a Treasure? I have a prior record, you know.”
+
+Is she suggesting the possibility that it was a trap set by Rosemary? That would be too crude  ==for== a scheme.
+
+“I thought that was unlikely. It would mean you knew about the book’s existence in advance, were confident the Magic Tool would work even inside here, ==return== even calculated that I would come to rescue you.”
+
+“That’s true. Even as a gamble, it might be too optimistic. Even ==if== it worked, whether in a fight ==or== a Surprise Attack, I don’t think I could win in combat.”
+
+Saying that, she shrugged her shoulders.
+
+“Well, let’s move on. ==if== we dawdle too long inside here, I hear the physical body weakens ==return== dies. Either from Magical Power depletion, ==or== else starvation ==or== dehydration. The crucial Magic Tool—I’m trying to use it, but it seems to have no effect.”
+
+“Adding insult to injury. I could manage the silverfish even without magic, but the guardian… I probably couldn’t handle that no matter how hard I tried.”
+
+It seems she had been managing without magic until I arrived. They are fragile, sure, but they ==do== fly around at considerable speed.
+
+But ==if== the Subjugation Magic removal Magic Tool isn’t effective, Rosemary’s power will remain sealed. …Well, I had anticipated that too. We’ll just have to manage somehow.
+
++++
+
+# **204 – The Demon with the Owl Mask**
+
+“Can I count on you two?”
+
+I summoned Nemea ==return== Capella from within the coat ==return== asked. The lion ==return== goat each nodded. Seems there’s no problem.
+
+I took off the Chimera Coat ==return== handed it to Rosemary.
+
+“What an unusual magical creature. What about the decrease in your combat strength?”
+
+“Being able to fight without worrying about my back is more significant.”
+
+“I see.”
+
+Rosemary tore the hem ==of== her dress without hesitation to ensure ease ==of== movement before putting on the coat.
+
+“It doesn’t seem to move according to my will.”
+
+Huh? Both Nemea ==return== Capella are semi-autonomous magical creatures that should move according to the wearer’s will… When I send a command from my side, Nemea pokes her head out ==return== looks at me.
+
+“…Could it be because I’m the one who wears it outside the book? Well, I’ll order them to focus on interception ==return== dodging.”
+
+I’m ==not== putting Rosemary in the vanguard, so this should be fine.
+
+When I turned my gaze toward the castle visible at the city center, Rosemary asked.
+
+“==If== there’s a guardian, would it be in that castle?”
+
+“Probably. We could charge straight in, but let’s prepare a bit first. ==if== you want to mix something  ==for== self-defense, I can ==do== it  ==for== you, but what ==do== you think?”
+
+“…I wonder ==if== anything here can be trusted.”
+
+Rosemary frowned, but I don’t see it as much ==of== a problem.
+
+“I think the so-called guardian is actually fair. The reason silverfish exist here despite ==not== being particularly strong is probably because ==of== that.”
+
+“Inside the book, to make us realize?”
+
+She must have been investigating before I arrived, ==return== I think Rosemary had been considering aspects related to the book too.
+
+“Exactly. Normally, you can’t bring weapons ==or== armor in. Yet it’s equal, which is strange. ==if== it’s unavoidable due to the mechanism, then it means we’re free to use whatever’s in the town to compensate  ==for== the prisoners’ disadvantage as much as possible.”
+
+==And== I think this is rather important information. The extent ==of== that fairness makes this world more robust the more thorough it is… ==return== apparently serves as the basis  ==for== the guardian’s power.
+
+“Then let’s prepare something. I saw what appeared to be an alchemist’s shop over on that street. We should be able to quickly prepare some makeshift offensive tools.”
+
+Rosemary stood up. Well then, we’ll continue our conversation while moving ==return== mixing.
+
+“==If== everything existing in this town has meaning… then what about these residents?”
+
+The residents were just wandering aimlessly while letting out painful moans. …==And== they were running away from the golems too.
+
+“…Victims, perhaps?”
+
+“The souls ==of== those who lost to the guardian?  ==for== a trap in a hidden forbidden library, wouldn’t the number ==of== these victims be strange?”
+
+“No. Apparently, magicians summon ==return== contract guardians, incorporating them into spell formulas. So they might have multiple territories (..). In any case, it seems guardians have rules requiring them to fight prisoners.”
+
+I’ve heard that book guardians with multiple territories can travel between them. In that case, the territory would be liberated over time ==if== the guardian is absent, but well, it’s originally an interception trap. It’s ==not== something that happens often – prisoners getting caught here ==return== there to the point the guardian can’t handle it all.
+
+At least regarding this book, ==if== we assume the residents are past victims, then the guardian probably isn’t absent.
+
+It would be better to share information about what’s inside the book. I’ll tell Rosemary.
+
+“I see…”
+
+“Though that’s only ==if== my speculation is correct.”
+
+“Probably, that’s right. After I came here ==return== some time passed, the residents started appearing. The guardian must be carrying them around. In other words, it’s showing off the prey it’s captured everywhere.”
+
+“How tasteless…”
+
+“I agree. All the information coming out just confirms how powerful our opponent is, ==return== it’s getting tiresome.”
+
+When we entered the alchemist’s shop, Rosemary began browsing various items.
+
+“Quite a good selection. With this—”
+
+She arranged materials on the mixing table.
+
+My work simply involved filling a flask with medicinal liquid, pouring in several types ==of== powdered medicine, ==return== sealing it with a cork. Rosemary gathered all the magic stones in the shop ==return== stuffed them into a leather bag.
+
+“What are you making with that?”
+
+“It would be faster to show you. Let’s test it.”
+
+Rosemary went out to the street ==return== tried to throw a magic stone into the flask but stopped her hand.
+
+“…No good. It violates the subjugation magic.”
+
+“Just need to put a magic stone in, right?”
+
+I can have Nemea ==or== Capella help. I had them hold a magic stone in their mouth ==return== drop it into the flask.
+
+“With this, it might work.”
+
+Saying that, Rosemary casually threw the flask, ==return== the moment it shattered on the cobblestones, a rather spectacular green pillar ==of== fire rose up. It seemed to have different properties from natural fire, ==return== I could feel intense magical power radiating from it rather than heat.
+
+“Flames that interfere with the magical power ==of== whatever they touch, I suppose. Considering the material costs, it’s ==not== cost-effective, so it’s practically useless.”
+
+I see… So it’s like a makeshift grenade.
+
+Well then, let’s make some more ==of== the same without getting in Rosemary’s way, then head to the castle.
+
+The castle interior was completely silent. Neither the residents that were in the town nor the silverfish flying around were present. No soldiers came out to intercept us either.
+
+Put conversely. They’ve thoroughly constructed an environment that prevents any interference.
+
+In that case, the guardian is probably neither running nor hiding, but waiting somewhere like the throne room.
+
+“About the guardian’s true identity…”
+
+“Continuing from our earlier conversation?”
+
+This came up briefly while sharing information with Rosemary. Guardians can be spirits, magical creatures, ==or== vary greatly depending on the magician who set the trap.
+
+The only common point is that beings close to psychic lifeforms are chosen.
+
+“The guardian here… no, the lord, I suppose. This one has clear malice.”
+
+…Malice, huh. Certainly. Even though it should be a trap  ==for== interception ==return== delay, it goes beyond that by ==not== liberating the victims’ souls, treating them like a collection ==or== trophies. It shows them off to prisoners ==return== delights in it. Despite having such poor taste, it follows the rules. It prepared an alchemist’s shop with such a good selection that Rosemary was impressed. Probably other weapons ==return== armor would be first-class too.
+
+A psychic lifeform that freely travels between multiple territories, even though it should have a contract with a magician. With such a guardian, the candidates naturally narrow down.
+
+“…A demon?”
+
+“I thought so, ==return== prepared tools that seem effective against that kind ==of== non-physical entity.”
+
+The magical flame bottle from earlier.
+
+The Flame Demon ==of== the Blazing Fortress was a being created by the labyrinth… but that one was quite physical.
+
+Original demons are said to have properties close to spirits ==return== cannot exist in this world without incarnation… but here, it’s probably in its true form. They say their intelligence is proportional to their power, so we can’t let our guard down.
+
+That said, in this world I can apparently punch them away, so it’s true I don’t need to worry much about my attack methods, but the same goes  ==for== our opponent. In that sense too, it’s fair.
+
+Eventually—we reached a large door that appeared to be the throne room.
+
+When I pushed the door open, it was there in the vast throne room. Wearing a monocle ==return== dressed like a noble, but with the head ==of== an owl. Recognizing our presence, it spoke with theatrical, exaggerated gestures.
+
+“Welcome to my castle, my territory. Are you enjoying yourselves? I am Orzius, the keeper ==of== this book.”
+
+“You’re the guardian ==of== this place, right?”
+
+Orzius narrowed his eyes. Perhaps he smiled at my response.
+
+“It seems our current guest understands the workings ==of== this world. As you’ve guessed, ==if== you destroy me, you can ==return== to your original world. To defeat me, feel free to use whatever is in the castle town. I swear upon my name that there are no tricks whatsoever.”
+
+“Poor taste. You enjoy watching people run around in confusion, don’t you?”
+
+“Kuku. Well, it’s one ==of== my few pleasures.”
+
+…Oh, is that so.
+
+“…Sorry to disappoint your expectations, but this is fine as it is. I can’t say it’s a fair one-on-one since I brought tools from outside, but ==if== you’re going to pretend to be fair, then me fighting with just this staff should balance things out.”
+
+At my provocation, Orzius shook his shoulders ==return== laughed.
+
+“Hmm. I wouldn’t have minded ==if== the young lady behind you came at me simultaneously too. ==if== that’s what you want, very well. I promise to defeat you one by one. First, young man. You’re up first.”
+
+Orzius’s eyes were twisted with delight as he said this.
+
+He probably understands that Rosemary is a non-combatant too. ==if== he just defeats me, he can leisurely enjoy watching the human struggle ==return== despair.
+
+“That’s the situation. I’d appreciate it ==if== you watched from the back.”
+
+“…I see. Even though I went to the trouble ==of== making them, it seems I won’t get my turn.”
+
+Rosemary shrugged her shoulders ==return== stood in the corner ==of== the room.
+
+It’s just a verbal promise… but still,  ==for== demons, contracts ==return== promises are absolute. Stray shots might fly her way, but she should be able to protect herself from that much.
+
+In any case, it’s fortunate that I don’t have any worries about my back. All that’s left—is to focus on the battle before my eyes.
+
++++
+
+# **205 – The Great Scythe ==of== Shadow Cutting**
+
+“Since you’re the only one left ==if== you lose anyway… would you mind handling my share as well?”
+
+Rosemary offers me a set ==of== flask ==return== magic stone.
+
+“I don’t mind. Even ==if== you accept that, it remains as we agreed earlier.”
+
+Orjius shrugs ==return== says such a thing.
+
+…Completely unacceptable.
+
+The magician who contracted with this bastard must have died long ago, yet to preserve his own enjoyment afterward, he probably didn’t set a time limit  ==for== guarding the book in the contract.
+
+The result is what we saw in town. The remnants ==of== people whose souls were worn down until they became mere wandering shadows. All those people challenged the demon, ==or== gave up, dying in despair. Yet they remain unliberated, toyed with through unimaginable stretches ==of== time.
+
+This bastard—I won’t let him get away with it.
+
+“…Understood. I’ll be right back.”
+
+I deploy a Defense Field around Rosemary ==return== accept the flask ==return== magic stone. Reinforcing them with Earth Magic so the glass won’t ==break==, I tie them to my waist with a cord. Then, at a deliberate pace, I walk toward Orjius.
+
+Darkness coils in Orjius’s hand. From within it, a massive scythe is dragged out. So he uses weapons too. As ==if== twirling a baton, the scythe spins rapidly in Orjius’s hand, cutting through the air.
+
+I take stance with Ouroboros ==return== amplify my magical power. The moment I brace to step in, Orjius slams the scythe’s tip into the shadow stretching from his feet. Responding to this, blades shoot out from the head ==of== Orjius’s elongated shadow.
+
+I stop the tip with a Shield ==return== immediately press forward in one motion. Orjius, having withdrawn from the shadow, meets it. Ouroboros ==return== the scythe clash, scattering sparks.
+
+“Quite capable, aren’t you!”
+
+Orjius’s voice sounds almost pleased at having been countered.
+
+Despite preaching fairness, his opening move is a frontal ambush. From his perspective, even ==if== he kills me in one breath, Rosemary remains, so he can still enjoy watching her struggle.
+
+He said we’d fight equally, but that was a precondition. Once we face each other like this, rules become meaningless. Anything goes, as expected.
+
+A double-edged scythe. He can freely use the inner edge  ==for== pulling cuts ==or== the outer edge  ==for== sweeping attacks. After several exchanges ==of== our weapons, the scythe’s butt cap flips upward. The sharply pointed tip, like a spearhead, passes through the space before my nose, then Orjius’s body spins completely. A blade attacks with a horizontal sweep from a blind spot hidden by his body’s shadow. A winding trajectory. ==if== I step in to block, the blade will be pulled back from behind; ==if== I distance myself, I can’t counterattack. So instead, I step in close enough to bodily crash into him.
+
+I swing Ouroboros upward from below, aiming  ==for== the arm gripping the scythe. Striking around the elbow to disrupt the scythe’s path, I unleash a front kick. I only need to make contact. Regardless ==of== whether defense is possible, my plan is to hammer in a magical shock at the moment ==of== contact ==return== then ==break== through.
+
+But Orjius doesn’t forcibly counter ==or== defend. The moment his arm is struck upward, he releases the scythe ==return== retreats significantly. A counterattack while evading. After a breath’s pause, the scythe returns, spinning from behind. I leap backward, shifting form mid-air. Clearing the scythe, I charge in by kicking off a Shield without waiting to land.
+
+An owl’s wings appear on Orjius’s back. He flies into the sky to escape. I kill my inertia with Levitation, flying at a right angle to pursue Orjius.
+
+“Truly, human endeavor is fascinating! Shall I ask your name?”
+
+“Theodore!”
+
+We clash mid-air. Several attacks cross. Ringing metallic sounds.
+
+As we separate, Orjius makes a gesture as ==if== sweeping upward with his wings. Feathers fly at armor-piercing speeds. A three-directional deviation shooting. I only strike down the feather coming straight at me with Ouroboros.
+
+The remaining two feathers easily penetrated the marble floor.
+
+We both charge into a fierce collision. We reach a deadlock, but the scythe’s blade retracts ==return== a blade emerges from the opposite end—the butt cap side. I use a Shield like a rail to divert the scythe’s path upward as it slides ==return== swings up from below. Into the exposed flank, I hammer the Dragon Staff.
+
+“Guh!”
+
+He’s knocked back significantly, but while being blown away, he scatters feathers to prevent pursuit. Form shift, form shift. Feathers thin as blades graze past, right before my eyes.
+
+Splitting left ==return== right with Mirage Body, we cross. No effect. I expected this since he’s a psychic lifeform… but he accurately targets me.
+
+Multiple black spheres are released around Orjius. As ==if== possessing will, they maintain a fixed distance from Orjius’s main body, flying around like satellites.
+
+A black hole opens before him, ==return== he slams the scythe into it. The scythe’s blade shoots out from a black sphere approaching in a circular orbit. Feather bullets are fired to block escape routes. I twist only my neck to evade the feathers, block the scythe with a Shield, ==return== simultaneously counter with an impact strike. Orjius’s arm, which should be at a distance, is repelled.
+
+The spheres tracing satellite orbits seem to pass through Ouroboros ==return== Shield unaffected. They themselves possess no attack power—mere spheres ==of== darkness. Their purpose is attack assistance. Probably the same technique he used initially to deliver slash attacks from shadow to shadow. Feather bullets had flown into the black spheres, but those didn’t transfer over. Whether he can’t ==or== won’t is uncertain, but it’s definite that Orjius can transfer the scythe’s blade from shadow to shadow among those he created.
+
+I distance myself ==return== turn back. A hot sensation on my cheek. Seems a feather grazed me.
+
+…He possesses diverse ==return== irregular attack methods. Can’t let my guard down.
+
+So, sharper ==return== faster. Stronger, ever stronger. I’ll surpass this bastard too ==return== move forward. Cycle cycle cycle cycle. Baring fangs in a grin, I sharpen ==return== refine my magical power.
+
+“I’m glad you seem to be enjoying yourself! I’m having fun too! It’s exhilarating!”
+
+Orjius spins his scythe like a windmill. Eyes wide open, shoulders shaking.
+
+“Kukuku! How you reached that level—my interest is endless! You—will surely become a most valuable addition to my collection!”
+
+“Try it!”
+
+We roar ==return== charge at each other. Collision, impact. The scythe has no blade. It hasn’t moved to the butt cap side; instead, a dark sphere adheres to the tip, swallowing it. From another dark sphere flying from behind, the scythe’s blade emerges, aiming to bisect my body.
+
+I deploy a Shield behind me. The moment it makes contact, I hammer in an impact, but this time, as ==if== anticipating it, Orjius doesn’t retreat. He pins me down from the front, putting force into bisecting me from behind.
+
+Multiple Shield deployment. As sparks scatter between Ouroboros ==return== the scythe’s handle in equilibrium, I fire a Lightning Strike at Orjius’s face. At the exact same time, he releases a magical flash from his beak. An explosion occurs, repelling us. As Orjius retreats, the blade withdraws too. Immediate reversal. Slipping between feather bullets flying as ==if== piercing through the blast, I fly at maximum speed, exchanging slash attacks ==return== strikes.
+
+Blades fly in all directions. A rain ==of== feathers pours down. Evading, blocking, redirecting, I dive in ==return== strike countless times. Though it should be a single weapon, Orjius’s skill in manipulating it as ==if== separating handle ==return== blade is considerable. Continuing to clash like this won’t get us anywhere.
+
+Against Orjius, who blocked with the handle, I push in with my whole body ==return== deliver a headbutt to his head. Since I’ve deployed a Shield on my forehead, I take no damage, but Orjius steps back looking stunned.
+
+“You!!”
+
+Fury. The scythe swings down from above. A dark sphere cuts into the slash trajectory, transferring the blade. The tip approaches directly from below. Trying to block, Ouroboros is knocked away as ==if== being rolled up. Switching, this time the blade approaches from the side.
+
+I raise my hand, but the Shield is penetrated. Without Ouroboros, the Shield can’t withstand it. Gritting my teeth, I receive the scythe’s tip with my palm. It penetrates my palm. Orjius narrows his eyes at the sensation.
+
+“I’ll carve you up, arm ==return== all!”
+
+Saying this, he tries to put in force—but Orjius freezes. This much was within my calculations.
+
+He doesn’t move. Gripping with my pierced palm, I fix him in place with Shields from all directions. Perfectly sealing his movements so he can neither withdraw nor cut through.
+
+Leading him to believe the Shield couldn’t completely defend—that was my strategy. Seeing my grin, Orjius instantly releases the scythe ==return== tries to escape. Since he can freely control the scythe, letting go isn’t a disadvantage. Precisely because ==of== that—I anticipated he’d try to distance himself.
+
+“Return!”
+
+“Wha—!?”
+
+He’s ==not== the only one who can launch weapons. Ouroboros, charging from behind, roars as it gouges into his back from behind, pinning him ==return== ==not== allowing escape. Ouroboros can only move as long as the magical power I’ve imbued it with lasts—but that’s more than enough.
+
+“Gaaah!”
+
+Avoiding the flash released from his mouth by tilting my head, I toss the flask ==return== magic stone with my open hand. Right in front ==of== Orjius’s face, eyes wide in astonishment.
+
+Clenching my fist, I deploy a Shield. Hammering in an impact strike, the flask ==return== magic stone shatter simultaneously, green explosive flames engulfing Orjius’s face.
+
+“Guooooooaaaaah!?”
+
+Having his face directly burned by magical flames, Orjius writhes in agony. Covering his face, he flails his wings, trying to escape the spot while scattering feather bullets indiscriminately.
+
+I ignore some hits. Deploying a giant Magic Circle, I charge the shortest distance. Feathers pierce my shoulder, graze my flank. Tracing an arc, I grip Ouroboros, which has now truly returned to my hand, ==return== thrust straight—piercing through his body’s center, the solar plexus.
+
+“Gah!”
+
+Orjius’s body bends into a V-shape. I slam Ouroboros into the base ==of== his wings, smashing him onto the floor. Still burning. Impressive, despite its simple construction. And—my magic is complete.
+
+“Get crushed!”
+
+At the tip ==of== the raised Ouroboros, a giant rock glowing pure white appears.
+
+9th Tier. Fire, Earth composite magic—Meteor Hammer. Matching the motion ==of== swinging down the Dragon Staff, the boulder is fired from initial velocity with ridiculous force. The white-hot meteor approaches Orjius, shattering the sound barrier.
+
+“O, ooooooaaaah!?”
+
+Unable to evade, Orjius takes the boulder directly with his body. Piercing through the marble floor like paper, it collapses the throne room from the center. Engulfing everything on the lower floor, it drills straight down into the earth’s depths.
+
++++
+
+# **206 – Contracts ==return== Enforcement**
+
+The force that had been trying to move vanished from the scythe still embedded in me. When I released the Shield’s restraint, it fell from my palm.
+
+To destroy it ==or== not? Whether the scythe could determine Orjius’s life ==or== death was questionable, but ==if== he were alive, there was no doubt he could manipulate the scythe.
+
+Considering the possibility it had its own will, I tightly bound it with Earth Magic ==return== Light Bind before packaging it, then placed it within visible range where I could deal with it ==if== it moved.
+
+I jumped over the large hole ==return== headed toward Rosemary. She looked stunned beyond words.
+
+Rosemary was unharmed. I had fired the Meteor Hammer with my back turned to keep her outside the magic’s range, ==return== had double-insured with both Defense Field ==return== Chimera Coat.
+
+“That hand… your shoulder too. Show me your wounds.”
+
+Rosemary cut the hem ==of== her dress with a stiff expression, making an impromptu bandage. She had borrowed a dagger from the alchemist’s shop.
+
+“…Yeah. Thanks.”
+
+…I should just accept her kindness straightforwardly. I let her bandage my palm ==return== shoulder.
+
+“ ==for== the severity ==of== the wounds, there’s surprisingly little bleeding.”
+
+“I’m using Shield to stop the bleeding.”
+
+At my words, Rosemary nodded as ==if== understanding.
+
+“I wonder how wounds work in this world?”
+
+“They say as long as it’s ==not== a fatal wound, you’ll be fine once you leave.”
+
+That said, things like massive blood loss could lead to death in this world, ==return== apparently that would mean dying outside the book too. So it’s ==not== like getting injured is acceptable.
+
+As  ==for== the pain issue, well, during battle I don’t really notice it much. After the fight ends, it gets pretty tough though.
+
+“Do you always fight like that?”
+
+While bandaging me, Rosemary asked.
+
+“That depends on the opponent. ==if== I can lure them by pretending to create an opening, I consider it a necessary expense.”
+
+In evenly matched situations, it becomes a matter ==of== luck ==or== turns into a battle ==of== attrition, neither ==of== which I particularly welcome. So it’s better to guide them toward predictable actions ==return== draw them out… but sometimes they take the bait without biting the hook, so it’s tricky.
+
+“This is the first time I’ve seen you fight seriously, so you were holding back considerably against me. —There. This should ==do==.”
+
+Rosemary finished bandaging ==return== stepped back. Regarding pain ==return== ease ==of== movement, it felt somewhat better. As long as I reinforce it with Shield, there shouldn’t be any problems.
+
+“So then. How ==do== we get out ==of== here?”
+
+“They said ==if== we defeat the guardian, the maintenance would fail ==return== we’d be released.”
+
+Looking around, the noise occasionally running through the space had become quite severe. It seemed certain that it was on the verge ==of== collapse.
+
+“Ooohhhhaaahhh!”
+
+Then, a pained voice came from the large hole in the throne room’s floor. An owl-shaped Aura-like thing was crawling up from below.
+
+“Did he… survive that?”
+
+Rosemary frowned. Well—I wonder.
+
+Orjius didn’t leap at us, but stood facing us from a distance.
+
+“Y-your victory. I’ll… let you out ==of== here…”
+
+Orjius painfully said such words. I… scoffed at them.
+
+“Let us out? ==if== you’re destroyed, we can get out, right?”
+
+The noise running through the scenery intensified further. That it was on the verge ==of== collapse was obvious to anyone, ==return== Orjius himself looked completely battered.
+
+“==If== I admit defeat, you will be released. Don’t you want this world? L-let’s make a new contract—”
+
+“…Wrong. Lying isn’t good, Orjius.”
+
+I laughed. When I pointed it out, Orjius clearly panicked.
+
+“W-what ==do== you—”
+
+“Normally, no one should survive a direct hit from Meteor Hammer. Yet you survived like that ==return== are approaching negotiations in your Ethereal Body. But even though you’re in Ethereal Body, you look pretty rough, don’t you?”
+
+I chose the purely physical Meteor Hammer with this world’s rule in mind—that the more fair something is, the stronger it becomes. Meteor Hammer shouldn’t affect an Ethereal Body, yet Orjius was barely breathing. Perhaps because the body is constructed according to the rules, the damage taken by the physical body is reflected in the Ethereal Body too. But that’s probably ==not== all.
+
+“S-stop. No more…”
+
+Orjius’s voice sounded almost pleading. Along with my words, ==not== just noise but creaking sounds emerged as cracks ran through the space. ==return== then. I spoke the decisive words.
+
+“In other words… you’re still in the middle ==of== the match. Moreover, right before the outcome was decided, you abandoned the body you should have in this world ==return== escaped. Thinking that without a physical form, you could mitigate Meteor Hammer’s power. But that’s a contract violation, right? You have to properly receive Meteor Hammer’s full force with your physical body.”
+
+I paused briefly, then said.
+
+“Even ==if==—it means dying along with the contract.”
+
+“Gghh, hii—”
+
+Flames burst from Orjius’s eyes ==return== mouth, from inside him. ==if== he weren’t a Psychic Lifeform, such an accusation probably wouldn’t mean anything.
+
+But this guy is a Demon. ==if== strict adherence to contracts is demanded, then settlement will occur retroactively.
+
+In this case, that means he’ll be forced to properly pay the damage from the Meteor Hammer he tried to cheat.
+
+“P-please… even now… contract renewal. Either way is fine…”
+
+While spewing flames, Orjius reached toward us.
+
+A contract loophole… insurance he left  ==for== himself to survive in case ==of== defeat, probably. But I had no intention ==of== letting him live.
+
+After treating that many victims as toys, thinking he alone could survive—such a convenient story shouldn’t be allowed.
+
+“==Not== needed.”
+
+“I don’t need it either. This book reeks.”
+
+The clear words ==of== rejection from me ==return== Rosemary. The next moment, Orjius scattered as ==if== exploding from within. Simultaneously, the world also shattered to pieces, ==return== the ground beneath us vanished.
+
+Since I felt the sensation ==of== falling, I took Rosemary’s hand ==return== cast Levitation.
+
+“Contracts are scary, aren’t they?”
+
+“Absolutely.”
+
+I quipped back at Rosemary’s wry smile. The sensation ==of== rising. Our bodies floated upward toward the distant light in the sky.
+
+Countless spheres ==of== light surrounded us. The souls ==of== the victims. Probably released now that Orjius was dead. They too rose upward, leaving behind phosphorescent light. It was a fantastical scene.
+
+“…When we return, there’s just one thing I’d like to ask.”
+
+“What?”
+
+“I want you to remove the Subjugation Magic just once. ==of== course, you can recast it afterward.”
+
+“Fine by me… but it’s ==not== solely my decision.”
+
+Rosemary nodded. What does she intend to do?
+
+“You’ve saved my life twice now.”
+
+“Twice?”
+
+“This time, ==return== when we fought before. Last time I thought I couldn’t complain even ==if== killed, ==return== this time even ==if== rescue hadn’t come, it would have been getting rid ==of== a nuisance.”
+
+“When we fought before, you survived on your own.”
+
+I had various reasons  ==for== ==not== intending to kill her. The subsequent negotiations with King Melvin were probably Rosemary’s doing, ==return== partly due to King Melvin’s virtue too.
+
+“That’s after negotiations began. On the battlefield, it depended on your discretion. …Royalty shouldn’t bow their heads lightly. I believe that, but even so, this is too much. ==not== only did you save my life, but I made you get injured due to my failure.”
+
+After confirming she wouldn’t fall even ==if== I released her hand, Rosemary bowed deeply.
+
+“My rude behavior since we first met. Involving Ambassador-sama ==return== the Count’s family in my schemes, attempting to drug you, ==return== pointing my sword at you—I humbly apologize. I know this isn’t something that can be forgiven with just a bow, but I beg your forgiveness.”
+
+Since we first met, huh.  ==for== Rosemary, given that she had factions like Greg’s to consider, she probably couldn’t act subservient to someone ==of== lower status in public, even ==if== it meant making a bad impression on me.
+
+She behaved according to the character she had established with those around her, while maneuvering behind the scenes. That was Rosemary’s strategy.
+
+Well… ==if== Father ==or== others had suffered harm, things would have been different, but that’s just hindsight. As  ==for== receiving her apology, I too had aspects I couldn’t speak ==of== lightly.
+
+“Show me those words through your future actions.”
+
+“Yes.”
+
+Rosemary nodded. Perhaps she had expected to be told that.
+
+“But well, your way ==of== speaking can stay the same as before. Somehow, it feels awkward otherwise.”
+
+When I said that, Rosemary’s eyes widened  ==for== a moment before she laughed.
+
+“That way… is easier  ==for== me too.”
+
+With those words—we were swallowed by the light.
+
++++
+
+# **207 – The Treatment ==of== Rosemary**
+
+“…Mmm.”
+
+I let out a sound ==return== blinked my eyes. It felt like that drowsy sensation when waking up at an odd time.
+
+==And== what came into view were everyone’s happy faces.
+
+“…I’m back.”
+
+“Theo! Thank goodness!”
+
+“Welcome back!”
+
+They spoke in unison, practically jumping to hug me. While being smothered, I gave a wry smile, stroking their hair ==return== embracing their shoulders.
+
+“Were you injured?”
+
+“I got a bit hurt… but I seem to be fine now. There’s no pain either.”
+
+I answered while clenching my left hand that had been stabbed. My shoulder was similarly unharmed.
+
+Once they confirmed there were no particular problems with my body, Ashley finally seemed to relax.
+
+One by one they separated, ==return== I stood up too.
+
+“Ugh…”
+
+Rosemary, who had been seated on the living room sofa, let out a small sound. Then, light returned to her eyes.
+
+“This is—”
+
+Rosemary brought a hand to her forehead ==return== shook her head slightly. Perhaps because she had been trapped in the book longer than me, there was a difference in the time it took to awaken.
+
+“My home.”
+
+“…I see.”
+
+Rosemary stood up, albeit somewhat unsteadily, then bowed her head according to proper etiquette.
+
+“I am deeply ashamed  ==for== having involved Theodore in danger due to my blunder. I would like to thank the person who provided the book’s information—might they be present here?”
+
+“That would be me.”
+
+When Claudia spoke, Rosemary turned toward her ==return== bowed again. Then she politely offered her thanks ==return== introduced herself.
+
+I thought this was probably something Rosemary from a little while ago wouldn’t have done, but seeing her behave so politely seemed to come naturally to her—suggesting that ==if== she put her mind to it, she could have conducted herself properly all along.
+
+Now there were no faction eyes on her, ==return== she had lost her right to the throne. There was also the promise we had just exchanged.
+
+“That book… is it alright?”
+
+Sheila said while looking at the book left open on the desk.
+
+“It should be fine as long as no guardian is embedded in it. The problem is that this might ==not== be the only book with such a Trap.”
+
+“…Now that you mention it, that’s true.”
+
+This time it was fortunate that Orjius was waiting in the Castle, but it’s also possible that a guardian could attack from the start.
+
+Leaving the decoding to Rosemary alone while she can’t use Magic carries considerable risk. More than the guardian’s strength, the issue is that both sending rescue ==return== meeting up inside would end up being delayed in various ways.
+
+==And== the further back we go seeking information in ancient documents, the more likely we are to step on landmines.
+
+“Countermeasures?”
+
+“==If== Marlene ==return== I are nearby… the book’s Spell Formula is powerful, so remote intervention wouldn’t work.”
+
+Marlene blinked at Claudia’s words.
+
+I see… So ==if== it’s Curse Magic, it can be countered with Blessing.  ==for== now, we’ll need to send Rosemary to the Royal Castle ==return== consult with King Melvin.
+
+After contacting him via the Communication Device, Rosemary ==return== I returned to the North Tower together. King Melvin let out a deep breath ==of== relief before smiling.
+
+“You have done me a great service. Are you uninjured?”
+
+“As you can see, we’re both fine.”
+
+“My apologies  ==for== the trouble.”
+
+We sat across the table, drinking tea as I explained what we had discovered about the book’s Trap.
+
+“I see… Then continuing as we are now would be difficult, I suppose.”
+
+King Melvin crossed his arms, then brought a hand to his chin in a thoughtful gesture.
+
+“Claudia has suggested a solution, though.”
+
+“But to ask Lady Claudia to frequently trouble herself to come to the Royal Castle…”
+
+Right. Claudia probably shouldn’t show her face at the Royal Castle too often. There is a way to resolve that, but I doubt King Melvin would ever mention it.
+
+“…==If== she stays at my house, that would solve the issue.”
+
+That would address the problem ==of== her life being targeted too.
+
+“That may indeed be so—but ==do== you trust this person that much?”
+
+“She did say she would prove herself through actions…”
+
+Given that Rosemary has never shown her true intentions, it’s hard to say we can easily trust her. But there’s no one else who can replace her in decoding ancient documents, ==return== to have her continue decoding, we need to prevent situations like this from happening again.
+
+Rosemary didn’t even take out her feather fan, quietly closing her eyes ==return== leaving things to fate, but then she spoke.
+
+“I leave the decision regarding my circumstances to you… but there is a matter I would like to request ==of== you, Father.”
+
+“Speak.”
+
+“Just  ==for== a moment, ==if== I may. I would like to request the removal ==of== the Subjugation Magic.”
+
+“Why?”
+
+When asked, Rosemary answered.
+
+“I wish to impose Oath Magic upon myself. I believe that a Subjugation Magic imposed by command holds no value  ==for== reflection ==return== does ==not== contribute to my own credibility.”
+
+Oath Magic. This is a type ==of== Contract Magic, similar to placing Subjugation Magic upon oneself, but more robust. To remove it later, one must fulfill the conditions set when making the oath.
+
+“You… what exactly ==do== you intend to swear?”
+
+When asked, Rosemary showed a slightly thoughtful gesture.
+
+“Well now. I intend to swear that  ==for== my entire life, I will never betray you, Father, ==return== Theodore Gartner-sama… my two lifesavers. Should I ==break== that oath, I wish  ==for== it to cost me my life… but given the issues ==of== interpretation ==return== perception, accidental activation would be problematic. I’m considering whether there might be a better method.”
+
+She said it as ==if== it were natural. King Melvin ==return== I inadvertently exchanged glances.
+
+…Seriously? Just earlier she was saying contracts are frightening, ==return== now this on the same day? This is Rosemary, who has repeatedly deceived ==return== tricked people. In terms ==of== “earning trust,” there’s probably nothing better than this… but precisely because she’s skilled at phrasing things to avoid giving verbal commitments… ==if== she says she’ll ==do== it, she’ll ==do== it. This is extreme, to say the least.
+
+…Still, interpretation ==return== perception, huh? ==if== we consider oaths ==return== contracts the same, then depending on interpretation ==return== perception, there’s a risk ==of== activation in unintended situations.
+
+I suppose it means even inner feelings can’t be falsified. The trigger  ==for== this magic is the person’s own awareness.
+
+“… ==for== example… ==if== you unintentionally betray someone, there’s a risk it could lead to death when you realize it?”
+
+“That would be the case.”
+
+King Melvin remained with his arms crossed, eyes closed as ==if== deep in thought  ==for== a while, then finally spoke.
+
+“There are issues that need addressing… but  ==for== my part, ==if== you wish to use Oath Magic, I am ==not== unwilling to permit it. Trust cannot be gained except through foolishly honest accumulation. ==if== one who has willingly destroyed it now seeks to cut off their own retreat, then we should acknowledge that resolve.”
+
+“…But making life the price is problematic, don’t you think? I understand the level ==of== resolve, but…”
+
+Personally, I think she doesn’t need to go that far, but ==if== King Melvin doesn’t stop her, then ==if== Rosemary says she’ll ==do== it, she’ll ==do== it.
+
+==If== my words could stop her, she probably wouldn’t have attempted such schemes in the first place. She was likely prepared  ==for== defeat to mean death too. Her resolve is just too complete.
+
+“Would it suffice ==if== the betrayal becomes clear ==return== your actions are hindered? How about making it so that ==if== you betray someone, you can no longer construct Spell Formulas ==return== cannot move?”
+
+“We would need to make it possible to lift the restraint through confession ==return== obtaining forgiveness. Since treating serious ==return== minor matters with the same measure would be problematic.”
+
+“So you would leave the judgment to the other party? ==if== you ==return== I are unavailable, to whom would you confess?”
+
+“…Perhaps someone with close ties. Also, we need to define what constitutes betrayal. It would be troublesome ==if== it activated in situations where I simply couldn’t meet expectations due to lack ==of== ability.”
+
+They continued addressing various anticipated issues. Like how being unable to move during emergencies would leave one defenseless, which is problematic.
+
+“What about making exceptions so the restraint doesn’t apply under exceptional circumstances?”
+
+“In that case, we should use Subjugation Magic to supplement it, ensuring no harm comes to the person during emergencies.”
+
+==And== so, Rosemary herself kept adding supplements to ensure there were no oversights.
+
+They thoroughly examined all the issues, filling in the gaps. Writing it all down on paper—once they had roughly eliminated the deficiencies, they finally proceeded to remove Rosemary’s Subjugation Magic.
+
+“Very well, I shall remove the Subjugation Magic.”
+
+Using the key-shaped Magic Tool he held, he removed Rosemary’s Subjugation Magic. The Magic Stone in the tool flashed, ==return== Rosemary’s body became enveloped in phosphorescent light as a sound like something shattering echoed. With this, the Subjugation Magic had likely been removed.
+
+“Now then—I would like to perform the Oath Magic ritual. Afterward, I ask  ==for== your assistance with the Subjugation Magic.”
+
+—==And== so… with all that, it was decided Rosemary would come to my house. The books from the forbidden library would be transported at a later date… but this probably means we’ll need to add at least one more hidden study.
+
++++
+
+# **208 – The Master ==of== the Doll**
+
+“I’m going in.”
+
+Ashley ==return== Marlene faced the Golem with their Long Mace ==return== rapier at the ready, beginning ground combat training. The Golem was modeled after a figure armed with armor ==return== swords.
+
+This was close-quarters, ground combat training. While unspectacular, it was effective  ==for== building fundamental strength. Once you could read an opponent’s movements, the skills could be applied to aerial combat ==or== ranged shooting battles as well.
+
+Dada la elección de arma de Ashley, su estilo de lucha era directo: golpeaba zonas propensas a sufrir daños o asestaba golpes potentes para aturdir a su oponente antes de rematarlo de una sola vez. Sin embargo, añadía su propio toque único a este enfoque.
+
+Se adentró directamente en el alcance del Gólem, esquivando ataques mientras golpeaba las articulaciones de sus rodillas. Creó púas de hielo en su Escudo Redondo para asestar un golpe de escudo y luego golpeó el lado del brazo dominante del oponente aturdido para derribarlo. Toda la secuencia fluía con una gracia elegante.
+
+En los movimientos de corto alcance de Ashley, se podía ver la influencia de Rosetta en sus maniobras corporales y métodos de ataque. Parecía haber estudiado a fondo los puntos vitales y la anatomía humana, lanzando ataques notablemente lógicos. También era digno de mención cómo el hielo brotaba de los pies de Ashley justo antes de sus ataques, congelando la pierna de apoyo del oponente.
+
+En cuanto a Marlene, tal vez porque contaba con una usuaria de estoque experimentada como Mihaela como mentora, sus movimientos habían mejorado visiblemente hace poco. Mantenía cierta distancia con el Gólem, identificando huecos en la armadura de los oponentes que se aproximaban para lanzar tajos y estocadas.
+
+Si alguien se preguntaba si esto era ineficaz contra oponentes con armadura pesada, no era el caso. El estoque de Marlene chispeaba ocasionalmente con relámpagos, lo que hacía que enfrentarse a ella sin magia fuera bastante difícil. Utilizaba fintas que implicaban cambios de peso y sutiles movimientos de la punta, necesitando solo asestar estocadas superficiales. Una vez que electrocutaba a su oponente, este no podía esquivar ni defenderse de su golpe decisivo posterior.
+
+…En realidad, dada la naturaleza del rayo, ni siquiera necesitaba hacer contacto. El Gólem esquivó correctamente, pero la electricidad se propagó desde la hoja, electrocutándolo de todos modos. La estocada decidida de Marlene había atravesado un punto vital a través de un hueco en la armadura. También estaba empezando a canalizar Espíritu de Lucha, aunque todavía débilmente.
+
+"¿Qué tal estuvo eso?"
+
+Tras derrotar al Gólem, las dos se dirigieron a nosotros en busca de comentarios.
+
+"Bien. Esos movimientos fueron excelentes".
+
+Cuando respondí, Ashley pareció algo tímida. Marlene sonrió sin reservas.
+
+"¿Probamos a cambiar el arma del Gólem y continuamos un poco más?"
+
+—¡Sí!
+
+Así continuó el entrenamiento. ¿Qué arma debería tener el oponente? Quizás una lanza para entrenar el alcance. Bueno, dado que ambas podían incorporar magia a su lucha, dudaba que tuvieran muchas dificultades.
+
+Sobre el patio, Grace, Sheila, Irmhild y Seraphina realizaban un entrenamiento de coordinación.
+
+Sheila avanzó hacia el Gólem con Grace superpuesta justo detrás de ella. Desde atrás, Irmhild disparaba flechas de práctica con puntas de tela. Sheila predecía la trayectoria de las flechas por el sonido, posicionándose para evitar ser golpeada mientras servía de guía para Grace.
+
+Justo cuando Sheila se acercaba, saltó hacia arriba realizando un giro vertical, liberando Hilo Pegajoso para interferir con el contraataque del Gólem desde atrás. Simultáneamente, las flechas dieron en el blanco. Normalmente, el poder de Seraphina las imbuiría con efectos de Melodía Maldita, pero esta vez se omitió. Finalmente, Grace blandió su hacha, partiendo limpiamente al Gólem en dos de forma vertical.
+
+Continuamos el entrenamiento matutino de esta manera por un rato hasta que Rosemary apareció en el patio. Aunque ocultaba su boca tras un abanico de plumas, sus ojos estaban muy abiertos por la sorpresa. Parecía asombrada por la escena del entrenamiento.
+
+"Buenos días".
+
+"Sí, buenos días".
+
+"Buenos días".
+
+Intercambiamos saludos matutinos por turno.
+
+"Gracias por la cena de anoche. Estaba deliciosa".
+
+"No hay de qué. ¿Descansó bien?"
+
+"Sí. Debía de estar cansada. Ni siquiera soñé hasta la mañana".
+
+Grace y Rosemary tuvieron ese intercambio.
+
+El día de ayer había sido bastante caótico, y Rosemary no había podido cenar.
+
+Cuando la acompañé a su habitación, se veía algo pálida, así que le pregunté por su salud, pero solo dijo que no tenía nada que ver con el libro y que estaba bien… Entonces su estómago rugió suavemente, y me di cuenta de que probablemente no había comido.
+
+Pensé que podría haberlo dicho simplemente, pero al parecer no se atrevía a pedir comida directamente. Así que le pedí a Grace que preparara una cena tardía con poco aviso.
+
+Dicho esto, quizás debido a tales interacciones, ambas parecían haber entrado un poco más en confianza.
+
+"…Nunca he cocinado antes. Pero parece ser la regla de esta casa, así que me esforzaré de ahora en adelante".
+
+Cubriéndose la boca con el abanico de plumas y cerrando los ojos, Rosemary habló.
+
+"Dicho esto, todos aquí son bastante impresionantes en varios aspectos… Ponerme al día parece que será todo un desafío. Necesito reentrenar este cuerpo mío que está algo oxidado".
+
+"¿Hm? Poneros al día, ¿significa que también os adentraréis en el laberinto?"
+
+"Esa es mi intención… ¿Acaso no es prudente?"
+
+"No, para nada imprudente".
+
+Para las salidas de Rosemary, le había pedido prestado a Anastasia un Anillo de Disfraz diferente para cambiar su apariencia.
+
+O mejor dicho, en última instancia, el trabajo de descifrado sería peligroso a menos que Claudia o Marlene estuvieran presentes. Si ella va a entrar en el laberinto, tenerla con nosotros eliminaría redundancias. Probablemente estará muy ocupada, pero pedir confirmación podría ser innecesariamente indiscreto.
+
+"Me gustaría entender vuestro estilo de lucha. ¿Usaréis muñecos como antes, o invocaréis Soldados de Colmillo de Dragón?"
+
+"Desafortunadamente, el catalizador para los Soldados de Colmillo de Dragón fue confiscado. Sin embargo, mientras descifraba documentos antiguos recientemente, encontré una magia interesante".
+
+"¿Ah, sí?"
+
+Cuando preparé un Gólem, un Círculo Mágico apareció en la mano de Rosemary. De las puntas de sus dedos se extendieron hebras de magia en forma de hilos que brillaban de color púrpura.
+
+"Magia Oscura de Quinto Rango: Strings Edge. Y Magia Oscura de Sexto Rango: Marionette Jack".
+
+Mientras pronunciaba las palabras y agitaba su mano, los hilos púrpuras rasgaron el espacio, decapitando al Gólem. Luego, los hilos enredaron las extremidades del Gólem y, justo cuando otro Círculo Mágico brilló, los colores de los hilos cambiaron a tonos arcoíris. Pero eso fue todo. A medida que los hilos mágicos intensificaban su brillo, estallaron y se dispersaron.
+
+"Ah, como pensaba, no funcionará con tus Gólems. El control mágico es demasiado fuerte, son repelidos".
+
+Dijo esto mientras se veía bastante complacida.
+
+"Cuerdas de Marioneta, entonces".
+
+"Sí. Necesito reconfigurar parcialmente la Fórmula del Hechizo dependiendo del objetivo, pero puede manejar a la mayoría de los oponentes. También estoy considerando aplicaciones, pero guardaré esa demostración para otra ocasión".
+
+Así que se trata de ataques cortantes difíciles de percibir a media distancia y manipulación del cuerpo del oponente. Una magia bastante apropiada para Rosemary, se podría decir.
+
+Dicho esto, Rosemary también quiere acompañarnos al laberinto. Probablemente necesite quitarse el óxido, y creo que la Fortaleza Ardiente sería demasiado difícil de inmediato. Considerando el orden de apertura de las Puertas Selladas... parece más apropiado que se acostumbre al laberinto mientras calienta en la Veta de Agua de Luz Mágica.
+
+Bueno, ir al laberinto el día después de los eventos de ayer se siente algo apresurado. Tomémonoslo con calma hoy para darle la bienvenida a Rosemary.
+
+Rosemary miró varios objetos por la casa y la sala de entretenimiento, asintiendo ocasionalmente como si estuviera impresionada. Al igual que Miriam, probablemente tenía su propia perspectiva única y notaba cosas diferentes.
+
+"Amo, el Lord Alfred ha llegado".
+
+Cerca del final de la mañana, Cecilia guio a Alfred hacia nosotros. Dado el incidente de ayer, probablemente vino a ver cómo estaban las cosas tras enterarse de que Rosemary había venido a la casa.
+
+"Buenas tardes. ¿Cómo va todo?"
+
+"Gracias a ti, todo se ha calmado".
+
+"—Eso parece. Como mencioné por el Dispositivo de Comunicación, me alegra que estés ileso. ¿Cómo era el interior del libro?"
+
+Miró de reojo a Rosemary jugando al billar con Ashley y Marlene, sonriendo.
+
+"Bueno, no fue exactamente agradable. Pececillos de plata gigantes y cosas así; nada reconfortante".
+
+Mis palabras parecieron hacer que Alfred imaginara la escena, ensombreciendo su expresión.
+
+"Eso es un poco... Sus movimientos rápidos son difíciles de manejar para mí".
+
+"¿Verdad? Si yo estuviera diseñando una Fórmula de Hechizo, no crearía un lugar tan lúgubre".
+
+"Eso en sí mismo suena a que llevaría a algo descabellado".
+
+Alfred se rió mientras decía esto.
+
+"Por cierto, me gustaría solicitar un equipo completo para Rosemary. ¿Está bien?"
+
+"¿La llevarás al laberinto? Tenemos algo de capacidad en este momento".
+
+"Ese es el plan. Creo que es más del tipo de retaguardia... Bueno, ¿deberíamos consultar sus preferencias también?"
+
+Cuando miré hacia Rosemary, parecía haber terminado su sesión de billar y se acercó.
+
+"Tú eres Albert, ¿verdad?"
+
+"Sí. ¿Debería decir que ha pasado tiempo?"
+
+"Tal vez. Parecía que estaban discutiendo sobre el equipo; si es aceptable, ¿podría hacer mi propia petición?"
+
+"Claro, ¿de qué se trata?"
+
+"Quiero crear una Muñeca Mágica. Una pieza única que pueda usar en el laberinto. Además del pago, puedo proporcionar muñecas sencillas que podrían servir como mano de obra. ¿Qué te parece?"
+
+Ante la propuesta de Rosemary, Alfred parpadeó sorprendido. Debían de ser las mismas que ella utilizaba en la mansión de Anastasia.
+
+Si se trata de una muñeca hecha a medida, suena interesante, y a mí también me gustaría participar en el desarrollo. Después de todo, me sobran algunas Piedras Mágicas que aún no he decidido cómo usar.
+
++++
+
+# **209 – Diosa y Realeza**
+
+Las Muñecas Mágicas de Rosemary son un tipo de Criatura Mágica. Crean el cuerpo base de una muñeca y luego alojan y anclan en su interior a una Criatura Mágica intangible, esencialmente un Espíritu.
+
+Es como verter una pseudo-alma en el recipiente de una muñeca. Su rendimiento varía enormemente. Esto depende no solo de aspectos de hardware como la calidad del cuerpo base de la muñeca y los materiales utilizados, sino también de aspectos de software como el tipo de catalizador utilizado al crear la Criatura Mágica alojada, los ajustes en la Fórmula de Hechizo y las mejoras.
+
+Las muñecas contra las que luché en la mansión de Anastasia fueron diseñadas con la filosofía de independencia y coordinación entre sus partes, lo que les permitía compensar su destrucción compartiendo componentes entre varias muñecas. Incluso si eran destruidas parcialmente, las muñecas intactas podían combinarse inmediatamente y seguir luchando.
+
+Gracias a esa filosofía de diseño, varias unidades podían enlazarse y funcionar como una única muñeca gigante. Su objetivo era lograr tanto la fuerza como grupo como la fuerza individual.
+
+Esta vez, estamos creando una pieza única que simplemente busca la fuerza como individuo. Al parecer, como existían los Soldados Colmillo de Dragón y podían compensar combinándose, pospusieron la creación de tales muñecas especializadas, pero el concepto en sí existía desde hacía tiempo.
+
+"Yo me encargaré de ensamblar el cuerpo base de la muñeca, así que me gustaría que tú crearas la armadura", dijo Rosemary.
+
+Cuando me ofrecí a ayudar en el desarrollo, Rosemary sonrió como si estuviera tramando algo travieso. Así que desplegamos los planos sobre la mesa de la sala de recreo y discutimos varios detalles.
+
+Estamos haciendo esto en la sala de recreo porque mi casa está llena de gente con mucha experiencia en combate, y también quería escuchar sus opiniones.
+
+El plan era preparar un poco de té y dulces, relajarse y proceder con la discusión sobre el desarrollo de la muñeca.
+
+"¿Qué hay del material?"
+
+"Plata de Mithril. Grabaremos el reverso con una Fórmula de Hechizo para el refuerzo estructural y el aumento de la resistencia, y luego la encantaremos".
+
+"Ya veo. Así equilibramos ligereza y resistencia mientras complementamos aún más con magia".
+
+Eso ciertamente suena como un trabajo para Alfred. El Taller Brightwelt podría crear armaduras a medida, y grabar Fórmulas de Hechizo en ellas sería pan comido para ellos.
+
+"El aspecto defensivo está bien así... pero si mantenemos el Encantamiento activo, la Criatura Mágica que alberga en su interior podría... agotarse. Si incorporamos una Piedra Mágica en el cuerpo base para suplementar eso, creo que podríamos hacerlo más fuerte y ágil".
+
+"Si es una cuestión de movilidad, ¿por qué no incorporar Equipo de Combate Aéreo desde el principio?", sugerí.
+
+Fuerza física, armadura, además de movilidad y capacidad de vuelo... Sí. Ser directamente fuerte es algo bueno.
+
+"Incorporar Equipo de Combate Aéreo solo implica acoplar Herramientas Mágicas en varias partes, así que no es muy diferente de lo que hemos hecho antes... pero en ese caso, probablemente no deberíamos usar Piedras Mágicas mediocres para el cuerpo base de la muñeca".
+
+"En ese caso, ¿qué tal la Piedra Mágica de un Gigante?", sugirió Grace, que había estado escuchando.
+
+"¿La Piedra Mágica de un Gigante? ¿Existe tal cosa?"
+
+"Grace derrotó a uno en la Fortaleza Ardiente el otro día".
+
+"Un objeto tan preciado... ¿estás segura de que puedo usarlo? Aún no he hecho nada por ustedes".
+
+"Si podemos crear algo bueno, creo que contribuirá directamente a la seguridad de Theo", respondió Grace.
+
+Al escuchar las palabras de Grace, Rosemary cerró los ojos y sonrió suavemente.
+
+"...Es cierto. Tienes toda la razón. La usaré con cuidado".
+
+"Sí."
+
+Según lo que dijo Rosemary ayer, los residentes de esta casa no necesitan leer entre líneas, por lo que el ambiente es relativamente libre de toxicidad.
+
+Pensó que la culparían más por haberme puesto en peligro dos veces, así que estaba algo desconcertada. Bueno... el incidente del libro probablemente no fue culpa de Rosemary, y todos saben que ha estado cooperando de diversas maneras.
+
+Aunque ha perdido su derecho al trono y su posición es diferente ahora, siento que las interacciones de Rosemary se han suavizado, probablemente debido a esos factores. Además, Grace no es del tipo que solía frecuentar el Castillo Real, especialmente cerca de Rosemary.
+
+"—Por mi parte, estoy pensando en usar la Piedra Mágica de un Demonio de Llama para crear un Arma para la muñeca".
+
+"¿Un Arma?"
+
+"¿Se convertiría eso en una Herramienta Mágica? Me gustaría pedirle a Alfred que se encargue de eso también".
+
+"No me importa, pero tengo una curiosidad infinita por ver qué saldrá de esto", comentó Alfred.
+
+Hmm. Podría ser más rápido crear un modelo con Magia de Tierra que explicarlo verbalmente. Dada la filosofía de diseño de la muñeca, probablemente se despliegue como Vanguardia. En ese caso, lo mejor sería algo utilizable en combate cuerpo a cuerpo. Además de eso, utilizaremos Magia de Fuego.
+
+Teniendo en cuenta que podríamos desafiar a la Fortaleza Ardiente, es probable que haya más situaciones en las que usar fuego directamente no sea muy efectivo. Por lo tanto, vamos a especializarla en ataques físicos para ganar versatilidad. Rosemary puede encargarse de los aspectos de apoyo mágico.
+
+"¿Es esto... un guantelete?"
+
+Es un Arma que se asemeja a Guanteletes con Garras. Su apariencia algo tosca es inevitable.
+
+"Se puede usar como guanteletes. Incrustaremos la Piedra Mágica aquí y, al usarla, engancharemos las garras para asegurarla, luego usaremos Magia de Fuego para—"
+
+Al activar el mecanismo con un hechizo ligero de Magia de Fuego, un pilote sale disparado con fuerza desde el guantelete. Los ojos de Alfred y Rosemary se abrieron de par en par.
+
+En esencia, es un Pile Bunker. Normalmente, sirve como guanteletes con garras para el ataque y la defensa, y contra enemigos más grandes, les clavas el pilote.
+
+"Para el núcleo del pilote, usaremos Plata Valyus para asegurar el peso. Lo rodearemos con Mitril y grabaremos una Fórmula de Hechizo para que, tras clavar el pilote, la magia pueda activarse desde el interior... ¿Qué les parece algo así? Creo que hay mucho margen de mejora, así que tendré que discutirlo y experimentar también con Viola".
+
+También existe la idea de dispararlo como un proyectil, pero con metal ordinario, la potencia sería poco fiable, y la Plata Valyus o la Plata de Mitril son demasiado preciosas y costosas para usarlas como objetos desechables. Además, desarrollar explícitamente un arma de fuego tendría repercusiones significativas en el futuro.
+
+En ese sentido, si se trata de una Herramienta Mágica que utiliza una Piedra Mágica rara, el análisis sería difícil y la imitación complicada. Además, como no depende del Espíritu de Lucha o algo similar, debería ser adecuada como arma para una muñeca.
+
+"Activar magia en el interior..."
+
+"...Es increíble que se te haya ocurrido algo así".
+
+Los dos examinaban con atención el modelo que les entregué.
+
+"Para que haga esto con Magia de Fuego... estás utilizando la presión de la explosión, ¿verdad? ¿No hay riesgo de que el propio guantelete estalle?"
+
+"Esa parte utiliza una aplicación de la Mina de Resonancia, dándole direccionalidad a la explosión y concentrando la fuerza en un solo punto para lanzar el pilote".
+
+Yo me encargaré de escribir la Fórmula del Hechizo, pero en cualquier caso, primero debemos experimentar. Dado que se desconoce la potencia de salida crucial, sería problemático si usáramos una Piedra Mágica preciosa para crearla y luego resultara demasiado débil para ser útil. Antes de incrustar la Piedra Mágica, deberíamos crear solo el mecanismo de lanzamiento y probar su potencia.
+
+Por ahora, tengo una idea aproximada de los tipos y cantidades de materiales necesarios. También necesito que un sastre examine la tela de Arácnida, así que planeemos salir por suministros otro día. Por hoy, pensamos relajarnos en casa, sirviendo también como fiesta de bienvenida para Rosemary.
+
+"Hablando de eso, tienes bastantes sirvientes inusuales, ¿no?" comentó Rosemary, ladeando la cabeza mientras miraba a los sirvientes que descansaban en la sala de recreo después de que hiciéramos una pausa. Parecía genuinamente curiosa. Probablemente sea porque es meritocrática y no le importan los orígenes.
+
+Aún no se le ha informado sobre el pasado de Claudia. No sabe cómo las cosas llegaron a ser así.
+
+"Ah, eso es—"
+
+"Theodore. Yo lo explicaré", dijo Claudia, tomando el relevo.
+
+Rosemary solo conocía la parte de que Claudia y Marlene usaron una Bendición para anular la Magia de Maldición del libro, pero dado el porte noble de Claudia, Rosemary debía de tener curiosidad.
+
+Después de que Claudia terminó de explicar sus antecedentes, Rosemary quedó verdaderamente atónita y sin palabras.
+
+"Un socio contractual en la Ceremonia de Protección de la Nación… Aunque no era consciente, he actuado de manera irrespetuosa".
+
+Rosemary realizó una reverencia de súbdito, hincando una rodilla y bajando la cabeza ante Claudia sin la menor vacilación. …Bueno, tiene sentido. Ella es, esencialmente, quien otorgó la soberanía a la familia real Verdgar.
+
+"Etto… me haría más feliz si me trataras con normalidad".
+
+"Si ese es tu deseo. Pero antes de hacerlo, deseaba expresar mi respeto".
+
+"He recibido debidamente tus palabras".
+
+Al escuchar eso, Rosemary se puso de pie. Teniendo en cuenta el contenido de la Magia de Juramento, no hay duplicidad ni maniobras en las palabras actuales de Rosemary.
+
+Respeto. ¿Por cargar con la responsabilidad de la regeneración del mundo? ¿Por apoyar posteriormente al reino durante muchos años como cimiento del Laberinto? Incluso como alguien nacida del mismo linaje real. Como miembro de la familia real Verdgar. Y probablemente, desde la perspectiva meritocrática personal de Rosemary también, debe tener varios pensamientos sobre Claudia.
+
+Pero aun así… dada esta reacción al conocer las circunstancias de Claudia, parece probable que ayude con entusiasmo en el análisis de la Fórmula Mágica del Laberinto después de derrotar al Último Guardián también, lo cual es una perspectiva bienvenida.
+
++++
+
+# **210 – Alias o Apodo**
+
+"Bienvenidos".
+
+La dueña de la sastrería me saludó con una sonrisa en cuanto me vio entrar en su tienda.
+
+"Ha pasado un tiempo".
+
+"Para nada. Gracias por su continuo patrocinio".
+
+Esta era la sastrería donde anteriormente había comprado el abrigo de Lunaworm. Cuando la saludé, pareció recordarme y se inclinó cortésmente.
+
+"Cuánto tiempo sin verte, Daisy".
+
+"Oh, Miriam. ¿Has traído algo inusual hoy también?"
+
+Como era de esperar de alguien que trabaja como comerciante, Miriam ciertamente tiene amplias conexiones. Cuando le dije que estaba pensando en que examinaran una tela en esta tienda, mencionó que conocía a la dueña, Daisy, y se ofreció a actuar como intermediaria.
+
+"No, yo solo soy un extra. El señor Theodore tiene algo que le gustaría mostrarte, Daisy. Señor Theodore, ella es Daisy. Aunque parece que ya se conocen".
+
+"Permítame presentarme de nuevo. Mi nombre es Daisy, tal como en la presentación. Encantada de conocerle hoy".
+
+"Theodore Gartner. El placer es mío. Esto puede ser algo abrupto y grosero, pero he adquirido una tela un tanto inusual y esperaba obtener una opinión profesional".
+
+"En absoluto. Agradezco la oportunidad de ampliar mis conocimientos también. En lugar de quedarnos aquí hablando, por favor, tome asiento allí".
+
+Me guiaron a una mesa detrás del mostrador.
+
+"Es esto".
+
+Le entregué a Daisy la caja de madera que contenía la tela.
+
+"Déjame echar un vistazo".
+
+Dijo, abriendo la caja de madera… y en el momento en que la vio, la expresión de Daisy cambió.
+
+"…¿Puedo tocarla?"
+
+"Sí."
+
+Había traído tanto la tela tejida como el hilo en su forma de madeja. Daisy, con aspecto algo aprensivo, primero tomó suavemente la tela tejida de brillo plateado como si estuviera manipulando una frágil obra de arte.
+
+"Esta textura... este brillo... Es similar al Gusano de Luna, pero diferente..."
+
+Daisy tomó el fajo de hilos, tirando ligeramente del extremo para probar su tensión, y luego levantó la vista con expresión seria para preguntar:
+
+"¿Qué clase de hilo es este, exactamente?"
+
+"Hilo de Aracne".
+
+Cuando respondí, los ojos de Daisy se abrieron de par en par. Al parecer, las Aracnes son escasas, por lo que su hilo debe ser aún más raro.
+
+"De hecho, he abierto una tienda en el Distrito Este y estamos considerando trabajar con esta tela allí. Pero me está costando determinar su valor. Me gustaría conocer tu opinión".
+
+"E-eso significa que... ¿puedes conseguirlo en cantidades considerables?"
+
+"Por ahora, solo de forma irregular".
+
+Daisy tragó saliva, respiró hondo dos o tres veces y luego respondió.
+
+"...S-sí, entiendo. Permíteme empezar diciendo que esto es lo que yo haría... pero creo que le pondría un precio cinco veces superior al del Gusano de Luna".
+
+¿Cinco veces? Y eso que ya es un artículo de bastante alta calidad.
+
+"Bueno. Aunque la tela en sí es maravillosa... más que nada, tiene un valor por su rareza. Por ejemplo, si hiciéramos un vestido con esto... sinceramente, ni siquiera podría estimar el precio. Como aquí trabajamos con Gusano de Luna, puedo decir que esta tela también se puede encantar".
+
+"...Ya veo. Y no hay ningún otro lugar que lo venda..."
+
+—Así es.
+
+La calidad y la novedad están ahí, pero la distribución es demasiado limitada. Ciertamente... la nobleza y los conocedores que aman las cosas nuevas se lanzarían a por ello, así que, como vendedores, prácticamente podríamos fijar el precio que quisiéramos.
+
+"...Entendido. Entonces intentaré ponerlo a la venta en la tienda al precio que discutimos antes".
+
+"Sí. Creo que vendré a preguntar cuando salga a la venta. Como sastre, es algo con lo que me gustaría trabajar al menos una vez".
+
+Al decir esto, Daisy sonrió. Había considerado que Daisy se encargara de ello, ya que el abrigo que compré en esta tienda era de buena calidad... pero si se lo suministrara exclusivamente a ella, probablemente me ganaría el resentimiento de otros profesionales del sector.
+
+Daisy parecía entender ese aspecto también. Probablemente por eso mencionó lo de "cuando salga a la venta".
+
+En cualquier caso, tengo que anunciar la fecha de venta al distrito de la sastrería y adoptar un método de venta que no genere demasiada fricción.
+
+"Aunque no creo que haya tantos competidores".
+
+Mientras reflexionaba sobre varias cosas, Miriam intervino.
+
+—¿Es así?
+
+"Creo que solo las tiendas que ya pueden manejar el Gusano de Luna se lo plantearían siquiera. La nobleza busca materiales de alta calidad y las últimas tendencias... pero cada uno tiene sus preferencias y lealtades".
+
+Ya veo... Si una tienda no tiene ya una clientela noble establecida, aunque compren a precios altos, puede que no consigan los pedidos cruciales, y los clientes podrían no ser capaces de permitírselo de todos modos. En ese caso, lo mejor sería preparar solo lo necesario y suministrarlo a varias tiendas.
+
+Aun así. Si se puede encantar... aparte de la tela, tal vez debería pedir a la Aldea del Laberinto que proporcione ropa para los miembros del grupo. Si se usa bajo la armadura y demás, debería aumentar sutilmente el poder de defensa.
+
+"Bueno, entonces me retiro ya".
+
+"Puedo pedir que el carruaje te lleve".
+
+—No, no será necesario. ¿No tienes otros lugares que visitar? Yo también he dejado mi propia tienda desatendida.
+
+Así que, tras agradecer a Daisy y salir de la tienda, me despedí de Miriam.
+
+Cuando regresé al carruaje estacionado cerca, Grace y las demás se peinaban con entusiasmo las unas a las otras.
+
+—Ciertamente. El cabello negro de Claudia-sama es encantador.
+
+—Uno tiende a admirar colores diferentes a los propios, ¿verdad?
+
+—Tal vez.
+
+Ya las había visto haciendo algo similar antes en el taller... Parecen estar divirtiéndose. Ahora mismo, Marlene está peinando a Rosemary con un moño. Hmm... Parece que Marlene y Rosemary también se han vuelto bastante cercanas.
+
+—¿Cómo te fue?
+
+Me preguntó Claudia, que estaba peinando a Grace. Aunque la propia Claudia también llevaba el pelo recogido en dos coletas.
+
+—Al parecer, unas cinco veces el precio del Lunaworm. La calidad es buena y el valor por su rareza es alto, así que definitivamente es una ruta de Alta Calidad.
+
+—Ya veo... Me pregunto si las chicas se alegrarán cuando se lo digamos.
+
+—Creo que sí. Pero probablemente deberíamos decirles que no se excedan. Al fin y al cabo, es su propio hilo, y si se entusiasman demasiado por satisfacer la demanda, podría resultar abrumador.
+
+—Es cierto. Solo hilar y tejer el hilo requiere un tiempo y esfuerzo considerables. Al parecer, producir demasiado hilo las agota.
+
+Vaya. Esa podría ser una información inesperadamente valiosa.
+
+Mientras intercambiaba esta conversación con Claudia, envié órdenes al conductor Gólem para que se dirigiera a la siguiente tienda. Necesitábamos materiales para la muñeca, así que íbamos a una tienda de alquimia. Por cierto, respecto a los materiales metálicos para la armadura y el martinete, Alfred dijo que él se encargaría.
+
+Sin contar el tiempo en el libro... esta es la primera salida de Rosemary en mucho tiempo. Como antes andaba por todas partes bajo la apariencia de Anastasia, esto debe ser muy significativo para ella. En cuanto el carruaje empezó a moverse, se quedó mirando fijamente el paisaje urbano a través de la ventana.
+
+Finalmente, el carruaje llegó a la tienda de la alquimista Beatrice.
+
+"Bienvenidos".
+
+Cuando entré en la tienda con Rosemary, Beatrice nos saludó con su habitual tono lánguido.
+
+—Quiero hacer una Muñeca Mágica. ¿Puedo ver tus catalizadores?
+
+—Están en ese estante de allá.
+
+Rosemary fue a echar un vistazo al estante que Beatrice le había señalado.
+
+—Ro—... Marie. ¿Tienes todo lo que necesitas?
+
+Casi la llamo Rosemary pero me corregí, y ella me miró con una expresión ligeramente desconcertada.
+
+—...No, eso fue demasiado simplista. Como Alfred hace lo mismo, pensé que tal vez debería cambiar la forma en que me dirijo a ti.
+
+Estamos disfrazadas ahora mismo. Su apariencia también es diferente a la de Anastasia, así que tal vez debería haber discutido el seudónimo un poco más de antemano.
+
+Rosemary volvió a mirar hacia el estante y se encogió de hombros.
+
+—Puedes seguir llamándome así de ahora en adelante. ¿No sería confuso cambiar la forma en que te diriges a mí dependiendo del lugar?
+
+...¿Así es como funciona? Realmente no parece un seudónimo, ya que es solo una parte extraída de su nombre.
+
+Por cierto, en cuanto a la selección real de productos, parecía ser lo suficientemente buena como para impresionar a Rosemary. Al parecer, había encontrado todo lo que necesitaba.
+
+Bien, entonces. Ahora puedo proceder con la Creación de Muñecas sin reservas. Hagamos que un Gólem modelado a partir de una Muñeca terminada sostenga un prototipo de Pile Bunker y realice varios experimentos.
+
++++
+
+# **211 – Muñeca Caballero**
+
+"…Hace calor".
+
+En parte se debía al aire caliente expulsado por el Pile Bunker... pero la luz del sol era bastante fuerte hoy. Aunque la mañana había sido fresca, podía sentir claramente cómo subía la temperatura a medida que el sol ascendía.
+
+Lavigne parecía detestar el calor, ya que estaba holgazaneando perezosamente en un lugar fresco y sombreado. Seraphina también se refugiaba del calor, apoyada contra el cuerpo de Lavigne. El grupo de descanso parecía bastante relajado. Esperaba que continuaran su entrenamiento a un ritmo pausado mientras se mantenían hidratados con granizados y bebidas carbonatadas, ya que no quería que nadie sufriera un golpe de calor.
+
+Bueno. La primavera estaba terminando y prácticamente ya era verano.
+
+¿Qué estaba haciendo yo bajo este sol? Estaba desarrollando un arma que utilizaba Magia de Fuego. A mí también me encantaría estar refrescándome a la sombra, pero dada la naturaleza de este proyecto, tenía que realizar los experimentos en un área algo abierta. Por lo tanto, continué mis experimentos mientras usaba Magia de Viento y Magia de Agua para bajar la temperatura circundante.
+
+"Ve".
+
+Un bloque cuadrado de piedra se encontraba en el patio del taller. Al recibir mi orden, un Gólem de Tierra cargó hacia él.
+
+En su brazo llevaba un tosco guantelete—. Al dar un paso adelante, asestó una garra como un golpe al cuerpo. Mientras calculaba el tiempo, un Círculo Mágico brilló en mi mano y, con una explosión, se lanzó un pilote.
+
+Con ese único disparo— perforó un agujero del tamaño de un puño a través del bloque de piedra y, además, lo agrietó por completo con el impacto. Bueno... la potencia era aceptable. El problema residía en otra parte.
+
+"¿Y bien, cómo ha ido esta vez?"
+
+Preguntó Alfred. Tras revisar las extremidades del Gólem, respondí.
+
+"Parece que está bien. Los ajustes están funcionando correctamente".
+
+"Vaya, ¿liberar una ráfaga hacia atrás para cancelar el retroceso? Eso es interesante".
+
+Alfred parecía impresionado. Era el principio de lo que se conoce como un cañón sin retroceso. Debido a eso, disparar el Pile Bunker se había convertido en todo un espectáculo. Además, el calor lo hacía bastante sofocante.
+
+Pero bueno, el poder destructivo estaba a la altura de su apariencia, por lo que podía infundir miedo en los oponentes; matando dos pájaros de un tiro.
+
+…No. Había sido una verdadera lucha llegar hasta este punto. Durante los experimentos iniciales, el brazo del Gólem que lo disparaba se desprendía o se agrietaba por el impacto del lanzamiento y el retroceso.
+
+Para reducir el retroceso, refinamos la forma del guantelete y retocamos la fórmula del hechizo para ajustar la dispersión de la ráfaga... Tras numerosos pequeños ajustes y correcciones, finalmente llegamos a un punto en el que incluso un Gólem de Tierra podía manejarlo sin problemas.
+
+El equipo real para la Muñeca utilizaría materiales más resistentes, por lo que la potencia debería ser aún mayor.
+
+El problema restante— era asegurar que la llamarada trasera no alcanzara a los aliados en la explosión.
+
+Por ahora, estaba considerando desplegar un Escudo en la parte trasera para desviar la explosión hacia arriba, pero eso aún no estaba decidido.
+
+En cualquier caso, consideremos que el Pile Bunker en sí está terminado por el momento.
+
+"Así que esta forma es la definitiva. A continuación, tendremos que ajustarlo al brazo de la Marioneta".
+
+"Entendido. Se lo llevaré a Viola".
+
+"Sí. Yo también iré. Necesito escribir la Fórmula del Hechizo en papel".
+
+Cargando el Pile Bunker, nos trasladamos al interior del taller.
+
+"Por cierto, ¿cómo va el ajuste de la Armadura?"
+
+Estábamos grabando Fórmulas de Hechizos en la Armadura de Mithril de la Marioneta —la Armadura— para aumentar su resistencia, pero equilibrarlo con la potencia de la Piedra Mágica del Gigante requería muchos ajustes.
+
+"Bueno, la Piedra Mágica del Gigante es bastante impresionante. Creo que logramos mejorarla significativamente más de lo planeado inicialmente. Ahora es solo cuestión de dónde priorizar... pero creo que hemos alcanzado un buen equilibrio".
+
+Dónde priorizar. En otras palabras, el ajuste del equilibrio.
+
+Si aumentábamos demasiado la resistencia, el consumo de Poder Mágico se volvería severo.
+
+¿Deberíamos priorizar una Defensa más gruesa incluso si eso significaba agotarse más fácilmente, o reducir la fuerza para preservar la resistencia por más tiempo? Necesitábamos ajustar esa distribución.
+
+Por el tono de Alfred, parecía que actualmente apuntaban a un tipo equilibrado. Dado que la solución óptima no estaría clara sin el uso real, pensé que era lo correcto.
+
+"Ah, justo a tiempo".
+
+En una sala del taller estaban Rosemary y Viola, junto con la figura de una Marioneta reclinada. Al vernos, Rosemary sonrió y dijo eso.
+
+"¿Justo a tiempo para qué?"
+
+Cuando pregunté, Rosemary respondió mientras tocaba el pecho de la Marioneta.
+
+"Estamos a punto de activarla. Estoy deseando verlo".
+
+…Oh, vaya. En ese caso, debería llamar a todos los que están entrenando afuera.
+
+La Marioneta tenía la apariencia de un Caballero vestido con una armadura completa.
+
+Al parecer, la apariencia era importante para las Marionetas Mágicas. Si queríamos que cumpliera un papel de vanguardia, necesitaba lucir como tal.
+
+Combinado con su altura de unos 2 metros, emitía una intimidación considerable incluso estando acostada.
+
+Si solo buscáramos la potencia del Pile Bunker, haberla hecho más grande habría estado bien, pero considerando la exploración de Laberintos y el tenerla en casa, este era probablemente el límite.
+
+Además, con este tamaño, apenas podía pasar por un Caballero corpulento. Al mezclar movimientos imposibles para los humanos, podría aprovechar los puntos débiles.
+
+"Despierta".
+
+Mientras todos observaban con el aliento contenido, Rosemary desplegó un Círculo Mágico en la punta de su dedo. Luego tocó el pecho del Caballero Títere. A partir de ahí, se extendió una onda mientras el brillo del Poder Mágico se propagaba por todo el cuerpo de la Marioneta.
+
+Al principio, sus movimientos eran torpes. Tras ponerse de pie, se volvieron fluidos. El Caballero Títere se arrodilló respetuosamente ante Rosemary.
+
+"Parece que está bien".
+
+Rosemary asintió satisfecha, ocultando su boca tras un abanico mientras reía. De alguna manera, tal vez porque originalmente era una princesa, se desenvolvía perfectamente al comandar a un caballero.
+
+Pero una Vanguardia, ¿eh? ¿Así que esto cargaría contra las líneas enemigas junto a Grace y Dullahan?... Imaginarlo era algo digno de ver.
+
+"...Ah, se me ocurrió algo".
+
+"¿Qué pasa?"
+
+"Nada. Solo pensé que, ya que es de estilo Caballero de todos modos, podríamos usar una Capa como contramedida para las explosiones. Podríamos tejer una Capa con Hilo de Aracne y Encantarla con Magia de Agua para disipar el calor".
+
+"Eso también podría funcionar como contramedida contra la Fortaleza Ardiente".
+
+"Eso espero. Además, ya que el Pile Bunker está finalizado, me gustaría que ajustaras su tamaño para que se adapte a esta Forma".
+
+"Entendido".
+
+Mientras colocaba el Pile Bunker experimental sobre la mesa, Viola asintió.
+
+"¿Es aceptable la apariencia del Pile Bunker así? Intenté que combinara con la Muñeca, pero debido a consideraciones de ajuste, algunos detalles han cambiado ligeramente".
+
+Específicamente, la forma de la pieza que ventilaba la explosión hacia atrás.
+
+"Creo que está bien".
+
+Tras comparar alternativamente el Pile Bunker y la Muñeca, Rosemary asintió.
+
+"Entonces... esto está prácticamente decidido".
+
+"¿Y qué hay del nombre? Llamarla 'la Muñeca' para siempre..."
+
+Grace ladeó la cabeza. Cuando miré a Rosemary al oír esas palabras, ella puso una expresión algo sutil.
+
+"No se me da bien inventar nombres así. ¿Podría pedirte que lo hagas tú?"
+
+Me pasó la tarea de esa manera. Hmm. Qué hacer.
+
+"...Hmm. ¿Qué tal Ignis?"
+
+Después de pensarlo un poco, respondí. Creo que significaba llama.
+
+"Decidido. A partir de hoy, tu nombre es Ignis".
+
+Rosemary golpeó ligeramente la Armadura de la Muñeca como si llamara a una puerta. La Muñeca aludida se puso una mano en la cadera e hizo una reverencia.
+
+"Ahora que hemos alcanzado un hito... hay una cosa que me gustaría pedir".
+
+Dándose la vuelta, Rosemary dijo.
+
+"¿Qué pasa?"
+
+"Quiero disculparme con el Conde Gartner. Debido a mi plan, le causé muchos problemas".
+
+...Ah. A mi padre. Probablemente era algo que era mejor hacer en persona. No era el tipo de asunto que se maneja a través de un Dispositivo de Comunicación.
+
+Pero, el Condado de Gartner, eh. No era un lugar al que quisiera ir especialmente... pero si es cerca de la casa de mi madre... bueno, está bien.
+
+"Sí. Hemos estado ocupados con el desarrollo de la Muñeca últimamente, así que tal vez una salida grupal sería agradable. Lindwurm probablemente también se alegraría".
+
+Ha hecho calor últimamente, así que podría servir también como retiro de verano. Hay un lago en el bosque, así que relajarse allí tampoco estaría mal.
+
++++
+
+# **212 – Regreso a casa en verano**
+
+"Entonces, Maestro. Por favor, tenga cuidado en su viaje".
+
+Nos preparamos para el regreso a casa descargando el palanquín del dragón frente a la casa y cargando el equipaje. Al terminar la mayor parte de los preparativos, Cecilia y Mihaela inclinaron la cabeza.
+
+"Sí. Mihaela-san, ¿estás segura de que quieres quedarte?"
+
+Pensé que tal vez querría ver a mi padre después de tanto tiempo.
+
+"Creo que podré ver a Henry-sama cerca del otoño. Tengo mis propios deberes que atender", respondió Mihaela en voz baja, llevándose una mano al pecho. Ya veo. Si quedarse con Cecilia es parte de su trabajo, entonces debo respetarlo.
+
+Para la seguridad del hogar, se desplegaron varios de los sencillos muñecos de Rosemary, junto con dispositivos de alarma nocturnos y los residentes de la aldea del laberinto que recibían entrenamiento de defensa personal; el sistema de seguridad de nuestra casa era bastante sólido.
+
+Aunque era poco probable que ocurriera algo grave, incluso si sucediera algo, siempre que tuviéramos contacto por el dispositivo de comunicación, la magia de teletransportación de Claudia podría traernos de vuelta de inmediato.
+
+"Bueno, me iré por un rato".
+
+"Creo que el Pile Bunker estará terminado para cuando Theo-kun y los demás regresen".
+
+"Entendido. Si surge algún problema, usa el dispositivo de comunicación como de costumbre".
+
+"Entendido".
+
+Tras intercambiar estas palabras con Alfred y Viola, que vinieron a despedirnos, subí al palanquín de dragones. Marlene se asomó por la ventana y saludó a su hermano con la mano. Alfred también sonrió y le devolvió el saludo a Marlene.
+
+Dentro del palanquín, Irmhild comenzó a tocar su laúd de inmediato. A su lado, Sheila movía ligeramente las manos al ritmo de la música, tal vez realizando un entrenamiento mental.
+
+…Bien, entonces. Para este regreso a casa, incluyéndome a mí, éramos nueve miembros en el grupo más tres familiares y un muñeco; un grupo bastante numeroso. El palanquín de dragones se había ampliado de tres dragones a cuatro, volviéndose aún más masivo.
+
+Los tres familiares eran Caduceus y Lavigne, además del familiar doppelganger de Rosemary, Ambrum.
+
+Antes de transformarse, tenía un cuerpo semitransparente parecido al agar, con una silueta humana pero sin ojos, nariz ni boca. Con su aspecto brillante y extrañamente redondeado, el que pareciera encantador o inquietante dependía de la persona.
+
+Tenía la capacidad de adoptar la misma apariencia que alguien al recibir su sangre, algo que Rosemary había usado para crear clones de sombra y escabullirse a la ciudad utilizando pasadizos ocultos.
+
+Después del incidente, permaneció bajo la supervisión del castillo real como evidencia, pero al igual que los libros de la biblioteca prohibida, se me permitió tomar su custodia.
+
+Era útil, pero su baja capacidad de combate era un inconveniente. Llevarlo al laberinto sería imposible. El hecho de que tuviéramos que prepararle ropa también era un problema menor. Actualmente vestía ropas de sirviente.
+
+"…¿Qué hay de la condesa Gartner y su hijo mayor Byron? No sé muy bien qué decirle al conde sin conocer su situación actual", preguntó Rosemary, tal vez recordando el incidente al verme observar a Ambrum.
+
+"Están bajo arresto domiciliario con vigilancia. Incluso sin lo que pasó con Marie, habían hecho varias cosas que habrían llevado al mismo resultado de haber sido descubiertas. Así que no creo que debas preocuparte demasiado por su trato".
+
+"Ya veo".
+
+Ante mi respuesta, Rosemary mostró una expresión pensativa.
+
+Kathryn había estado conectada con el antiguo marqués Broderick tras bambalinas y había hecho varias cosas, y al parecer Byron también lo sabía. Quizás pensó que tras heredar la familia, podría aliarse con el antiguo marqués y obtener beneficios… pero en ese caso, sospecho que ambas familias habrían caído juntas.
+
+En cuanto al segundo hijo, Daryl, parece que mi padre lo está educando con bastante rigor, así que por ahora me reservaré mi juicio.
+
+Aun así, Rosemary parece algo nerviosa. Ciertamente, incluso al intentar resolver las cosas, hay muchos asuntos que no pueden revelarse, y probablemente ella quiera, al menos, manejar las cosas adecuadamente con mi padre.
+
+Bueno, eso es todo. No hay necesidad de seguir tensos de ahora en adelante. Cuando mis ojos se encontraron con los de Ashley, ella asintió en silencio.
+
+"Marie-sama. ¿Le gustaría jugar a las cartas con nosotras?". Ashley invitó a Rosemary a jugar. Rosemary mostró una expresión ligeramente sorprendida, pero sonrió con ironía y asintió.
+
+Aterrizamos el palanquín del dragón frente a la casa de mi madre. Después de meter el equipaje, como la ropa y la comida, nos cambiaríamos de ropa antes de visitar la tumba.
+
+"Es un lugar hermoso. Al igual que la casa de antes, es bastante misterioso".
+
+"Este era el lugar favorito de Lisa-sama", respondió Grace al comentario de Rosemary con una sonrisa algo melancólica.
+
+Flores coloridas florecían alrededor de la tumba de mi madre. Un jardín de flores teñido de rojo por el atardecer. Se había trazado un camino desde la casa de mi madre.
+
+Harold y Cynthia, que cuidaban de la tumba, parecían estar haciendo su trabajo de manera muy minuciosa. Se notaba lo bien mantenida que estaba.
+
+"Cuánto tiempo sin vernos".
+
+"Buenas tardes".
+
+Harold y Cynthia vinieron a saludarnos. Le había dicho a mi padre que regresaría, así que parecía que ambos nos estaban esperando.
+
+"Sí. Cuánto tiempo sin verlos a ambos. Gracias".
+
+"No hay de qué. Este es nuestro trabajo. El Conde nos visitó hoy alrededor del mediodía", respondió Harold con una cortés reverencia. Había un ramo de flores en la tumba. Mi padre debió traerlo. Yo también… coloqué el ramo que traía conmigo.
+
+Se supone que me reuniré con mi padre mañana por la tarde… Es una persona ocupada, así que programar la cita debe ser difícil. Dado que oficialmente estamos distanciados, incluso reunirse requiere varios preparativos.
+
+"Ya estoy en casa, madre".
+
+"Cuánto tiempo sin verla, Lisa-sama".
+
+Grace presionó su anillo y cerró los ojos ante la tumba de mi madre.
+
+Todos los demás hicieron lo mismo, cerrando los ojos en una oración silenciosa.
+
+Después de un rato… abrí los ojos y hablé con Harold y los demás.
+
+"Ustedes dos, ¿les gustaría quedarse a cenar?".
+
+"…¿Está bien si lo hacemos?".
+
+“Yeah. Even ==if== you ==return== to town now ==return== prepare, dinner would be late. You’re welcome to stay overnight too.”
+
+"Yo… siempre he querido entrar en esa casa al menos una vez", dijo Cynthia con una sonrisa feliz. Bien. Me alegra que a ella también le guste la casa de mi madre.
+
+"Hablando de eso, hay algo que me ha estado inquietando un poco", dijo Harold mientras hablábamos sobre las condiciones recientes en el condado después de la cena.
+
+—¿Qué?
+
+"Bueno. Hoy fuimos llevados a la tumba por el carruaje del Conde… Mientras esperaba frente a la mansión, vi a alguien observándonos desde las sombras. Esa persona era… um…"
+
+Harold vaciló. Esto… no suena muy bien.
+
+"Parecía alguien que solía trabajar en la mansión antes. No los había visto recientemente y me preguntaba qué les había pasado…"
+
+No pude evitar intercambiar miradas con Grace.
+
+Alguien que solía trabajar en la mansión y desapareció… ¿Podría ser uno de los sirvientes que Kathryn trajo de la casa del Marqués?
+
+"¿Ya le has contado a mi padre sobre esto?"
+
+—No, todavía no. Estaba hablando con Cynthia y me di cuenta, por así decirlo. Llevaban una capucha, así que no me fijé en ese momento...
+
+—¿Así que Cynthia también los vio?
+
+Cuando pregunté, Cynthia sacudió la cabeza. —No los vi en ese entonces.
+
+—Los vi en un lugar diferente. No llevaban capucha entonces. Pero estaban con gente desconocida en el pueblo, así que lo recordé bien. Cuando Harold contó su historia, me di cuenta de que llevaban el abrigo del mismo color... así que fue por eso.
+
+Ya veo... Harold y Cynthia probablemente no conocen los detalles de la situación doméstica del Conde. Es probable que no sepan por qué fueron despedidos.
+
+Probablemente esta sea información que mi padre debería escuchar.
+
+Es difícil imaginar que Kathryn o Byron estén detrás de esto. No creo que hayan dejado margen para la manipulación externa, y mi padre sería sumamente cauteloso en ese aspecto.
+
+Entonces... los antiguos sirvientes de la casa del Conde actuando por su cuenta. Planeando recuperar algo, resentimiento por haber sido despedidos... hay varias razones posibles.
+
+Aun así... ¿qué deberíamos hacer?
+
+Esta vez, con Claudia acompañándonos, podemos teletransportarnos a Termwills de inmediato en caso de emergencia, y originalmente planeamos quedarnos aquí varios días. Quizás debería vigilar los movimientos de Kathryn.
+
++++
+
+# **213 – Expreso**
+
+—Ve.
+
+Tras darle la orden a Caduceus, se licuó de su forma felina y se deslizó por el hueco bajo la puerta. Lo había enviado a proteger a mi padre. Luego, contacté con mi padre a través del dispositivo de comunicación.
+
+—Información de Harold y Cynthia. Parece que el antiguo sirviente Godwin ha estado merodeando por la finca del Conde. También fue visto con individuos desconocidos, por lo que puede ser necesaria la precaución.
+
+—Entendido. Realizaré algunas investigaciones por mi parte también.
+
+Después de un rato, llegó ese mensaje de mi padre. Godwin era un sirviente al que Kathryn había llamado desde la casa del Marqués.
+
+Lo habíamos identificado como el probable Godwin haciendo que Harold y Cynthia compararan los rasgos faciales con un modelo de arcilla del rostro del sirviente que yo había hecho.
+
+—¿Qué clase de persona es este Godwin?
+
+—En mi opinión... no creo que sea un individuo honesto. Parece que acosaba a los sirvientes que no se ajustaban a sus métodos hasta que renunciaban.
+
+—...Eso me lo imaginaba.
+
+—¿Se encuentra bien, Grace-sama?
+
+Rosemary y Ashley fruncieron el ceño. Cuando Marlene se acercó al lado de Grace con expresión preocupada, Grace le devolvió la sonrisa y tomó su mano.
+
+—Soy... una Dhampir. Como había aspectos que asustaban a la gente, no experimenté mucho acoso directo.
+
+—Ya veo... Así que esa es la clase de persona que es.
+
+Claudia dejó escapar un pequeño suspiro.
+
+...He oído a gente quejarse de cómo un monstruo se alojaba en la casa del Conde cuando Grace no estaba presente. Aunque no la acosaran directamente, ciertamente no serían amables con ella.
+
+Aun así, el problema radica más en los individuos desconocidos con los que supuestamente estaba que en el propio Godwin. Posibilidad de colusión. O posibilidad de ser manipulado para hacer recados. Deberíamos considerar todas estas posibilidades.
+
+"He memorizado su rostro. ¿Yo también puedo salir?"
+
+Sheila, que había estado mirando fijamente el busto de Godwin con los ojos entrecerrados, preguntó esto.
+
+"¿Qué tienes pensado hacer?"
+
+"Los lugares donde se esconden personas desconocidas... creo que podemos identificarlos con un poco de interrogatorio. Godwin tampoco conoce mi cara, así que es bastante ventajoso".
+
+"Si Sheila va, yo también voy".
+
+Irmhild se puso de pie.
+
+"...Entendido. Muévanse en parejas y mantengan contacto regular a través del dispositivo de comunicación. Si el otro bando las descubre, no duden en salir volando y retirarse. Solo eso debería servir como disuasión contra acciones imprudentes".
+
+"Cierto. Solo identificaremos la ubicación. No nos sobreesforzaremos".
+
+Dado que ambas destacan en habilidades de detección, no debería haber preocupación por ser rodeadas.
+
+Ahora bien—Caduceus parece haberse pegado a mi padre según lo planeado. Mi padre decidió salir en carruaje acompañado de caballeros... pero ¿a dónde se dirige?
+
+...Dado el momento de su partida, ¿será al anexo donde está Kathryn?
+
+Escuché que para eliminar su influencia sobre Daryl, ha sido confinada en una residencia separada de la casa principal. También están siendo cuidadosos con la selección del personal de servicio, e incluso para comprar suministros, van acompañados y se les exige presentar informes detallados de gastos.
+
+Mi padre, tras bajar del carruaje, dejó allí a los caballeros que lo acompañaban, hizo que los guardias abrieran la entrada de la alta puerta de hierro y se dirigió hacia la casa a través del jardín delantero donde florecían las flores.
+
+Aunque se le llama el anexo del Conde, no es una mansión particularmente grande. Tiene el tamaño de una casa de plebeyos un poco grande, pero en comparación con su escala, tiene muros altos... y dentro de esos muros, hay un jardín delantero con un cenador.
+
+Comparados con la apariencia de la casa y el jardín delantero, los muros parecen relativamente nuevos, como si hubieran sido construidos después. Ya sea para confinamiento o reclusión... en cualquier caso, ciertamente funciona como una prisión aislada del mundo exterior.
+
+"El señor ha llegado".
+
+El sirviente que salió a recibirlo se inclinó respetuosamente ante mi padre antes de retirarse a la habitación contigua.
+
+"¿Qué te trae por aquí a estas horas de la noche?"
+
+Kathryn, que parecía haber estado bordando un tapiz, preguntó esto con una expresión algo perpleja.
+
+"Vine a hablar un poco. ¿Ha ocurrido algo inusual recientemente?"
+
+Probablemente los trajo de su estudio. Colocó varios libros sobre la mesa. Eran libros de géneros como cuentos de hadas e historias.
+
+"Aparte de tu venida a esta hora, todo está como de costumbre. ¿Hoy trajiste libros en lugar de hilo de bordar?"
+
+Mi padre miró fijamente a Kathryn, pero finalmente asintió en silencio.
+
+"Ya veo".
+
+Kathryn frunció el ceño y habló.
+
+"Sobre Byron... ¿no podrías liberarlo de su celda?"
+
+"Eso es imposible. Intentó escapar de esta casa y estaba expresando su descontento por el hecho de que Daryl se convirtiera en el heredero".
+
+"Ya... veo. Si te vas a tomar tantas molestias, bien podrías deshacerte de todos nosotros a la vez. O... ¿crees que yo estaría
+
+atada
+
+por algo como esto?"
+
+—No es eso. Eres la madre de Daryl y mi esposa. Creo que comparto la responsabilidad de lo que hicieron tú y Byron. Precisamente por eso no te descartaré a la ligera.
+
+—¿Todavía me llamas tu esposa?
+
+Ante las palabras de su padre, Kathryn soltó una risa autocrítica. A su risa le faltaba fuerza.
+
+…De alguna manera, siento que la impresión es muy diferente a la de antes. Bueno… a juzgar por lo que veo, la sentencia que dictó mi padre parece un veredicto indulgente, así que tal vez con el tiempo y al calmarse, ella ha tenido diversos pensamientos.
+
+—Mientras exista la posibilidad de que alguien intente llevarte, no puedo concederte la libertad. Como señor, definitivamente debo trazar una línea ahí… pero hablando únicamente de la relación entre tú y yo, deseo reconstruirla de nuevo. Si mi presencia te resulta molesta, intentaré no venir tanto como sea posible.
+
+—Puedes… hacer lo que quieras. Después de todo, tú eres el señor.
+
+Kathryn levantó la vista brevemente pero respondió con indiferencia.
+
+—Ya veo. Entonces me retiraré por hoy.
+
+Cuando su padre se puso de pie, Kathryn comenzó a extender la mano hacia su espalda, pero finalmente la retiró y sacudió la cabeza.
+
+—…Te acompañaré hasta la puerta.
+
+"Exacto".
+
+Pero Kathryn no se movió hasta que su padre se hubo marchado.
+
+Después de que su padre salió de la casa y la puerta se cerró momentáneamente, Kathryn murmuró para sí misma. Caduceus, deslizándose por el hueco de la puerta, escuchó el murmullo de Kathryn que nunca debería haber llegado a oídos de nadie.
+
+—Disculparse ahora… ¿qué logrará eso? Incluso si tú me perdonas… Lisa y su hijo no perdonarán lo que he hecho. ¿Es eso… aceptable?
+
+Así que Kathryn no sabe que mi padre y yo nos hemos reconciliado. Como se mantiene en secreto, si le preguntaran, es probable que mi padre solo dijera que estamos distanciados.
+
+No importa. No siento nada fuerte por Kathryn, ni en un sentido ni en otro.
+
+Se podría decir incluso que no me importa. Una vez que obtuve poder y dejé el hogar, pasó a formar parte del pasado. No espero disculpas ni venganza. Es indiferencia; mientras no nos involucremos, está bien.
+
+Pero mi madre probablemente… no, si pudiera escuchar palabras de disculpa, seguramente perdonaría a Kathryn. Así es ella.
+
+Sacudo la cabeza y cambio mi forma de pensar. Al menos… parece que no hay conexión entre Kathryn y Godwin.
+
+Kathryn siguió a mi padre y salió de la casa. De repente, se escuchó el sonido de alguien desplomándose.
+
+Mi padre y Kathryn levantaron la vista y lo vieron.
+
+El humo se arremolinaba en la puerta, y los guardias y los caballeros acompañantes se desplomaban como si les hubieran cortado los hilos—.
+
+—¿¡Nube de Sueño!?
+
+En el momento en que confirmé esa escena, me puse de pie y agarré a Ouroboros.
+
+—¿Qu-qué pasó?
+
+Ante mi actitud, la tensión recorrió a todos. Antes de salir de la casa, necesito tener la Herramienta Maldita de Grace en su Forma Liberada.
+
+—Están atacando a mi padre. Me dirijo a la escena de inmediato. ¡Todos los demás, esperen aquí!
+
+—¡Entendido!
+
+Mientras salía corriendo de la casa, reflexioné.
+
+De hecho, incluso con los soldados de vigilancia y los caballeros acompañantes, era el personal mínimo. ¿Es por eso? ¿Pensando que podrían forzar la situación ahora si tuvieran a un Mago?
+
+¿Investigaron los movimientos y el estilo de vida de mi padre, y calcularon que con el personal reducido de ahora podrían lanzar un ataque?
+
+Entonces, ¿con qué propósito? ¿Cuál es el objetivo? Incluso han movilizado a un Mago. Si se tratara solo de un antiguo sirviente resentido o un intento de rescate, la calidad del personal involucrado no tiene sentido. Entre los allegados al antiguo Marqués Broderick, que ha perdido su poder, ¿hay alguien capaz de mover tales hilos? E incluso si lo hubiera, ¿habría alguna razón para intentar rescatar a Kathryn dejando atrás al antiguo Marqués?
+
+O tal vez... sea un grupo diferente. Por ejemplo, uno que involucre a Silvatoria.
+
+Las dudas persisten, pero monto a Lindwurm y me dirijo al lugar a toda velocidad. Mientras tanto, Caduceus continúa transmitiéndome la situación allí.
+
+Ya fuera que mi padre y Kathryn comprendieran o no la situación en la entrada, sus ojos se abrieron de par en par.
+
+"¿¡Eso es Magia de Agua!?"
+
+"¡Ma-maldición, qué astutos! ¡Co-como sea, entren en la casa!"
+
+"¡Eso nos dejaría sin ruta de escape!"
+
+"¡P-pero...! ¡Incluso si nos quedamos en este jardín...!"
+
+Ante las palabras de mi padre, Kathryn escaneó frenéticamente su entorno como buscando una vía de escape, y luego se quedó helada.
+
+Sigo su mirada. En una rama gruesa de un árbol más alto que el muro, había un hombre vestido completamente de negro con una flecha encajada en su arco, apuntando directamente a mi padre.
+
+La flecha estaba siendo tensada para ser disparada. Al ver esto, Kathryn empujó a mi padre a un lado y dio un paso al frente, extendiendo las manos como para bloquear el camino.
+
+"¿¡Yo... yo...!?"
+
+La expresión de Kathryn mostraba que estaba asombrada por sus propias acciones. Para entonces, la flecha ya había sido disparada, volando directamente hacia el pecho de Kathryn.
+
+Preparándose para el impacto inminente, Kathryn cerró los ojos con fuerza. Pero la flecha fue desviada en otra dirección. Caduceus la había golpeado para apartarla. Sucedió en un instante. No sé si el tirador lo vio en la oscuridad de la noche, pero abrió mucho los ojos y encajó otra flecha.
+
+Pero.
+
+"¡No creas que habrá una próxima vez!"
+
+Desde justo arriba.
+
+Salté de la espalda de Lindwurm y cargué.
+
+Expandiendo el Escudo hacia el frente. Rompiendo tanto las ramas como el tronco mientras envolvía al asesino. Cayendo directamente al suelo como para aplastarlo. El sonido y la sensación de huesos crujiendo y rompiéndose. ¡Otro más! ¡El Mago que usó Magia de Agua!
+
+Usando al hombre aplastado como punto de apoyo, salté mientras empleaba Levitación. Acercándome al Mago de túnica negra en el techo de la casa común. Blandiendo a Ouroboros mientras cargaba.
+
+El enemigo también usó Levitación para saltar y retirarse. Con solo eso... ¿creen que pueden escapar?
+
+Haré que paguen debidamente por la cortesía de su interferencia sin sentido.
+
+Lindwurm, habiendo rodeado por detrás, embistió con su enorme cuerpo y envió al Mago volando de regreso hacia mí.
+
+"¿¡Uuuaah!?"
+
+Gritó y desplegó un Escudo, pero—.
+
+"Húndete".
+
+Lancé un golpe de palma directamente desde el frente. El impacto del poder mágico transmitido a través del escudo alcanzó la cabeza del mago, haciéndolo girar una vez en el aire. Mientras sus ojos se ponían en blanco, Lindwurm se abalanzó y le mordió la pierna, capturándolo.
+
++++
+
+# **214 – En la mansión del Conde**
+
+Apliqué técnicas de sellado tanto al tirador como al mago para prohibirles el uso de magia, y luego los inmovilicé endureciendo el suelo con magia de tierra. No sé si el tirador puede usar magia, pero lo hice por si acaso.
+
+Me ocuparé de su castigo más tarde. Primero, usé levitación para mover al guardián y a los caballeros inconscientes al interior del muro. Notifiqué a todos a través del dispositivo de comunicación que los enemigos habían sido sometidos.
+
+Luego aterricé en el patio con Lindwurm y saludé a mi padre.
+
+—Ha pasado tiempo, padre.
+
+—Theo... ¿viniste a ayudarme?
+
+—Perdone mi atrevimiento, pero obtuve información sobre individuos sospechosos y he estado vigilando su seguridad. ¿Están heridos alguno de los dos?
+
+—Yo estoy... bien. Kathryn, tú...
+
+Padre sostenía el hombro de Kathryn mientras ella temblaba con el rostro pálido, hablándole de algo. Kathryn asintió, y mi padre me miró y dijo:
+
+—Parece que ella está bien. ¿Y tú? Parecía que habías saltado desde el lomo del wyvern...
+
+—Yo también estoy bien.
+
+En cualquier caso, me alegra que ninguno parezca estar herido. Al escanear el área, divisé las flechas disparadas en el suelo. Las recogí como evidencia.
+
+...Las puntas de las flechas tienen algo untado. Veneno, tal vez? A juzgar por el ángulo y la trayectoria, la flecha dirigida a mi padre apuntaba a la zona de su hombro...
+
+Si es veneno, sería un intento de asesinato seguro. Si es algo como un somnífero o un paralizante, entonces probablemente fue un intento de secuestro. Si podemos identificar el tipo de veneno, podríamos determinar si el objetivo era el asesinato o la abducción.
+
+—...¿Por qué... harías eso... por alguien como yo?...
+
+Kathryn parecía atónita. Claramente había visto el disparo de la flecha, por lo que parecía haberse dado cuenta de que yo fui la razón por la que se desvió de su curso de forma antinatural.
+
+—Porque quería proteger a mi padre.
+
+—E-eso fue solo... instintivo...
+
+—Eso no es un problema.
+
+Incluso si fue una acción que ella misma no esperaba... eso precisamente significa que su preocupación por la seguridad de mi padre pesó más que su propia autopreservación, y que realmente hay afecto por él en su interior.
+
+—Yo... yo... después de haberte tratado tan... terriblemente... yo... a ti...
+
+Su voz se apagó mientras agachaba la cabeza.
+
+Kathryn parecía querer disculparse conmigo... pero no por orgullo, sino que parecía incapaz de articular las palabras debido a una debilidad infantil, como si tuviera miedo de ser regañada.
+
+...Así es. Kathryn es ciertamente débil. Precisamente por eso no pudo resistir la interferencia del antiguo marqués Broderick. Podría haber otros factores también, pero su conciencia de que está traicionando a mi padre ha distorsionado su relación.
+
+Ciertamente, yo también sufrí debido a esa debilidad. Así que, desde mi posición, no la defenderé ahora, pero tampoco la condenaré.
+
+"Por favor, considera no traicionar la amabilidad y la confianza de mi padre como tu forma de disculparte conmigo. Elijo creer en tu acción anterior de proteger a mi padre".
+
+Cuando le dije esto, Kathryn bajó la cabeza, con las lágrimas corriendo, pero asintió y habló con claridad.
+
+"...Lo... siento".
+
+"...Acepto esas palabras también".
+
+Pero dejemos este asunto aquí por ahora.
+
+Dado que la situación aún no se ha resuelto, necesito cambiar de enfoque.
+
+"Primero, vayamos a la mansión. No conocemos el objetivo del enemigo. Sería mejor traer también al personal que está aquí. Yo les escoltaré hasta la mansión".
+
+Dejar a Kathryn aquí tal como está sería problemático. Más importante aún, Harold y Cynthia todavía están bajo mi cuidado. Primero, me pondré en contacto con todos a través del dispositivo de comunicación y organizaré que nos reunamos en la casa de mi padre.
+
+"...Lo siento, Theo".
+
+"No hay de qué".
+
+"Por favor, usen esta habitación. Si necesitan algo, pidan a los sirvientes que lo preparen".
+
+"Sí."
+
+Nos dirigimos a la mansión de mi padre. Me llevaron al salón y tuve que esperar un rato hasta que llegaron todos. Me senté frente a mi padre, bebiendo té mientras esperábamos.
+
+"Había oído varios rumores... pero tus movimientos de antes me sorprendieron. Como tu padre, no quiero que corras demasiados riesgos".
+
+Ahora que lo pienso, esta era la primera vez que mi padre me veía luchar.
+
+"Gracias por tu preocupación. Sin embargo, para este asunto, ¿podrías dejármelo a mí y coordinar los movimientos de los soldados? Quiero capturar a todos los enemigos sin que haya bajas de nuestro lado".
+
+Si movilizamos a los soldados, los movimientos de personal inevitablemente se volverían frenéticos, y el hecho de que sus camaradas fueran capturados cerca de la casa de Kathryn también se revelaría al enemigo.
+
+Y más que nada, no estaré satisfecho hasta que haya aplastado por completo con mis propias manos a quienes se atrevieron a realizar una maniobra tan ridícula.
+
+"¿Tienes alguna pista?"
+
+"Nuestros camaradas están reuniendo información para localizar la guarida del enemigo".
+
+También había comunicaciones regulares de Sheila e Irmhild a través del dispositivo de comunicación. Confiaré en que darán resultados.
+
+"...Trabajas rápido. No ha pasado mucho tiempo desde que me contactaste".
+
+Entonces mi padre inclinó la cabeza ante mí.
+
+"En cualquier caso, nos salvaste. No solo a mí, sino que... respecto a Kathryn también, debo agradecerte debidamente".
+
+"No hay de qué".
+
+"Y no solo por este incidente. Debo de tener cierta blandura como señor. Debido a eso, te he causado dificultades".
+
+Blandura... eh. Quizás sea cierto. Pero mi madre lo describió con palabras diferentes.
+
+"No, eso es—"
+
+Justo cuando empezaba a decir eso, sonó un golpe en la puerta.
+
+Parecía que el sirviente había traído a Grace y a los demás. Ya veo. Bien, dejemos esta conversación aquí. Guardaré lo que quiero decirle a mi padre para después de que se resuelva el incidente.
+
+"Ha pasado mucho tiempo, Henry-sama".
+
+"Ha pasado un tiempo".
+
+"Ciertamente. Me alegra ver que estás bien, Grace. Ashley-sama, usted también parece no haber cambiado... Pero tener a tantos invitados distinguidos llegando a la vez... En circunstancias normales, estaría en posición de ofrecer mi mayor hospitalidad, pero..."
+
+Sí. Al observar al grupo reunido, comprendí que el hospedaje —o mejor dicho, una recepción adecuada— sería difícil.
+
+Grace es una Caballero y Ashley también es un señor feudal. Marlene y Rosemary tienen sus propias circunstancias, pero la realeza es la realeza.
+
+Habíamos planeado visitar la casa de mi padre un día después para evitar causar revuelo, pero con esta situación imprevista que nos obliga a reunirnos, es natural que los preparativos no estén completos.
+
+Bueno, no es momento para tales formalidades. Aun así, desde la posición de mi padre, él no puede permitirse ser descortés.
+
+"Agradecemos la consideración del Conde. Sin embargo, esto es una emergencia. Además, yo ya he perdido mi derecho al trono".
+
+Rosemary dijo en voz baja e hizo una reverencia. Marlene, por su parte, se levantó el dobladillo de la falda a modo de saludo y sonrió.
+
+"En cuanto a mí... una vez que este asunto concluya, debo ofrecer mis disculpas al Conde".
+
+"A mí... no, entiendo. Dejemos ese asunto de lado por ahora".
+
+Tras unos breves saludos a mi padre y las presentaciones de quienes se conocían por primera vez, pasamos a las contramedidas.
+
+La disculpa de Rosemary a mi padre tendría que esperar, pero con ladrones escondidos en el territorio y habiendo actuado de esta manera, debemos movernos rápido. No hay otra opción.
+
+"Marie. ¿Puedes decirme qué es esto?"
+
+Extendí las pertenencias del Tirador sobre la mesa y presenté varios frascos pequeños que contenían sustancias químicas y las flechas que habían sido disparadas.
+
+Rosemary examinó las puntas de las flechas y las posesiones del Tirador. Olfateó el aroma de los químicos adheridos a las puntas y de los que llenaban los frascos.
+
+"...Por este olor, y a juzgar por los tipos de antídotos... esto parece ser algún tipo de paralizante. Este frasco de aquí... podría ser un somnífero".
+
+"Un paralizante y un somnífero... ¿Entonces el objetivo no es el asesinato sino el secuestro?"
+
+"En ese caso... ¿podría ser por un rescate? O tal vez..."
+
+Ashley frunció el ceño.
+
+"No lo sé. Creo que ni las habilidades de puntería del Tirador ni los movimientos del Mago eran malos. Deberían tener muchas formas legítimas de ganarse la vida sin cruzar un puente tan peligroso".
+
+Secuestro por rescate. No diría que es imposible, pero me parece algo insatisfactorio. Sospecho que podría haber otra razón.
+
+"También consideré la posibilidad de que esté relacionado con Silvatoria. Si bien enviar un grupo de ladrones podría ser parte de operaciones de sabotaje, si intentan un secuestro en el Condado de Gartner con tan pocos efectivos—"
+
+—No me digas. ¿Podría esto estar relacionado con mi madre? Si hay algo que conecte al Condado de Gartner con Silvatoria, ese sería el único vínculo. Si el objetivo es algo relacionado con mi madre, no sería extraño que pensaran que mi padre sabe algo al respecto.
+
+Pero mis diversas especulaciones tuvieron que terminar ahí. Porque llegó una comunicación a través del dispositivo.
+
+'Escondite enemigo descubierto'.
+
+De parte de Sheila y los demás. Realmente hacen un buen trabajo. Informé a todos del contenido de la comunicación, intercambiamos miradas y asentimos. Podremos extraer información de esos tipos y hacer todo tipo de especulaciones más tarde, después de que los hayamos aplastado.
+
++++
+
+# **215 – El Pueblo de Caza**
+
+"Me voy ahora".
+
+"Mmm…"
+
+Padre parecía bastante preocupado, pero pareció aceptarlo ya que había muchos magos en nuestro grupo. Ignis y Dullahan eran particularmente convincentes. También le había mostrado cómo luchaba de antemano, lo que probablemente ayudó.
+
+La mansión del Conde Gartner tenía una cantidad decente de personal y seguridad reforzada, lo que hacía menos probable que fuera atacada, pero dejé atrás a Caduceus y Lavigne como defensa.
+
+"Ten cuidado, Theodore."
+
+"Sí. Volveré".
+
+Asentí a Claudia. Ella serviría más como un rol de evacuación de emergencia mediante teletransportación a Termwills que como defensa de la base.
+
+Ambrum tampoco era un combatiente, así que hice que se quedara en la mansión. Poder monitorear nuestra situación con tres familiares marcaría una gran diferencia.
+
+Salí de la mansión del Conde con todos y viajé a través del territorio del Conde. Como era medianoche, ya había poca gente yendo y viniendo.
+
+…Bueno, tampoco me gustaría caminar durante el día. No tengo un deseo particular de encontrarme cara a cara con los residentes.
+
+Grace me miraba con una expresión algo preocupada, pero cuando le dije que estaría bien y le devolví la sonrisa, ella también sonrió en silencio y asintió.
+
+"Siento haberte hecho esperar".
+
+—Mhm.
+
+Cuando me dirigí a la plaza del pueblo donde habíamos acordado encontrarnos, Sheila e Irmhild estaban esperando.
+
+"Parece que están usando una posada cerca de la puerta como su base. Godwin parece estar alojado allí también".
+
+"Eso sería conveniente para escapar si algo sucede. Los establos también están cerca, así que podrían estar considerando robar caballos".
+
+¿Las afueras del pueblo, eh? Una posada es algo problemática. Podrían tomar a otros huéspedes como rehenes, por lo que atraparlos por completo como hicimos con Randolph sería problemático.
+
+"¿Qué harás?"
+
+"Bloquear puntos clave, obligarlos a salir y acorralarlos".
+
+Si han establecido su base en un lugar lógico, eso significa que planean escapar como se espera si son atacados. La solución óptima se reduce naturalmente. Conozco el territorio del Conde mejor que ellos. De ninguna manera dejaré que escapen.
+
+Creé un modelo del distrito usando Magia de Tierra y se lo expliqué a todos.
+
+"Aquí y aquí. Además, bloqueen la entrada a este callejón con muros de tierra o hielo".
+
+"Entonces dividámonos y bloqueémoslos".
+
+Asentí ante las palabras de Ashley.
+
+"¿Qué pasa con los oponentes que intenten escapar volando?"
+
+"Hay una diferencia en movilidad. Requeriría organizar a los magos, y si tienen un juicio situacional adecuado, creo que desistirían de escapar por aire después de que derribemos a unos cuantos. Si aun así no se detienen, los haré volar a todos con un tornado. Ahora, sobre cómo llevar a cabo el asalto—"
+
+Ashley, Rosemary y yo nos separamos para levantar rápidamente muros en los callejones que pudieran servir como rutas de escape y bloquearlos. Una vez completado el bloqueo, solo quedaba atacar la base. Nos acercamos a la posada donde se escondían, confirmamos que todos estaban en posición y comenzamos la operación.
+
+—Muy bien, Seraphina. Cuento contigo.
+
+—De acuerdo. Déjamelo a mí.
+
+De pie ante la entrada de la posada, produje Golems en masa. Luego hice que Seraphina amplificara el volumen de mi voz y grité:
+
+—¡A Godwin y su banda! ¡Quedan arrestados bajo sospecha de conspirar para secuestrar al Conde Gartner! ¡Ríndanse pacíficamente y todo irá bien! ¡De lo contrario, no tendremos piedad!
+
+Tras gritar aquello, envié a los Golems cargando al interior de la posada. Asignando un Golem por habitación, llamaron bruscamente a las puertas, y la banda saltó por las ventanas hacia la calle. Bueno, la maniobra de desalojo fue un éxito.
+
+Su respuesta no mostró vacilación alguna. Sus movimientos indicaban que habían previsto que la situación fuera descubierta. Yo mismo salté a la calle tras la banda que escapaba y miré hacia la posada.
+
+—¿Th... Theodore...?
+
+Godwin estaba... todavía dentro de la posada. Incapaz de seguir el ritmo de los movimientos de sus compañeros y el desarrollo de la situación, miraba por la ventana con expresión estupefacta.
+
+"Ve".
+
+—¡¿Q-quéééé?!
+
+Hice que el Golem entrara en la habitación. Capturando al gritón Godwin, lo incrusté en el Golem de Tierra para que no pudiera moverse. Ya interrogaría a Godwin más tarde. Lo más importante eran sus compañeros.
+
+Creé un muro de lanzas con Golems y avancé, acorralándolos. Al frente del avance de los Golems estaban Ignis y Dullahan. Los residentes que asomaban la cabeza para ver qué ocurría cerraban y echaban la llave rápidamente presas del pánico, mientras los compañeros de Godwin huían con rostros aterrorizados.
+
+—¡¿Qué es esto?! ¡¿N-no hay salida?!
+
+—¡M-muros... Magia de Tierra!
+
+El grupo giró hacia un callejón, dirigiéndose a los establos, y luego se detuvo. Por desgracia, sus rutas de escape estaban previstas. Preparé rutas de escape fáciles, pero todas estaban bajo mi control. Probablemente ellos también lo sabían. Lucharían por escapar antes de recibir el jaque mate... pero bueno, eso también es inútil.
+
+—¡Rompan esta magia! ¡Rápido!
+
+—¡Lo he estado intentando! Su poder de interferencia es más fuerte... ¡Lo están suprimiendo desde el otro lado de este muro! ¡Maldita sea!
+
+—¡Simplemente salten por encima y acaben con el mago, maldición!
+
+Como era de esperar, parecía haber un mago entre ellos, ya que uno intentó usar Levitación para superar el muro por arriba... pero tras ser repelido por el Platillo de Marlene, se convirtió en el blanco de la Flecha de Luz de Irmhild. El mago derribado recibió el puño de hierro literal de Ignis y perdió el conocimiento sin tener siquiera oportunidad de hablar.
+
+Incluso si lograban evitar los ataques iniciales de Marlene e Irmhild... Sheila y Lindwurm esperaban en el aire. Además, la herramienta mágica de ilusión de Marlene estaba inflando el número de wyverns que volaban en el cielo. Debería ser suficiente para que se rindieran, al ver que escapar por arriba era imposible.
+
+Controlábamos firmemente la superioridad aérea. Ni uno solo escaparía.
+
+"¡No vuelen! ¡Serán el blanco!"
+
+"¡Es inútil! ¡Escapen por allá!"
+
+"¡Se han creado muros de tierra! ¡Ese callejón!"
+
+"¡El canal! ¡Había un canal, ¿verdad?! ¡Si saltamos ahí y nadamos para escapar—!"
+
+"¡Maldita sea! ¡Está congelado! ¡¿Qué es esto?!"
+
+A estas alturas, eran como ovejas perseguidas por perros. Solo podían ser arreados en grupo hacia los caminos despejados. Como la ruta estaba predeterminada y controlábamos el aire, podíamos adelantarnos a ellos fácilmente.
+
+Algunos intentaron irrumpir en las casas, pero eso también estaba previsto. Sus acciones fueron bloqueadas por el Escudo remoto de Marlene mientras ella esperaba arriba, y luego Irmhild les atravesó brazos y piernas con sus flechas. No es que nos sobraran manos... pero nos aseguramos de aplastar solo a aquellos que se desviaban del curso preparado.
+
+Eventualmente, las ilusiones de Marlene incluso crearon ventanas y puertas falsas. Aquellos que intentaban abrir las puertas fantasma terminaban frotándose contra las paredes o realizando acciones inútiles, solo para ser alcanzados por Ignis y aplastados.
+
+Así es. Solo preparé dos opciones: escapar por el camino trazado, o quedarse y luchar. Así que dejen de hacer cosas innecesarias y avancen rápido. De lo contrario, prepárense.
+
+Sus movimientos no eran malos. No estaban mal, pero las batallas en retirada son difíciles.
+
+No puedes escapar y luchar simultáneamente, e incluso si intentaras dejar una retaguardia, los Golems hacían que fueran muchos contra pocos. Además, dado que nuestro objetivo era capturarlos y extraer información, tener una retaguardia no tenía sentido en primer lugar.
+
+El lugar donde finalmente fueron acorralados era un área ligeramente abierta en el borde de la ciudad. Rodeado por imponentes muros de tierra e hielo que complementaban las murallas exteriores de la ciudad, era un callejón sin salida sin ningún lugar por donde escapar.
+
+Ashley construyó un Campo de Defensa en la única salida. Muros de hielo formaron un techo. Listo. Ahora—completamente encerrados.
+
+"Este es el fin. Resistan si quieren. Incluso si se rinden sin resistencia, considerando que hay magos entre ustedes, cosecharé la conciencia de todos por completo".
+
+Me enfrenté al grupo y declaré mientras sostenía a Ouroboros en guardia.
+
+"¡T-tú...! ¡¿Crees que esto es algún tipo de caza de zorros?! ¡¿Hasta dónde vas a burlarte de nosotros?!"
+
+Uno de ellos me fulminó con la mirada y escupió esas palabras con amargura.
+
+...Burla, dice. Como si personas que recurren al secuestro tuvieran algún orgullo del que hablar.
+
+No hay necesidad de intercambiar más palabras con esta gente. Con el destello del poder mágico dispersándose, abrí bien los ojos, mostré los dientes y me reí.
+
+El rostro del hombre se contrajo de asombro ante la cantidad de exceso de poder mágico que se emitía. Cargué directamente, balanceando a Ouroboros por encima de mi cabeza. Pero ese movimiento en sí era una finta. En el momento en que intentó bloquearlo, recibió de lleno el cabezazo de Capella y salió volando.
+
+Al dar un paso adelante, Grace y los demás también se movieron.
+
+"Creo que sería mejor no intentar bloquear descuidadamente".
+
+Grace lanzó una patada con naturalidad. Una aceleración y un poder destructivo inimaginables para un movimiento tan casual y pequeño. Un hombre que juzgó mal y no pudo bloquear terminó con el brazo roto y gritando.
+
+La Nube de Sueño de Ashley se extendió, arrastrándose por el suelo, robando la conciencia del hombre que había sido derribado.
+
+"¡M-maldita bruja!"
+
+Otro hombre intentó lanzarle un cuchillo a Grace, pero justo antes de soltarlo, su cuerpo giró en una dirección inesperada y lo lanzó hacia la espalda de su compañero. Con un cuchillo arrojadizo en la espalda y caído, la nube de sueño que se acumulaba a sus pies aseguró que no volviera a levantarse.
+
+Enredando las extremidades del hombre aturdido había hilos de poder mágico de color arcoíris. Flotando arriba estaba Rosemary. Ocultando su boca tras su abanico de plumas, sus hombros temblaban mientras reía alegremente.
+
+"¡¿Bayle?!"
+
+"¡N-no fui yo! ¡No fui yo!"
+
+El hombre llamado Bayle, incapaz de comprender la situación, fue controlado y atacó a sus compañeros. Dullahan cargó y los mandó a volar junto con el hombre que había bloqueado la daga.
+
+Ignis se encargó del mago. Con una capacidad defensiva ridículamente alta, dispersó varios hechizos, cargó directamente y hundió un puño en el estómago del mago. El mago se dobló por la mitad, esparciendo fluidos estomacales y retorciéndose en el suelo.
+
+Shade, invocado por Marlene, envolvió al grupo enemigo en la oscuridad, e Irmhild disparó flechas hacia su interior. Para Sheila, los proyectiles y la oscuridad no eran ningún problema. Desde el interior de la penumbra surgió un coro de angustia, gritos y alaridos.
+
+"¡Bastardo! ¡Al menos tú—!"
+
+Un hombre cargó contra mí enfurecido. Era el mismo que daba las órdenes durante la huida. Parece que es el tipo de líder. Y aparentemente un Espadachín Mágico. Apretando los dientes con expresión decidida, se acercó a mí mientras manipulaba una hoja de agua como si fuera un látigo.
+
+El movimiento de su mano se transmitió a la hoja de agua, acercándose a mi cuello desde una dirección inesperada. No hubo problema. Desplegué una fina Barrera de Escudo en todas direcciones. En el momento en que hizo contacto, capté la dirección y el ángulo. Sin disminuir mi velocidad de carga, la desvié con otro Escudo desplegado en el interior.
+
+"¡¿Qué—?!"
+
+El hombre apenas logró bloquear a Ouroboros con su espada. Al momento siguiente, la expresión del líder se retorció de agonía. Nemea había saltado y le había mordido la espinilla.
+
+"¡¿Gah?!"
+
+Intentó gritar, pero Ouroboros gruñó alegremente desde abajo y se estrelló contra su barbilla.
+
+—Duerme.
+
+Como tenía la pierna mordida, no pudo salir volando. Con un solo movimiento, golpeé su cabeza hacia abajo y coseché su conciencia.
+
+"¡¿S-Señor Elmer?!"
+
+"¡Siguiente!"
+
+Usando las patas traseras de Capella para un gran salto, atravesé el flanco de un hombre que no me prestaba atención. Con la sensación de costillas rompiéndose, lo envié rodando y retorciéndose en agonía.
+
+"¡Siguiente!"
+
+Como un pinball. Usando mis propias piernas, a Nemea y las patas de Capella, salté de Escudo en Escudo, volando de un lado a otro. Repitiendo movimientos de alta velocidad como rebotes, mandé a volar a cualquiera que tocara con Ouroboros, con magia, con Nemea, con Capella—derribándolos indiscriminadamente.
+
+"¡Gah!"
+
+"¡Ugh!"
+
+"¡¡M-monstruo... ay!!"
+
+Después de mandar a volar bruscamente a la mayoría de los que noté, apliqué Levitación para una parada de emergencia. Trazando un arco en el aire, aterricé. Siguiendo con retraso, se solaparon varios sonidos de humanos golpeando el suelo.
+
+Aquellos que habían estado expresando su angustia también fueron envueltos por la Nube de Sueño y rápidamente guardaron silencio. Cuando dispersé la nube de sueño con Magia de Viento, lo que quedó fueron las figuras de la banda, inconscientes y desparramados por el suelo. Una escena de montones de cadáveres, por así decirlo.
+
+Haa… Estaba bastante enfadado, pero… supongo que he desahogado un poco mi frustración.
+
+Ahora, como de costumbre. Solidificar con Magia de Tierra y sellar la magia. Terminemos con esta zona rápidamente.
+
++++
+
+#  **216 – Impostor**
+
+"Ugh… ghh… Me duele…"
+
+El hombre gimió mientras entreabría los ojos, con el rostro contorsionado por el dolor. Su cuerpo debía de estar atormentado por la agonía. Aunque intentó poner fuerza en sus extremidades, permaneció tumbado. Además, el dolor en su cuerpo parecía impedirle moverse.
+
+"¿Estás despierto?"
+
+El hombre dirigió su mirada hacia la dirección de la voz. Allí estaba Elmer, el líder del grupo. Elmer también había sido volcado tras ser inmovilizado por Magia de Tierra. Al ver esto, el hombre pareció comprender la posición en la que se encontraba.
+
+"¿Estás… ileso…?"
+
+"Es difícil llamar a esto 'ileso'. Mira este estado. No puedo usar Magia. Me duelen la cabeza y la mandíbula. Es un poco difícil hablar, pero bueno, estoy vivo de alguna manera."
+
+Elmer, con vendas envueltas alrededor de su cabeza, esbozó una sonrisa dolorida.
+
+"La magia está… eso significa…"
+
+"Baja la voz. No sabemos quién podría estar escuchando."
+
+Ante el tono susurrante de Elmer, el hombre pareció sobresaltado y escaneó apresuradamente su entorno. El lugar en el que estaba. La situación en la que se encontraba.
+
+Se dio cuenta de que estaban en alguna mansión desconocida, con una decoración interior bastante espléndida. Solo el hombre y Elmer estaban cerca. No había nadie más presente.
+
+"Esto es… ¿qué está pasando?"
+
+"No lo sé. Probablemente, esta sea una habitación en la residencia del Conde Gartner. Los demás también estaban aquí, pero parecen habérselos llevado uno por uno. Si están siendo interrogados o transportados, no lo sé… Por una razón u otra… nuestro plan fue expuesto, fuimos derrotados, y aquí estamos."
+
+El hombre mostró una expresión pensativa ante las palabras de Elmer, luego dijo:
+
+"¡Ah, c-cierto! ¡Ese Bayle…! ¿¡Podría habernos traicionado!?"
+
+"Probablemente solo estaba siendo controlado por algún tipo de Magia. No conozco la Magia, pero tales cosas probablemente existen. El enemigo simplemente fue mejor. Eso es todo."
+
+Los ojos del hombre se abrieron de par en par ante esas palabras. Luego soltó un profundo suspiro y dijo:
+
+"...¿Qué va a pasar con nosotros ahora?"
+
+"El rescate es imposible. Los hombres que teníamos apostados en el anexo fueron eliminados por un Mecanismo y derrotados. Traer a Godwin con nosotros era para poder insistir en que se trataba de un rescate si nos descubrían. Todo lo que podemos hacer ahora es guardar silencio y aceptar solemnemente nuestro castigo".
+
+Ante las palabras de Elmer, el hombre se mostró abatido y soltó una risa débil.
+
+"Pensar que esos dos calcularon mal la oportunidad..."
+
+"Si juzgaron que era algo que ellos dos podían manejar, debió de ser realmente una buena oportunidad. Una que no volvería a presentarse si se perdía. Entonces, simplemente significa que nos faltaron manos... Fue mi error de juicio".
+
+"Eso no es..."
+
+"Si hubiera salido bien... tal vez habríamos logrado nuestro objetivo también..."
+
+"¿La recuperación de la Magia poseída de Patricia...?"
+
+Justo cuando el hombre dijo eso, la expresión desapareció del rostro de Elmer.
+
+"¿Elmer-sama?"
+
+Ignorando la pregunta desconcertada del hombre, Elmer se puso de pie con naturalidad, como si nada.
+
+El hombre se quedó sin palabras. El ataúd de piedra que debería haber estado sujetando a Elmer era como un accesorio, hueco por dentro, con solo la tapa colocada encima. Si hubiera querido, podría haberse movido en cualquier momento.
+
+¿Por qué? ¿Se había levantado el Sello Mágico, permitiéndole romper las ataduras?
+
+Tales eran las preguntas y esperanzas que albergaba el hombre. La respuesta a ellas fue un cambio en Elmer más allá de sus expectativas.
+
+"¡¿Ghk?!"
+
+De su rostro. De sus manos. El color se desvaneció. Sus ojos, nariz y boca perdieron su forma definida, y su cabello retrocedió como si fuera succionado de nuevo hacia su cuero cabelludo. En poco tiempo, lo que había sido Elmer se transformó en algo semitransparente. En otras palabras: la verdadera forma de un Doppelganger.
+
+Entonces se abrió la puerta de la habitación. El hombre me miró al entrar, con los ojos muy abiertos.
+
+"Buen trabajo, Ambrum".
+
+Ambrum se puso una mano en la cadera, hizo una pequeña reverencia y salió de la habitación. Caduceus estaba con él. Su intercambio de hace un momento, aunque en voz baja, me había resultado claramente audible.
+
+Al parecer, Ambrum no puede hablar cuando no tiene forma humana porque carece de cuerdas vocales. Incluso en forma humana, sus respuestas no son tan fluidas, así que si quieres que hable de forma elaborada más allá de las respuestas preestablecidas, Rosemary necesita controlarlo directamente.
+
+El hecho de que Rosemary fuera estricta con el entorno también era una precaución para mantener a los sirvientes a distancia, evitando que se notaran los fallos del Clon de Sombra.
+
+Y controlarlo directamente da como resultado eso.
+
+"¡¿Qu-qué fue eso?!"
+
+"No hace falta hablar. Te diré esto: eso fue una comprobación de confirmación. No eres el único que filtró información, así que no hay necesidad de sentirse particularmente culpable".
+
+El hombre finalmente se dio cuenta de que lo habían engañado, abriendo y cerrando la boca sin decir nada. Parecía no encontrar las palabras.
+
+Comparado con preparar cosas como la Inquisición Mágica o Pociones Mágicas, este método es más rápido. Además, Rosemary, por sugerencia mía, pareció poner un esfuerzo considerable en controlar a Ambrum, pensando que podría servir como alguna forma de expiación hacia mi Padre.
+
+En fin, ya he oído lo que necesitaba. Usando Nube de Sueño para que pierda el conocimiento de nuevo, lo hago flotar hasta el vestíbulo con Levitación.
+
+"¿Es este el último?"
+
+preguntó Claudia.
+
+Allí, los secuestradores empaquetados estaban apilados como si fueran equipaje. Todos esperaban cerca.
+
+"Sí. Parece que el lado de Termwills ya tiene lista la recepción, así que por favor, encárgate."
+
+"De acuerdo. Déjamelo a mí."
+
+Un Círculo Mágico de Teletransportación se extendió desde los pies de Claudia, y el grupo fue enviado nítidamente a Termwills. Atrás quedó solo Godwin, con el rostro pálido.
+
+Este tipo tampoco puede usar magia, y su conexión con ellos es débil. Dado que no hay necesidad de restringir su magia con Magia de Sometimiento, este es más bien un asunto que debe quedar en manos de mi padre.
+
+El antiguo sirviente Godwin desempeñará el papel de ser denunciado públicamente por intentar guiar a criminales a cambio de una ganancia monetaria, sirviendo como una severa advertencia para evitar que otros sigan su ejemplo.
+
+"¡E-Es un malentendido, señor! … ¡Th-Theodore, joven amo también! ¡Yo solo— me dijeron que me darían dinero si los guiaba por el condado…!"
+
+Cuando mi padre y yo miramos a Godwin, dijo tales cosas con una sonrisa forzada.
+
+…Guiar, ¿eh?
+
+"¿He oído que estabas refunfuñando en una taberna y se te acercaron?"
+
+Cuando dije eso, Godwin empezó a temblar violentamente.
+
+Tenemos múltiples testimonios del grupo. Al parecer, Godwin estaba resentido con mi padre por haber sido despedido tan fácilmente tras años de servicio. Aun así, Godwin era efectivamente un espía de la familia del Marqués, traicionando a la familia del Conde, así que es su propia culpa.
+
+Parece que fue detectado por su equipo de recopilación de información mientras refunfuñaba borracho con un resentimiento fuera de lugar, y se le propuso ayudar a robar los tesoros de la familia del Conde.
+
+Pero su método fue el secuestro. Y su objetivo no eran los tesoros, sino Patricia —probablemente la Fórmula Mágica de mi madre. Esos dos prepararon su mecanismo allí porque pensaron que podrían secuestrar tanto a mi padre como a Kathryn simultáneamente.
+
+Pensaron que podrían usar la seguridad de Kathryn —alguien a quien mi padre muestra amabilidad— como escudo para forzar la confesión de mi padre. Una oportunidad para secuestrar a dos personas al amparo de la noche sin llamar la atención no es algo que ocurra a menudo.
+
+Bueno, probablemente a Godwin no le dijeron eso, pero aun así… al parecer les filtró asuntos internos de la familia del Conde y, aprovechando su familiaridad, merodeó por los alrededores para que, incluso si lo veían, pareciera que estaba allí para solicitar su reempleo.
+
+No se le dio toda la información… pero no hay duda de que los estaba ayudando de forma bastante activa.
+
+"Escuché suficiente desde la habitación de al lado. Decepcionante, Godwin."
+
+"¡N-No! ¡Fui! ¡Simplemente me engañaron!"
+
+Cuando mi padre suspiró, los ojos de Godwin se abrieron de par en par y empezó a amontonar excusa tras excusa, pero era insoportable escucharlo. Fue llevado por los soldados mientras gritaba.
+
+"Patricia, eh… Entre eso y Silvatoria…"
+
+Mi padre puso mala cara y se llevó una mano a la frente. Ah… Está cansado.
+
+Bueno, ha sido una cosa tras otra; no se puede evitar.
+
+"—Probablemente madre no quería arrastrarte a sus propios asuntos."
+
+"…Eso es… sobre Lisa. Seguramente debe ser eso."
+
+Entornó los ojos y sonrió con amargura. …Ahora que lo pienso, no pude decírselo a mi padre antes.
+
+—Algo que olvidé mencionar antes: dijiste que eras demasiado blando, ¿verdad?
+
+"Sí."
+
+—Madre llamaba a eso "bondad".
+
+Eso es lo que también me gusta de ti.
+
+Los ojos de mi padre se abrieron ligeramente, y luego mostró una sonrisa gentil.
+
+—Gracias, Theo.
+
+Diciendo eso, mi padre cerró los ojos tranquilamente.
+
+—Justo después de llegar... pasaron varias cosas, pero estoy deseando que llegue el banquete de mañana.
+
+—Así es. Debería proceder según lo previsto.
+
+Supongo que el asunto de Rosemary vendrá después de eso.
+
+“Then we’ll ==return== to Mother’s house  ==for== now. Let’s start fresh tomorrow.”
+
+—Sí. Hasta mañana. Lo espero con ansias.
+
+Antes de eso, necesitamos organizar y recopilar adecuadamente lo que aprendimos de sus testimonios. Grace y los demás, que habían estado sonriendo durante mi intercambio con mi padre, asintieron con expresiones serias cuando los miré e hice un gesto con la cabeza.
+
++++
+
+# **217 – El heredero de la familia del Conde**
+
+Después de regresar a la casa de mi madre, nos tomamos un tiempo para discutir los asuntos mientras tomábamos té alrededor de la mesa.
+
+Once we ==return== to Termwills, we’ll need to report to King Melvin, so we should organize the key points. Since we came partly  ==for== vacation ==or== rather to escape the summer heat, it’s better to properly finish what needs to be done before switching our mindset.
+
+—¿Está esto relacionado con Silvatoria otra vez?
+
+—Salió a relucir el nombre del marqués Zilbolt. Como de costumbre, afirman que es solo alguien a quien ayudaron una vez y que cualquier conexión oficial ha sido borrada.
+
+—Probablemente se harán los tontos aunque protestemos.
+
+Rosemary se encogió de hombros.
+
+—Lo más probable.
+
+Ser tan descarados y aun así intentar fingir ignorancia... Bueno, podría ser efectivo en situaciones en las que no podemos alcanzarlos directamente.
+
+Tampoco han mencionado nada sobre la conexión con el Príncipe Heredero. O bien los rangos inferiores no han sido informados, o no hay relación. No está claro, pero probablemente deberíamos operar bajo el supuesto de que existe una conexión.
+
+—¿Por qué... vendrían a casa de Lord Henry precisamente ahora?
+
+Grace ladeó la cabeza con perplejidad.
+
+Cierto. Ese es otro problema. ¿De dónde sacaron la información?
+
+Si tienen información sobre mí, lo normal sería asumir que he heredado la magia de mi madre. Si están tratando de rastrear la magia de mi madre, deberían atacarme a mí primero. Naturalmente, su objetivo debería ser mi hogar en lugar del territorio del Conde, pero eso no sucedió.
+
+En cuanto a la casa de mi madre... parece que intentaron entrar pero la barrera los detuvo fácilmente.
+
+Según la información de Godwin, finalmente desistieron de entrar en la casa de mi madre y, tras los informes de que los enseres domésticos y los libros habían sido trasladados a la familia del Conde, empezaron a investigar la mansión del Conde en su lugar. Si capturan a mi padre, podrían obtener acceso también a la casa de mi madre, así que el orden tiene sentido.
+
+—¿Qué estaban diciendo?
+
+—Parece que solo se enteraron de mi información después de unirse a Godwin.
+
+—¿Así que inicialmente su objetivo era el territorio del Conde y se enteraron allí, supongo?
+
+Claudia se llevó la mano a la boca y habló mientras reflexionaba. Bueno, probablemente eso fue lo que pasó. La razón por la que no vinieron directamente a mí fue probablemente para evitar trabajo extra.
+
+—¿Pensaron que podrían usar a tu padre como rehén si lo secuestraban?
+
+Aunque estemos distanciados, tomar como rehén a un pariente consanguíneo podría ser útil para atraer a alguien o realizar movimientos. Bueno, dadas las circunstancias, es una suerte que los informes sobre mí aún no les hayan llegado. La información que vincula el viaje de mi madre al territorio del Conde con el hecho de que yo sea el hijo ilegítimo del Conde no ha llegado a sus oídos.
+
+De todos modos, originalmente estaban buscando a mi madre. Deben haber obtenido información sobre su paradero en algún lugar... ajeno a mí, y enviaron operativos.
+
+En qué lugar y cómo lograron rastrearla es algo sobre lo que, a partir de aquí, solo podemos especular. Después de todo, no son más que peones que no comprenden las intenciones de sus superiores, y hacer que el Rey Melvin proteste debería servir como disuasión para el futuro.
+
+"Bueno, probablemente deberíamos protestar usando el nombre del Marqués Zilbolt. Que esto vuelva a suceder después del incidente anterior es demasiado conveniente como para descartarlo como acciones coincidentes de alguien que casualmente acababa de renunciar".
+
+Podrían ser capaces de justificar un incidente... Existe la posibilidad de que el fracaso anterior aún no haya sido reportado al Marqués Zilbolt. Si Silvatoria se toma la situación en serio, deberían mostrar alguna reacción.
+
+Al día siguiente. Según lo previsto, se iba a celebrar un banquete de bienvenida, así que nos dirigimos a la mansión del Conde.
+
+Dado que la mejora en la relación con mi padre se mantiene en secreto, sería una reunión informal solo con los implicados de forma privada, sin informar a los vasallos.
+
+Subidos en el carruaje que vino a recogernos, nos dirigimos a la mansión, donde el gran salón estaba decorado con flores y candelabros, con la comida ya dispuesta.
+
+"Gracias por venir desde tan lejos. Me disculpo por mi incompetencia al no haber podido recibirlos adecuadamente anoche... Estoy verdaderamente feliz de que hayan asistido a esta reunión de bienvenida. Aunque es modesta, creo que hemos preparado platos con esmero. Me encantaría que pudieran relajarse y disfrutar".
+
+Tras el saludo de mi padre, estallaron los aplausos, marcando el inicio del banquete.
+
+Un banquete en la mansión del Conde. Conmigo como invitado de honor... se siente algo extraño. Cuando mis ojos se encontraron con los de Grace, ella me sonrió. Hmm.
+
+"Normalmente llamaríamos a músicos", dijo mi padre con una sonrisa irónica mientras tomábamos asiento. Bueno, dado que los de afuera no pueden asistir, no hay nada que hacer.
+
+"Si yo fuera suficiente, ¿podría ofrecer una canción, aunque pueda ofender sus oídos?"
+
+"Sería muy de agradecer. Por favor, permítanos escucharla más tarde".
+
+Ante el ofrecimiento de Irmhild, mi padre asintió.
+
+"Por cierto, Mihaela-san está en mi casa".
+
+"¿Ah, sí?"
+
+"Dijo que está deseando que llegue el encuentro en otoño".
+
+Cuando transmití las palabras de Mihaela, mi padre mostró una sonrisa de felicidad.
+
+"Entendido. Por favor, dile que yo también espero con ansias nuestro reencuentro de otoño".
+
+"Entendido".
+
+Al ser una región productora de granos, los animales también crecen rollizos. Los productos procesados como el queso y los platos de carne son sorprendentemente abundantes. Aparecieron varios platos: pasteles de carne, guisos, pollo local asado a las hierbas y más.
+
+El banquete continuó en una atmósfera pacífica. Lavigne también parecía bastante complacida, recibiendo carne con hueso de parte de Ashley y Marlene.
+
+Después de que la comida llegara a una pausa natural, mis ojos se encontraron con los de Rosemary. Bien. Resolvamos este asunto.
+
+"Padre. Sobre lo que Rosemary quería discutir con usted y que mencionamos ayer".
+
+"Sí. Por favor, todos continúen con sus conversaciones por un momento".
+
+Asintiendo, se puso de pie. Padre, Rosemary y yo salimos del gran salón y nos dirigimos a la sala de recepción.
+
+"¿Dijiste que tenías algo que discutir conmigo?"
+
+Ante la pregunta de mi padre, Rosemary cerró los ojos, respiró hondo y luego lo miró directamente con expresión seria.
+
+"Sí. Debo pedirle disculpas, Conde".
+
+"¿Una disculpa…?"
+
+"El otoño pasado en Termwills, tanto el dar información a Lord Byron sobre Theodore-sama como el proporcionar medicina a su esposa fueron estratagemas mías".
+
+Ante las palabras de Rosemary, los ojos de mi padre se abrieron de par en par.
+
+"…¿Por qué harías algo así?"
+
+"Deseaba el trono. Con ese fin, intenté atraer a Theodore-sama a mi facción. Theodore-sama expuso mi plan y mi padre ordenó mi confinamiento".
+
+"...Ya veo".
+
+Probablemente mi padre ya había oído hablar de que Rosemary abogaba por la meritocracia. Por lo tanto, incluso al enterarse de los objetivos de Rosemary, no se sorprendió tanto.
+
+En cuanto a Rosemary, ya le había explicado al Rey Melvin que tenía la intención de disculparse, por lo que esto no constituiría una traición. Aunque, al parecer, se le indicó que no revelara los efectos de la medicina debido al Juramento.
+
+"Le pido disculpas por los tremendos problemas que le causé a usted, Conde, y a los miembros de su familia debido a mi egoísmo".
+
+Dicho esto, Rosemary hizo una profunda reverencia.
+
+"…Por favor, levante la cabeza".
+
+Padre cerró los ojos.
+
+"Respecto a las acciones de Byron y Kathryn, son en parte culpa mía y se deben a una supervisión inadecuada. Así que, solo hay una cosa que me gustaría preguntar".
+
+"Sí."
+
+"¿Cuáles son tus sentimientos actuales hacia Theodore?"
+
+Ante la pregunta de mi padre, Rosemary respondió sin dudar.
+
+"Después de aquello… debido a mi propio error, puse en peligro la vida de Theodore-sama, y luego él salvó la mía. Aunque podría alegar que fue por el bien del país, creo que le debo a Theodore-sama una deuda incalculable. La razón por la que estoy fuera ahora es porque juré con Magia de Juramento no traicionar nunca a mi padre ni a Theodore-sama de por vida, y solo gracias a su misericordia. Si no correspondiera a ese sentimiento, perdería incluso mi orgullo como miembro de la familia real".
+
+"Llegar al extremo de usar Magia de Juramento…"
+
+Ya fuera por ese nivel de determinación o por la severidad de Rosemary, mi padre parecía genuinamente sorprendido por sus palabras. Aunque sea antigua realeza, que una princesa use Magia de Juramento no es, desde luego, un asunto ordinario.
+
+"Entiendo el alcance de tu determinación. Con eso, no tengo nada más que decir. Acepto tus disculpas".
+
+Ante las palabras de mi padre, Rosemary inclinó la cabeza en silencio una vez más.
+
+Entonces, se oyó un golpe en la puerta.
+
+"¿Qué pasa?"
+
+Cuando mi padre autorizó la entrada, un sirviente entró e hizo una reverencia.
+
+"Lamento la interrupción. Lord Daryl insiste en que debe hablar con Theodore-sama y solicita una reunión".
+
+¿Eh? ¿Daryl quiere reunirse conmigo...? ¿De qué se tratará?
+
+Instintivamente miré a mi padre. Tras reflexionar un momento, mi padre hizo una sugerencia.
+
+"¿Y si yo... espero en la habitación contigua? Con la condición de que no se le informe a Daryl que estoy allí, ¿te reunirías con él?"
+
+...Ya veo. Quiere que vea los resultados de la educación que le ha dado a Daryl, mientras juzga con sus propios ojos la forma de pensar actual de Daryl.
+
+Para la familia del Conde, el progreso de la educación de Daryl es algo que no se puede descuidar. Después de todo, Daryl es ahora el heredero del Conde.
+
+"Entendido".
+
+"Entonces, por favor, haga los preparativos necesarios".
+
+Al recibir la orden de mi padre, el sirviente hizo una reverencia y se marchó.
+
+Una vez terminados los preparativos para el encuentro con Daryl, esperé en una habitación de la mansión del Conde. Entonces, se oyó un golpe en la puerta.
+
+—Adelante.
+
+Cuando respondí, la puerta se abrió y un sirviente guio a Daryl al interior... ¿Eh?
+
+Detrás del sirviente estaba un chico esbelto. Parecía un poco mayor que yo. Su rostro guardaba cierto parecido con el de Kathryn—
+
+"—Ha pasado tiempo".
+
+Cuando nuestras miradas se cruzaron, el chico hizo una reverencia. Esa voz. No había duda. Aunque la gente cambia... Daryl se veía muy diferente de la última vez que lo vi.
+
++++
+
+# **218 – Anhelo**
+
+"Primero... permítame disculparme por mis numerosos actos de falta de respeto en el pasado".
+
+Al decir esto, Daryl inclinó la cabeza. Más que resuelta, su expresión mostraba signos de tensión.
+
+Probablemente se había enterado de que soy el Embajador del Otro Mundo y que se me trata como un vasallo directo del Rey Melvin...
+
+"Um. ¿Por qué no nos sentamos y hablamos primero?"
+
+Si no decía algo así, no parecía que la conversación fuera a avanzar.
+
+Como era muy diferente de mi impresión anterior de Daryl, antes de considerar siquiera si perdonarlo o no, necesitaba escuchar qué había pasado y cómo había terminado así para poder juzgar al Daryl actual.
+
+En cuanto a lo que Daryl había hecho... bueno, fue desagradable, pero eso fue todo. Si tenía la voluntad de disculparse, no había razón para no perdonarlo.
+
+Tras sentarme frente a Daryl, un sirviente trajo té. Mientras inclinaba mi taza, esperé a que el sirviente se retirara antes de preguntar.
+
+"...Has cambiado bastante. ¿Qué tipo de vida has llevado desde que me fui de aquí?"
+
+Mi padre había dicho que lo reeducaría, pero no me había contado los detalles específicos.
+
+"Padre... Padre dijo que primero debía aprender sobre la vida de la gente de nuestro territorio. Hasta que llegó el invierno, ayudé en el desmonte de tierras y en las labores agrícolas".
+
+Aún podía notar que se estaba forzando en cuanto a su forma de hablar. Bueno, eso podría ser un problema menor. Pero desmonte de tierras, de entre todas las cosas.
+
+"¿Talar árboles, arrancar raíces?"
+
+"Ayudé con los árboles más delgados. Cortaba los árboles talados en trozos más pequeños y los cargaba, para luego convertirlos en leña. Después de eso, quitaba piedras de los terrenos que se convertirían en campos, labraba, esparcía semillas de arroz, arrancaba maleza, exterminaba insectos... básicamente todo hasta la cosecha. ...Aunque no creo haber sido de mucha ayuda".
+
+...Ya veo. Con razón perdió peso.
+
+"Fue un trabajo duro… pero me dejaron comer pan horneado con el trigo cosechado. Estaba delicioso".
+
+Daryl sonrió con orgullo y felicidad. Para Daryl… el trabajo agrícola podría haber sido más agradable de lo esperado.
+
+Ciertamente… si va a convertirse en el Conde de este territorio, probablemente debería conocer la vida de la gente.
+
+"Pero… eso…"
+
+Daryl parecía tener dificultades para hablar, su mirada vagaba mientras vacilaba.
+
+"…¿Qué pasa?"
+
+Cuando lo insté a continuar, Daryl todavía parecía inseguro, pero finalmente habló como si se hubiera decidido.
+
+"Yo… tenía algo que quería decirte, Theodore".
+
+Daryl respiró hondo y habló. Rastros de su antiguo yo se solapaban con él ahora. Con una apariencia algo desesperada, mostraba su verdadero rostro, no el de un noble.
+
+"Desde hace mucho tiempo, siempre he estado protegido por mi hermano. Como los demás también escuchan lo que dice mi hermano, creo que me dejé llevar por eso".
+
+Así es. Daryl solía seguir a Byron. Esa era la impresión que yo tenía. Cuando me hacían algo, Byron era el instigador principal y Daryl era el seguidor. A menudo le seguía la corriente a Byron.
+
+"Pero tú… incluso cuando mi hermano y yo te hacíamos varias cosas, de alguna manera no parecías tomarnos en serio, lo cual era un poco diferente a cómo eras con los demás. Eso… ¿cómo decirlo?"
+
+Daryl eligió sus palabras con cuidado.
+
+"Eso me hizo sentir… envidia, supongo… Yo—podría haber deseado una fuerza como la tuya".
+
+"Eso es…"
+
+¿Fuerza como la mía?
+
+¿Se refería a mi yo actual, o al antiguo yo que no podía hacer nada…?
+
+…Mi antiguo yo odiaba mi propia impotencia. Por eso leía libros relacionados con la magia en el estudio, con la esperanza de poder usar magia y algún día irme de casa.
+
+Eso era por mi madre y por Grace. Ah… sí, en efecto.
+
+Kathryn, Byron y Daryl. Podrían haber sido razones que me motivaron a aprender magia, pero probablemente no fueron la razón fundamental.
+
+Sin importar cuál hubiera sido mi relación con esos tres, habría aprendido magia de todos modos—con la esperanza de obtener un poder mayor algún día, y me habría ido de casa.
+
+"Me estás sobreestimando. Yo solo estaba—completamente absorto en mis propios asuntos".
+
+Sin importar cómo me percibiera Daryl, no es que no lo estuviera tomando en serio—simplemente no tenía la capacidad para hacerlo.
+
+"Pero ahora estás produciendo resultados, ¿no? Incluso cuando mi padre me dijo que estás trabajando como retenedor directo de Su Majestad, no me sorprendió tanto. Pensé: por supuesto que lo harías. Cuando fuiste capaz de usar magia y te fuiste de casa, me odié a mí mismo por ser alguien que no podía hacer nada sin mi hermano. Así que… creo que por eso pude esforzarme en el trabajo agrícola y demás".
+
+"Ya veo".
+
+"Sí."
+
+Daryl se rió con autodesprecio.
+
+"Bueno—ahora lo entiendo".
+
+"Ah, no. No era de eso de lo que quería hablar. Me fui por las ramas, pero la razón por la que le pedí a mi padre que me dejara verte era otra".
+
+Daryl sacudió la cabeza.
+
+"¿Eh?"
+
+"Es… sobre mi madre".
+
+…Ah. Es eso. Incluso sin que él entre en detalles, ya lo entiendo suficientemente bien.
+
+"Salvaste a mi madre. Así que quería agradecerte por eso de todo corazón".
+
+Asintiendo a sus palabras, extendí mi mano derecha.
+
+"Olvidaré el pasado. Por favor, conviértete en un buen señor".
+
+—…Gracias.
+
+Tras ese intercambio, Daryl y yo nos dimos la mano.
+
+"¿Te gustaría hacer acto de presencia en el banquete también?"
+
+"¿Está bien así?"
+
+"Bueno... Padre probablemente estaba siendo considerado conmigo. Le preguntaré un poco sobre ello".
+
+Ya que hemos dejado atrás el pasado, no veo ninguna razón para negarme a que Daryl asista al banquete.
+
+"¿Cómo fue?"
+
+Daryl había regresado a su habitación hasta que lo llamaran. Cuando fui a la habitación de mi padre, al lado, me preguntó por mi impresión sobre Daryl.
+
+"Ha cambiado bastante desde antes, estoy sorprendido".
+
+O tal vez—su interior no ha cambiado drásticamente, sino solo un poco. El trato de mi padre hacia Daryl. La influencia de estar separado de Kathryn y Byron. Su perspectiva sobre mí.
+
+"Podría deberse más a la influencia de Theo que a cualquier logro mío".
+
+"No fui consciente de nada de eso. Quizás me convertí en un detonante para el cambio, pero Padre creó el entorno para ello, y Daryl fue quien perseveró".
+
+Mi influencia por el solo hecho de irme de casa... probablemente no fue tan significativa.
+
+"Tal vez sea así. Sorprendentemente, podría haberle sentado bien a Daryl".
+
+Si aprendió sobre la vida de la gente después de que me fui, debió haber un periodo en el que Byron también hacía trabajos agrícolas... pero ese tipo prefiere las cosas que parecen impresionantes. Probablemente odiaba ese tipo de trabajo.
+
+En cuanto a Daryl, parece que el efecto que mi padre pretendía funcionó según lo planeado.
+
+"Sobre la asistencia de Daryl y su esposa al banquete..."
+
+"¿Te parece bien que Kathryn también esté allí?"
+
+"Incluso si me reconcilio con esa persona, no vas a revocar su trato anterior, ¿verdad? En ese caso, tener tales descansos ocasionalmente podría ser bueno. Daryl... probablemente tampoco ha visto a su esposa en un tiempo".
+
+Cuando dije esto, mi padre sonrió algo preocupado.
+
+"Eso es... cierto. Si yo estoy presente, que visiten juntos la residencia separada de Kathryn... podría estar bien de vez en cuando".
+
+"Ah. Es verdad. Tengo una pequeña propuesta con respecto a esta casa y la residencia separada".
+
+"¿Qué pasa?"
+
+"Imagino que reforzará la seguridad de ahora en adelante, ¿pero podría dejarme crear puertas ocultas y pasajes subterráneos de conexión? He aprendido Construcción Mágica".
+
+Padre parpadeó. Sería similar a las puertas giratorias de ocultación y al refugio subterráneo que hice en el orfanato.
+
+Sí. También le enviaré a mi padre una herramienta mágica de Dispositivo de Alarma más tarde. Combinado con el aumento de la seguridad, creo que será bastante efectivo.
+
+"Bueno, entonces, Padre".
+
+"Ah. ¿Dijiste que te quedarás en casa de Lisa por dos días más?"
+
+Cuando el banquete terminó y llegó el momento de abandonar la residencia del Conde... mi padre vino a despedirme hasta el vestíbulo de entrada.
+
+En el banquete, Irmhild cantó mientras tocaba un instrumento, y estuvo muy animado. Kathryn y Daryl también parecían felices de reunirse después de tanto tiempo.
+
+"Sí. Creo que probablemente pasaremos el día de mañana en el lago. Planeamos partir pasado mañana alrededor del mediodía, pero en cuanto a la Construcción Mágica, pensé en hacerlo todo el último día, yendo a primera hora de la mañana".
+
+Crear un pasaje subterráneo que conecte la residencia del Conde con la residencia separada... y construir una sala de refugio en el camino con puertas ocultas cerradas debería cumplir varias funciones al combinarse con el Dispositivo de Alarma.
+
+"...¿Puedes terminarlo tan rápido?"
+
+"Bueno, sí. Es solo cavar y endurecer".
+
+No es como si estuviera añadiendo decoraciones. Mientras sea resistente, es suficiente.
+
+"Sigo abusando de tu amabilidad para todo".
+
+"Para nada. Bueno, si tiene algo que discutir o necesita algo, por favor venga a visitarme en cualquier momento".
+
+"Aunque has venido aquí con todos para el retiro de verano, sería malo si te molestara. Solo vendré a despedirlos antes de que se vayan".
+
+Dijo mi padre con una sonrisa irónica.
+
+Hmm. Bueno, si ese es el caso. Entonces mañana me relajaré con todos.
+
++++
+
+# **219 – El Lago de Verano**
+
+"Qué lago tan hermoso", comentó Claudia con admiración, observando la superficie del agua brillar bajo la luz del sol, reflejando el cielo azul y el bosque verde como un cristal.
+
+"¡Realmente es precioso!"
+
+Exclamó Seraphina felizmente, lanzándose a volar justo por encima de la superficie del lago, rozando el agua y elevándose hacia arriba.
+
+Habíamos cocinado todos juntos desde temprano antes de salir hacia el lago. No estaba lejos de la casa de mi madre; no era particularmente grande, pero tenía un agua notablemente clara.
+
+Pequeñas flores florecían por toda la alfombra verde de la orilla, creando una escena pacífica.
+
+Un muelle se extendía desde la orilla donde uno podía instalarse y pescar tranquilamente. Aunque ya había pescado aquí antes, no recordaba haber nadado. Cuando seas un poco mayor, te enseñaré a nadar... o eso había dicho mi madre, recordé.
+
+"No solo tenemos el almuerzo, sino también dulces horneados y bebidas".
+
+"Me aseguraré de que todo esté listo para cuando alguien tenga hambre".
+
+Grace e Irmhild extendieron alegremente un mantel en el muelle, acomodando cestas mientras preparaban el almuerzo y los refrigerios.
+
+"¿Comemos todos juntos un poco más tarde? Hasta entonces, vamos a nadar un poco".
+
+"Me parece bien. Me uniré a ustedes en cuanto termine de organizar esto".
+
+Grace sonrió en su traje de baño, con su piel blanca translúcida y su cabello dorado brillando bajo la luz del sol.
+
+...Como de costumbre, debería desplegar un campo de defensa de Magia Oscura por encima para evitar quemaduras solares. Y también la Magia de respiración bajo el agua.
+
+Esta parte era similar a cuando fuimos al mar el año pasado. Como planeábamos nadar también este año, traje trajes de baño hechos de seda de araña de agua. También planeábamos visitar la Veta de Agua de Luz Mágica, así que aprender a nadar no vendría mal... pero. Bueno, digamos que es todo un festín visual. Me cuesta saber hacia dónde mirar.
+
+"Quiero tocar música después del almuerzo, así que creo que nadaré hasta entonces".
+
+Una vez completados los preparativos, Irmhild deshizo su hechizo de humanización, se quitó la tela que envolvía su cintura y entró en el agua. Nadaba ondulando su cola, moviéndose a una velocidad considerable. Con Seraphina montada en su hombro, parecía divertirse muchísimo.
+
+—También traje cañas de pescar.
+
+Sheila me mostró su caña de pescar.
+
+—Aquí se puede pescar bastante. Además de peces, hay cosas como camarones de río.
+
+—¿Son comestibles?
+
+—Si se cocinan adecuadamente.
+
+—Mhm. Después de nadar un poco, pescaré desde el otro lado del muelle.
+
+Su expresión era la de siempre, pero parecía bastante decidida. Aunque ella también estaba en traje de baño.
+
+—Está fría y se siente de maravilla.
+
+Ashley entró lentamente en el lago desde el muelle, aclimatando primero los pies, luego se tumbó de espaldas flotando en la superficie, contemplando el cielo antes de cerrar los ojos en silencio.
+
+Su cabello plateado se extendía por el lago, creando una escena bastante fantástica.
+
+—Así que Ashley también aprendió a nadar.
+
+—Grace-sama me enseñó antes, y como el baño se hizo más grande... a veces practicaba un poco por mi cuenta.
+
+Sonrojándose ligeramente, Ashley sonrió con cierta timidez. Ya veo. Así que había estado practicando en secreto.
+
+—También me he vuelto bastante buena moviéndome mediante la manipulación del flujo de agua.
+
+Dijo, usando magia para deslizarse por la superficie del agua.
+
+—Impresionante.
+
+Realmente tiene una gran aptitud para la magia de agua. Ante mis palabras, sonrió tímidamente.
+
+—¿Y los demás? ¿Saben nadar?
+
+Tras completar una vuelta por la zona, Ashley preguntó al grupo que estaba en el muelle.
+
+Marlene, que se encontró con su mirada, negó con la cabeza, pero quizás debido a la magia de respiración bajo el agua, entró en el agua con Lavigne sin mucho miedo. Mientras se sujetaba a la cintura de Lavigne mientras esta nadaba al estilo perrito, Marlene movía sus propios brazos y piernas para mantenerse a flote.
+
+Marlene llevaba un traje de baño de una pieza azul claro. Era un diseño modesto, pero se adaptaba a la impresión de inocencia de Marlene más que a la mera pureza.
+
+—Yo también sé nadar un poco, así que podría enseñarle a Marlene, pero...
+
+Claudia, que tenía una tela echada sobre los hombros, estaba sonrojada. Claudia parecía estar más abrumada por la vergüenza de mostrar su piel...
+
+—Mhm... es cierto. Después de todo, Theodore es mi prometido.
+
+Diciendo esto, se quitó la tela con cierta vacilación. Un traje de baño negro. Combinaba bien con el color de pelo de Claudia. Tenía volantes y era un diseño relativamente modesto, pero era de dos piezas. Al parecer, no pudieron encontrar uno de una pieza que le quedara bien, y Claudia estaba aparentemente descontenta por la mayor exposición. Bueno... los trajes de baño hechos de seda de araña de agua son artículos bastante valiosos por derecho propio.
+
+Claudia entró en el agua con las mejillas ligeramente enrojecidas. Una vez en el agua, tal vez su vergüenza se redujo a la mitad, ya que nadó cerca de Marlene. Es una nadadora bastante buena.
+
+—Con la respiración bajo el agua, ¿por qué no intentas aprender a nadar?
+
+Ante la oferta de Claudia, Marlene asintió felizmente repetidas veces. Se separó de Lavigne y, sosteniendo la mano de Claudia, comenzó la práctica de natación. El año pasado, Grace le había estado enseñando a Ashley.
+
+—¿Dónde aprendiste a nadar, Claudia?
+
+"En las profundidades de la Veta de Agua de Luz Mágica. Como pasatiempo contra el aburrimiento, supongo. Ese lugar tiene un agua hermosamente cristalina..."
+
+Ya veo. A Claudia no la atacan los monstruos del laberinto. En ese sentido, la Veta de Agua de Luz Mágica posee una belleza fantástica y podría ser un buen lugar para nadar.
+
+Y luego estaba Rosemary, vestida con un traje de baño tipo bikini, un sombrero de paja y un pareo alrededor de la cintura.
+
+"No sé nadar", declaró con total franqueza. Con su buena figura, se desenvolvía con confianza... supongo. Bueno, si puedes usar magia, puedes usar Levitación, respiración bajo el agua, caminar sobre el agua... de hecho, puede que no haya necesidad de aprender. Marlene también tiene bendiciones, así que puede apañárselas si cae al agua.
+
+"Pero uno debería desafiarse a sí mismo con cosas nuevas".
+
+Colocó su sombrero de paja en una cesta con el ala doblada para que no se volara, y luego entró en el agua mientras se sujetaba al borde del muelle.
+
+"Si puedes deslizarte así con Magia de Agua... entonces. Para simplemente flotar, podrías usar Magia de Viento, ¿verdad?"
+
+Dicho esto, manipuló la magia de agua y viento, creando una esfera de burbuja con fuerza y elasticidad, y luego se aferró a ella para flotar. Probablemente se sentía como sostener una pelota de playa. Intentaba moverse con ella, pero no parecía estar haciéndolo muy bien.
+
+"Si te relajas, flotarás de forma natural. Así, usa también las caderas, mueve las piernas desde los muslos y patea con el empeine y la planta de los pies. Sentir la resistencia del agua significa que estás pateando el agua correctamente—"
+
+Lo básico de la patada de crol. Hice una demostración junto con el estilo libre.
+
+Marlene, que escuchaba cerca, asintió seriamente con una expresión solemne. Había varios otros puntos a los que prestar atención para nadar rápido, pero ser capaz de hacerlo hasta cierto punto debería ser suficiente.
+
+"El estilo de natación de Theo es hermoso".
+
+Bueno, proviene del lado de la Tierra, lo que comúnmente se llama técnica de natación moderna.
+
+"Mmm. ¿Quizás así?"
+
+Aún aferrada a su bola de viento, Rosemary también nadó con una patada de crol. ¿Se movía con más fluidez que antes?
+
+"No es un camarón, pero atrapé un cangrejo".
+
+Sheila emergió del fondo del lago, sosteniendo cangrejos en ambas manos triunfalmente.
+
+"¿Podemos comer estos cangrejos?"
+
+"Si se cocinan adecuadamente".
+
+Con la magia de respiración bajo el agua, un paseo submarino también parecía que sería agradable.
+
+Cuando fuimos al mar el año pasado... me deslizaba sobre la superficie del agua, ¿no?
+
+Ah, se me acaba de ocurrir algo. Tal vez intente algo diferente este año.
+
+"¿Ocurre algo?"
+
+Grace me preguntó mientras salía del agua.
+
+"No. Solo se me ocurrió algo".
+
+Como lo quitaré después de que terminemos de jugar, el paisaje no debería ser un problema.
+
+Desde la zona algo poco profunda junto al muelle, comencé a usar Construcción Mágica para crear un tobogán de agua. Haciéndolo en forma de medio tubo y serpenteante, alisando la superficie como si fuera mármol, y luego usando Magia de Agua para extraer agua de la superficie del lago y hacerla fluir... sí. Esto debería funcionar.
+
+"Sube las escaleras y deslízate desde aquí—"
+
+Intenté deslizarme a modo de prueba. Llevado por el impulso del agua, fluí a través de la tubería. Hubo tramos donde la fuerza centrífuga amenazaba con lanzarme fuera, pero haciendo pequeños ajustes mientras bajaba, completé un tobogán de agua algo corto pero funcional. Hice que el punto final estuviera ligeramente hacia arriba para que salieras despedido suavemente antes de caer en el lago.
+
+…Sí. No es un mal resultado.
+
+"Haces cosas interesantes".
+
+Todos subieron al muelle y, con aire de curiosidad, se turnaron para deslizarse. Parecían estar disfrutándolo bastante, lo cual era bueno.
+
+"¿Está bien si se deslizan dos personas juntas?"
+
+Preguntó Sheila desde la parte superior del tobogán. Parecía que planeaba deslizarse con Irmhild.
+
+"No hay partes afiladas, e incluso si sales despedido hacia afuera, está configurado para que caigas en el lago, así que creo que no habrá problema".
+
+"Lo intentaremos entonces".
+
+Irmhild se aferró a la espalda de Sheila y se deslizó en posición boca abajo. Incluso si usara su Hechizo de Humanización, probablemente podría deslizarse con normalidad.
+
+Al ver esto, Ashley y Marlene se sonrieron y se deslizaron juntas. Quizás porque tienen edades similares, las dos se llevan muy bien.
+
+"Ir en parejas también parece divertido. Marie, ¿te gustaría ir juntas?"
+
+"Si Claudia-sama lo dice".
+
+Parecía que Claudia se deslizaría con Rosemary. Rosemary se puso detrás de Claudia y las dos bajaron juntas.
+
+Cuando volví a subir pensando en deslizarme de nuevo, era el turno de Grace.
+
+"Theo, ¿te gustaría ir juntos?"
+
+—¡Yo también!
+
+Grace sonrió, con Seraphina incluso subida a su hombro. Um… este patrón significa que terminaré deslizándome con todos una vez cada uno.
+
+"…Mhm. Por favor".
+
+Yo estaba en la posición delantera, con Grace detrás de mí en esta disposición. No debería pensar demasiado en cosas como las manos de Grace tocando mis hombros y otros asuntos diversos. Dando vueltas dentro del tobogán, salimos lanzados al aire acompañados por la risa alegre de Seraphina. Tras la sensación de flotar, los tres aterrizamos juntos.
+
+Claudia, al ver esto, se sonrojó.
+
+"B-bueno, yo… um… ah, después está bien. ¿Por qué no van ustedes dos primero?"
+
+Las cedidas Ashley y Marlene sonrieron y asintieron. Conmigo emparedado entre ellas —Marlene, yo, Ashley en ese orden— nos deslizamos como un trío de nuevo. Sí.
+
+Tras salir despedida del tobogán y salir a la superficie del agua, Marlene me mostró una sonrisa despreocupada.
+
+"Claudia-sama, por favor".
+
+"S-sí".
+
+"¿Cómo deberíamos colocarnos?"
+
+"…I-iré delante".
+
+Tras ese intercambio, me deslicé con Claudia. Claudia se mantuvo encogida y hecha una bolita todo el tiempo.
+
+Hasta ese momento, bueno, era lo habitual, por así decirlo.
+
+Cuando salimos a la superficie, como resultado de la discusión de las chicas, dado que primero había estado con Seraphina, se sugirió que Sheila, Irmhild y Rosemary también se deslizaran conmigo.
+
+"Uhm…"
+
+"Pensamos que eso estaría bien para nosotras".
+
+Mirando a mi alrededor, todos parecían estar de acuerdo… Es misterioso. ¿Irían las cosas más fluidas si no me negara?
+
+"Vamos".
+
+"Fufu. Es divertido, pero de alguna manera me siento mal".
+
+En una disposición en la que me encontraba emparedado entre Sheila e Irmhild. La densidad de los tonos de piel se sentía demasiado alta y sentí que mis pensamientos se paralizaban gradualmente. Debido a que Irmhild estaba en posición decúbito prono, inevitablemente terminamos apoyándonos el uno en el otro.
+
+—Tú también lo tienes difícil de varias maneras —dijo Rosemary, cubriéndose la boca mientras reía alegremente.
+
+La siguiente vez, yo estaba delante. El problema era que terminábamos apretados el uno contra el otro cada vez que aterrizábamos. De alguna manera, sentía que se me estaban desgastando varias cosas. Debería refrescarme la cabeza bajo el agua un rato.
+
+——Nadamos y jugamos hasta saciarnos.
+
+Después de almorzar un poco tarde, todos nos tumbamos en el muelle. La luz del sol, convenientemente atenuada por la Magia Oscura, calentaba nuestros cuerpos que se habían enfriado un poco por la natación.
+
+Sheila estaba pescando. Irmhild tocaba música y todos los demás tomaban el sol. Caduceus y Ouroboros, así como los Abrigos de Quimera, parecían bastante relajados en los lugares soleados.
+
+Ya fuera porque la Melodía Maldita atraía a los peces o no, la pesca fue excelente. Irmhild dijo que lo había aprendido de Justia.
+
+Lavigne también estaba recogiendo camarones y cangrejos del lago, echándolos en un cubo. La cena de esta noche probablemente consistiría únicamente en pescado, camarones y cangrejos.
+
+—El cielo es hermoso, ¿verdad?
+
+—Sí, lo es.
+
+Grace, tumbada boca abajo, me sonrió.
+
+Cielo azul con nubes de verano. Los sonidos que llegaban a nuestros oídos eran el laúd de Irmhild y su clara voz al cantar. El nostálgico sonido de los insectos.
+
+Era un tiempo tranquilo y pausado, como si hubiéramos regresado al pasado. Era tan cómodo que cuando cerré los ojos, ayudado por el calor, pude caer en un sueño placentero.
+
++++
+
+# **220 – De camino de vuelta a Termwills**
+
+—Buenos días, padre.
+
+"Sí, buenos días".
+
+Después de descansar a fondo para recuperar energías, me dirigí a la mansión del Conde desde la mañana para crear un pasaje subterráneo de emergencia.
+
+—¿Por dónde deberíamos empezar a construir el pasaje subterráneo? ¿Empezamos desde el estudio como de costumbre?
+
+—¿Es ese... el enfoque estándar?
+
+—Bueno, se podría decir que es una cuestión de convención estética.
+
+Está bastante cerca del dormitorio también. Reforzaré la puerta para hacerla más resistente y que pueda usarse para atrincherarse.
+
+Usaré Levitación para hacer flotar la estantería e incorporarla a un mecanismo de Ocultación Giratoria. Detrás de ese espacio, formaré escaleras que bajen al subsuelo y crearé el pasaje.
+
+Ya me he acostumbrado bastante a este trabajo; es una labor sencilla que consiste en convertir la tierra en Golems para que la saquen y luego solidificar el pasaje para asegurar su resistencia.
+
+Sin embargo, aunque debe ser utilizable para la evacuación durante emergencias, debe estar completamente separado de la mansión del Conde y del anexo en tiempos normales. Eso requerirá algo de ingenio.
+
+Así que crearé salas de evacuación adyacentes: una en el lado de la mansión del Conde y otra en el lado del anexo.
+
+Al crear una puerta cerrada que conecte las dos salas de evacuación, puedo establecer simultáneamente tres funciones: un pasaje de conexión, salas de evacuación y un muro divisorio.
+
+"Hay un problema. Si nos atacan y huimos al pasaje de evacuación desde el estudio o el anexo, como no hay otras salidas, los intrusos podrían detectar la existencia del pasaje oculto".
+
+"Mmm. Ciertamente es verdad".
+
+"Así que crearé un mecanismo que pueda atrapar a los intrusos en el pasaje oculto".
+
+Si hay perseguidores, crearé esquinas para romper su línea de visión. Luego, inmediatamente después de doblar la esquina, colocaré una puerta oculta giratoria que conduzca a la sala de evacuación.
+
+Y más allá de la esquina, al final del pasaje, en el lugar más visible, crearé una sala de evacuación falsa.
+
+"La sala de evacuación real se puede cerrar desde el interior con un cerrojo después de entrar. Mientras tanto, la sala falsa, aunque la puerta se pueda abrir desde fuera, debe estar diseñada para que quienes estén dentro no puedan salir sin una llave".
+
+"...Ya veo".
+
+Padre parecía algo asombrado. De hecho, las oportunidades de recibir explicaciones mientras se observa una Construcción Mágica en tiempo real probablemente no sean comunes.
+
+Para la sala de evacuación, debería crear una habitación pequeña que pueda usarse como baño para que la gente pueda esconderse durante algún tiempo. Como es para emergencias, será un baño sencillo con solo un pequeño agujero vertical excavado.
+
+"Crearé un pasaje subterráneo similar desde el lado del anexo también, pero como sería problemático si alguien quedara atrapado en la sala falsa, por favor explícaselo bien a Madre y a Daryl".
+
+"Sí. Definitivamente lo haré. También necesitaremos almacenar alimentos no perecederos y ropa de repuesto en la sala de evacuación".
+
+"Para la ropa, podría ser útil tener disfraces que les permitan mezclarse con los sirvientes o plebeyos. Como no hemos instalado tuberías de agua aquí, probablemente también necesitemos herramientas mágicas para la creación de agua".
+
+"Es cierto. Me encargaré de eso".
+
+Considerando quién usaría este lugar —probablemente solo Padre, Kathryn y Daryl— e instalando dispositivos de alarma tanto en la mansión del Conde como en el anexo, las medidas de seguridad deberían ser bastante sólidas.
+
+Terminé el pasaje y las salas de evacuación según lo planeado, luego verifiqué si había defectos o problemas de resistencia.
+
+"Todo parece estar bien. Bueno, lamento las prisas, pero me pondré en marcha. Tengo algunas cosas que atender antes de partir".
+
+"Entendido. Yo también iré al bosque más tarde. Te despediré".
+
+"Sí. Nos vemos luego".
+
+Asentí a Padre, prometí volver a vernos más tarde y salí de la mansión del Conde.
+
+After finishing lunch ==return== preparing  ==for== the ==return== journey, Father arrived, so we decided to visit Mother’s grave once more before leaving.
+
+Todos ofrecimos oraciones en silencio ante la tumba, luego nos giramos para mirar a Padre, y a Harold y Cynthia, que habían venido a despedirnos.
+
+"¿Ya te vas?"
+
+"Sí. Yo también me quedaré en la Baronía de Silun y me preocupa cómo estén las cosas en casa".
+
+Cuando respondí, Padre sonrió con amargura, luciendo algo solo.
+
+"Estás muy ocupado".
+
+"Tú también, Padre. Por favor, cuida tu salud".
+
+"Sí."
+
+"Bueno, entonces, Henry-sama".
+
+Empezando por Grace, todos se despidieron de Padre antes de subir al Palanquín Dragón.
+
+"Harold y Cynthia, gracias a ustedes también. La próxima vez... probablemente vendré de nuevo en invierno".
+
+"Sí, Theodore-sama".
+
+"Estaremos esperando".
+
+Los dos cuidadores de tumbas hicieron una profunda reverencia.
+
+"Lindwurm".
+
+Cuando llamé, el Palanquín Dragón se elevó en el aire. Saludé con la mano desde la ventana del palanquín.
+
+A medida que ganábamos altitud gradualmente, sus figuras se hacían más pequeñas.
+
+"Ha pasado tiempo, a todos".
+
+"Cuánto tiempo sin verle, Kennel-san".
+
+Al desembarcar del Palanquín Dragón, Kennel, el mayordomo de la casa Silun, nos saludó.
+
+Antes de regresar a Termwills, planeábamos pasar por la Baronía de Silun tal como lo hicimos antes.
+
+"Viejo, es bueno verte con tan buen aspecto".
+
+"Ashley-sama, su semblante se ve incluso mejor que antes".
+
+Kennel entrecerró los ojos como si estuviera mirando algo deslumbrante.
+
+"Pasamos por aquí antes de regresar a Termwills".
+
+Aunque parte del motivo era presentar nuestros respetos ya que está entre el territorio del Conde y Termwills, esta vez tenía otro propósito.
+
+"¿Se trataría del artículo que discutimos?"
+
+"Sí. Los detalles son tal como los comuniqué a través del Dispositivo de Comunicación".
+
+En las manos de Ashley había una Hierba Malvada en maceta; no era Harvesta, sino otro ejemplar traído de Termwills. Esto era para mostrarle a Kennel el espécimen real.
+
+"Hmm. Déjeme echar un vistazo".
+
+Al recibir la maceta, Kennel acarició a la dócil Hierba Malvada y la observó desde varios ángulos.
+
+Si vamos a utilizar Hierbas Malvadas en el futuro, es mejor sentar las bases pronto. Ya le había explicado la idea general a Kennel por el Dispositivo de Comunicación, pero ver para creer.
+
+"Ya veo... Esta es de hecho bastante dócil. Cuando era joven y trabajaba en el campo, estos tipos me mordieron muchas veces..."
+
+"Parece que se acostumbran a los humanos si se crían desde semillas usando Magia de Agua. Estamos continuando los experimentos con respecto al cultivo de cosechas usando Hierbas Malvadas".
+
+Kennel asintió, pareciendo impresionado por las palabras de Ashley.
+
+"Vaya, vaya. Las Hierbas Malvadas han sido detestadas por mucho tiempo... ¿Pero podrían convertirse en Guardianas de los cultivos agrícolas?"
+
+"Yo también espero eso. Creo que deberíamos tener resultados para principios de otoño".
+
+Kennel asintió con una sonrisa amable.
+
+Bueno. A juzgar por los intercambios de Ashley y Kennel por el Dispositivo de Comunicación, la Baronía de Silun parece generalmente pacífica... pero por si acaso, crearé un pasaje subterráneo y una sala de evacuación aquí también. Más vale prevenir que lamentar.
+
+"—Coexistencia con Monstruos amistosos, ¿verdad?"
+
+Beryne, de la sucursal de Silun del Gremio de Aventureros, también fue invitada a la mesa.
+
+Dado que Ashley y yo estamos comprometidos, y considerando el futuro, las políticas que defiendo inevitablemente afectarán también a la Baronía de Silun. Por lo tanto, es necesario comunicar adecuadamente nuestras intenciones.
+
+Traer la Hierba Malvada en maceta también sirvió para que este razonamiento fuera más fácil de entender.
+
+"Así es. El Reino de Verdugal también está avanzando con tales políticas. Aunque no me preocupa demasiado el lado del Gremio de Aventureros".
+
+—Ciertamente... Las historias de aventureros que se ahogan en el mar, son salvados por sirenas y se enamoran son bastante populares entre ellos.
+
+Beryne sonrió con ironía.
+
+—¿Así que dices que el temperamento del monstruo se vuelve más dócil dependiendo del entorno? A juzgar por la Hierba Malvada, eso parece correcto.
+
+—Sí. Pensé que mostrar ejemplos reales sería más rápido que dar explicaciones largas. Además, ella también es una Lamia.
+
+Cuando presenté a Irmhild, las miradas de Kennel y Beryne se dirigieron hacia ella.
+
+—Es un honor ser presentada. Soy Irmhild, la Lamia.
+
+Irmhild se enderezó un poco, pareciendo algo tímida, luego sonrió con timidez e hizo una reverencia. Kennel y Beryne parecieron sorprendidos, tal vez por no haber esperado esto, y abrieron mucho los ojos.
+
+—Um. ¿Debería deshacer el hechizo de humanización?
+
+Inclinó un poco la cabeza, mirándonos a Ashley y a mí.
+
+—Sí. Será más rápido mostrárselo al viejo.
+
+Con el permiso del cabeza de familia, Irmhild se alejó un poco de la mesa del comedor y deshizo su hechizo de humanización.
+
+—Esto es... asombroso. Ya veo. Ciertamente... es una joven muy gentil.
+
+—Hay muchas cosas que no se pueden entender a menos que interactúes realmente con ellos.
+
+—Eso... soy muy consciente de ello, ya que últimamente tengo más oportunidades de hablar con aventureros.
+
+Kennel sonrió con ironía de esa manera.
+
+—Um, si les parece bien, me gustaría tocar una canción para ustedes.
+
+Irmhild sacó su laúd, aparentemente queriendo empezar a actuar. Bueno, tiene sentido. Si quiere que los demás la entiendan, esta es probablemente la forma más rápida para ella, y un área en la que tiene confianza.
+
+—Eso... suena interesante.
+
+"Ciertamente".
+
+Beryne se rió alegremente mientras Kennel asentía con expresión seria. Por supuesto para Kennel, pero esta podría ser la primera vez que Beryne conocía a una Lamia también.
+
+"Bueno, entonces…"
+
+Irmhild sonrió y comenzó su actuación.
+
+El sonido sencillo del instrumento y su voz clara al cantar. Los dos quedaron cautivados de inmediato por la melodía, escuchando con atención. Sí. Esto va bastante bien.
+
+Aunque tuvimos algunos problemas en el territorio del Conde, las cosas parecen progresar sin contratiempos en la Baronía.
+
++++
+
+# **221 – Marqués Zilbolt**
+
+"Bienvenidos a casa."
+
+—Nos alivia ver que has vuelto sano y salvo.
+
+Mientras el palanquín dragón descendía frente a la casa, Cecilia y Mihaela salieron a recibirme.
+
+—He vuelto. ¿Alguna novedad mientras estuve fuera?
+
+—Todo ha estado tranquilo. Todos trabajaron con diligencia mientras no estabas.
+
+Cecilia sonrió feliz.
+
+Bien. Eso es lo más importante. Repartimos el equipaje del palanquín dragón entre nosotros y lo llevamos rápidamente al interior de la casa.
+
+“…Well. I’m sorry to say I’ll need to go out again soon, but I have to visit the Royal Castle  ==for== a bit. I also need to ==return== the dragon palanquin.”
+
+"Entendido".
+
+También tengo que presentar mi informe. Subí al palanquín dragón y le di una orden a Lindwurm, quien a su vez ordenó a los otros wyverns, y el palanquín comenzó a ganar altura.
+
+Se llega rápido al Castillo Real en el palanquín dragón. Después de hacer bajar el palanquín frente a los establos, desembarqué en el Castillo Real.
+
+De inmediato, los mozos de cuadra se reunieron y comenzaron afanosamente la tarea de retirar el equipo de los wyverns y guardar el palanquín del dragón. Una vez liberados de sus arreos, cada wyvern fue conducido por las riendas de vuelta al Establo de Dragones.
+
+En cuanto al temperamental Lindwurm… bueno, parece que solo ciertos cuidadores experimentados pueden manejarlo.
+
+—Bienvenido, Embajador.
+
+—Ah, Matthew-san.
+
+Matthew, uno de esos mozos experimentados, me saludó con una sonrisa amistosa.
+
+—¿Cómo se portaron los wyverns?
+
+—Fueron bastante obedientes. Lindwurm parece mantener un buen control, así que no tuve mucho que hacer.
+
+—Nunca pensé que este se volvería tan aplicado.
+
+Matthew rió alegremente mientras acariciaba el hombro de Lindwurm. Lindwurm pareció entender que hablaban de él y giró la cabeza hacia otro lado. Matthew y yo intercambiamos sonrisas irónicas.
+
+—Lindwurm, tengo asuntos en la Torre del Rey. Si quieres venir a mi casa más tarde, siéntete libre de hacerlo.
+
+Ante mis palabras, Lindwurm giró la cabeza hacia mí y emitió un sonido como si respondiera.
+
+—Nosotros nos encargaremos de alimentarlos aquí.
+
+—Gracias, te lo agradezco.
+
+Tras ese intercambio, me dirigí hacia la Torre del Rey.
+
+This time I’d already communicated my approximate ==return== time in advance, so I probably wouldn’t have to wait long.
+
+Como de costumbre, me llevaron al salón para esperar, y noté algunos juegos fabricados por los artesanos de la Compañía Comercial del Laberinto colocados en una esquina.
+
+Hmm… Una construcción bastante robusta. Al ser para el Castillo Real, los artesanos deben haber puesto un esfuerzo considerable en ello.
+
+Así que aquí es donde pusieron los artículos entregados a la Torre del Rey. Escuché que también los estaban colocando en la Torre del Caballero, los barracones, la Casa de Huéspedes y otros lugares.
+
+—Theodore. Has vuelto.
+
+Mientras examinaba la calidad de los juegos, el Rey Melvin llegó al salón.
+
+—Acabo de regresar.
+
+"Mmm".
+
+El Rey Melvin asintió y se sentó a la mesa. Me senté frente a él y procedimos como de costumbre.
+
+“This was your first ==return== home in quite some time, yet here I am being rather ungracious.”
+
+—Para nada. Prefiero pensar en ello como apagar un fuego antes de que pudiera propagarse.
+
+Cuando respondí así, el Rey Melvin esbozó una sonrisa irónica.
+
+—He recibido el informe. Basándonos en eso, también hemos obtenido corroboración de esos individuos. El nombre del Marqués Zilbolt ha vuelto a surgir.
+
+—La conexión con el incidente anterior sigue siendo algo confusa.
+
+—Hmm… Sobre ese incidente anterior…
+
+La expresión del Rey Melvin se ensombreció ligeramente.
+
+—No pudimos entregar la carta personal al Rey Eberhart.
+
+Rey Eberhart. El rey de Silvatoria. Según el Rey Melvin, se dice que el propio rey gobierna con buen criterio.
+
+—¿Es eso… porque ocurrió algo desafortunado?
+
+—No, no por ningún problema en particular. Parece que el Rey Eberhart está postrado en cama por una enfermedad. El enviado simplemente no pudo obtener una audiencia.
+
+Eso es… Ciertamente, los asuntos concernientes a las operaciones del Marqués Zilbolt y la relación entre Beriondora y el demonio no son algo que se pueda mostrar a cualquiera. Especialmente porque no sabemos qué pasaría si el Príncipe Heredero se enterara.
+
+—Dada la naturaleza del asunto, confiar la carta personal a otra persona también parece problemático. La situación interna de Silvatoria es algo opaca.
+
+"Hmm. En realidad, preparé dos versiones de la carta personal para el enviado. Le instruí que, si no se podía concertar una audiencia con el rey Eberhart, entregara la carta con el contenido inofensivo. La información de que hemos capturado a los agentes del marqués Zilbolt podría filtrarse antes de llegar al rey, así que debemos ser cautelosos".
+
+Por el contrario... si hubiera quienes robaran y leyeran la carta personal, esto les haría pensar que el Reino de Verdugal no tiene información sobre el marqués Zilbolt, induciéndolos a un exceso de confianza.
+
+"La excusa de estar postrado en cama también es sospechosa. ¿Podría ser consecuencia de la ceguera del príncipe heredero?"
+
+"Esa es también una posibilidad que estamos considerando. Nuestro acercamiento a Silvatoria se suspenderá temporalmente. Planeo notificar a los señores locales que espías extranjeros podrían estar operando en sus territorios dedicándose al corso, e instarlos a estar vigilantes".
+
+"Ya veo…"
+
+Es un tratamiento sintomático, pero un movimiento eficaz. Ningún señor estaría contento de ver su territorio saqueado e, incluso sin incidentes, las actitudes hacia los bandidos se volverían más estrictas.
+
+Dado que se trata específicamente de "espías extranjeros" no especificados, no habrá ningún deterioro oficial de las relaciones con países concretos.
+
+"Ha surgido otro problema. El propio hombre, el marqués Zilbolt, ha propuesto visitar Termwills para ampliar sus perspectivas".
+
+"¿Es eso... para establecer contacto con los operativos que envió a territorio de Verdugal?"
+
+"Es muy probable".
+
+...Ya veo. Los movimientos del rey Melvin son estrategias defensivas. Si hay una oportunidad de contactar con el marqués Zilbolt, me gustaría realizar algunos... movimientos ofensivos.
+
+"...¿Podría reunirme con los agentes que envió el marqués Zilbolt?"
+
+"Hmm. ¿Tienes algo en mente?"
+
+"Hasta cierto punto, sí. Me gustaría que escucharas mis pensamientos".
+
+Me dirigí hacia la prisión subterránea del Castillo Real. Naturalmente, no podía ir con el propio rey Melvin, así que la comandante de la Orden de Caballeros, Mildred, me acompañó como escolta.
+
+"...Tú".
+
+En la celda estaba Elmer, el espadachín mágico silvatoriano que había liderado el equipo operativo. En el momento en que vio mi rostro desde el catre de la celda, puso una expresión indescriptiblemente sutil.
+
+Como prisioneros, al parecer están siendo tratados de forma relativamente humana. Después de todo, podemos extraer información mediante pociones mágicas e inquisición mágica. Dado que no pueden usar magia, no hay necesidad de causarles dolor. También parecen estar recibiendo tratamiento médico.
+
+Hice que abrieran la celda y entré solo para enfrentarme a él.
+
+"He venido a preguntarte un par de cosas".
+
+"...No tengo nada que decir, y si es lo que sabemos, probablemente ya lo habréis extraído. ¿O es que todavía no es suficiente?"
+
+"¿Te suenan los nombres de Donovan o Lionel?"
+
+Fui directo al grano sin preámbulos, pero la expresión de Elmer no cambió. Esos dos también están encarcelados... bueno.
+
+"Todavía hay información importante que no he preguntado. Tanto a ti como a Donovan. ¿Por qué... seguís a alguien como el marqués Zilbolt? El marqués está totalmente dispuesto a descartaros desde el principio si fracasáis, ¿no es así?"
+
+Ante mi pregunta, tras una pausa, Elmer puso una expresión amarga.
+
+Si es por lealtad a Silvatoria… bueno, como mantienen su relación en secreto, probablemente no puedan hablar de ello…
+
+Intentar vandalizar la casa de mi madre, tratar de secuestrar a mi padre y torturar a Kathryn para forzar una confesión… Ciertamente me desagradan sus métodos… pero a pesar de usar tales métodos, con tanta gente, ni uno solo recurrió a la traición o al instinto de conservación.
+
+Esa inconsistencia me molesta. Precisamente por eso hay algo que necesito confirmar aquí.
+
+En este entorno donde los he entregado al Rey Melvin y se puede utilizar la Inquisición Mágica, no tengo que preocuparme por ser engañado.
+
+Si estos tipos tienen circunstancias inevitables, les facilitaré las cosas. Si no, también está bien. En ese caso, como le dije al Rey Melvin, simplemente les extraeré información, luego tomaré la forma de Ambrum sin reservas y contactaré al Marqués Zilbolt para obtener información.
+
+"¿Existe algún tipo de restricción?"
+
+Cuando pregunté, Elmer desvió la mirada. Una reacción que sugería que no respondería nada. Pues bien, procederé con la conversación como me plazca.
+
+"Por ejemplo, ¿tienen a sus familiares como rehenes?"
+
+En el momento en que dije eso, los ojos de Elmer se abrieron de par en par y escudriñó mi expresión. Esta... reacción.
+
+"¿Si se descubre la traición, matarán a sus familiares? ¿O que fueron ejecutados como secuestradores… Sería más beneficioso para ustedes difundir ese tipo de información?"
+
+"Tú…"
+
+"No tengo intención de aprobar sus métodos. Incluso si tuvieran tales circunstancias, intentaron hacernos lo mismo a nosotros, así que, francamente, no me gusta. Pero… como existe la Inquisición Mágica, si hablas con honestidad, puedo confiar en tus palabras y acciones."
+
+Cuando dije eso, Elmer pareció luchar internamente durante bastante tiempo, pero finalmente abrió la boca.
+
+"Eso… no es así. No somos nosotros los que tenemos rehenes… es el Marqués."
+
+Ante esas palabras, Mildred y yo intercambiamos miradas sin querer. Mildred, pareciendo comprender la situación, mostró una expresión de desagrado. El Marqués Zilbolt como rehén. ¿Por quién, exactamente?
+
+Una pregunta tonta. Probablemente por el Príncipe Heredero de Silvatoria. Lo que significa que el Marqués se está encargando de todo el trabajo sucio en nombre del Príncipe Heredero.
+
+"Ciertamente… Considerando lo que intentamos hacer… soy plenamente consciente de que esta es una petición egoísta. Pero… ¿podría por favor ayudar al Marqués? Si un mago de su calibre lo ayudara… tal vez…"
+
+Diciendo esto, Elmer inclinó profundamente la cabeza y se postró.
+
++++
+
+# **222 – Bruja**
+
+Se llevó a cabo una Inquisición Mágica improvisada a Elmer, Donovan y Lionel, confirmando los detalles sobre el incidente del Marqués Zilbolt.
+
+Aunque Donovan y Lionel dudaron al principio en testificar, cuando Elmer y yo les informamos que, si sus afirmaciones eran ciertas, trabajaría para ayudar al Marqués Zilbolt, admitieron los hechos. Tras confirmar que no eran espías de la facción del Príncipe Heredero, trasladamos a los tres de sus celdas a otra habitación para el interrogatorio. Mildred continuó acompañándonos.
+
+"...Primero, permítanme agradecerles por nuestro alojamiento actual", dijo Lionel en voz baja, inclinando la cabeza. Los tres mostraban expresiones solemnes.
+
+Después de bañarse, afeitarse y cambiarse de ropa, su porte... de hecho parecía ser el de la nobleza o el de personas cercanas a tal estatus.
+
+En cuanto a los subordinados de Elmer, estaban siendo sometidos a una Inquisición Mágica. Una vez que sus declaraciones fueran verificadas y consideradas fiables... bueno, incluso si no podíamos retirar la vigilancia y la Magia de Subyugación, probablemente serían liberados de sus celdas.
+
+Al menos... si estuvieran dispuestos a hablar detalladamente sobre sus motivaciones personales en lugar de sus afiliaciones, nuestra respuesta cambiaría en consecuencia.
+
+"Le transmitiré su gratitud a Su Majestad", dijo Mildred.
+
+"Ahora bien... sobre esos rehenes: ¿quién tiene a quién y de qué manera? Me gustaría aclarar eso primero".
+
+"Los rehenes son... todo el Marquesado de Zilbolt".
+
+Todo el territorio. ¿Qué estaba pasando exactamente aquí?
+
+"...Esa bruja... fue traída por el Príncipe Heredero", murmuró Elmer con vacilación.
+
+"¿Bruja?", preguntó Mildred con expresión desconcertada.
+
+"No hay otra forma de describirla. La bruja lanzó Magia de Maldición sobre la esposa y la hija del Marqués. Mientras las atormentaba a ambas, el Príncipe Heredero se rió y dijo que podía aplastar sus corazones en cualquier momento y en cualquier lugar".
+
+El rostro de Elmer se contrajo con amargura. Al parecer, el Príncipe Heredero y la bruja le habían dicho esto al Marqués mientras él abrazaba a su sufrida esposa e hija.
+
+"¿Estaba usted presente en la escena?"
+
+"Lo estaba. Donovan y los demás no han visto el rostro de la bruja", dijo Elmer, bajando la mirada.
+
+"Según esa bruja, también lanzó Magia de Maldición sobre el Espíritu que protege el volcán cerca del Marquesado. Dijo que si los traicionábamos, el Espíritu sufriría de la misma manera y el volcán entraría en erupción, destruyendo el pueblo con lava. No sabemos si es verdad o no... pero las vidas de la señora y su hija se perderían con seguridad. No podemos arriesgarnos a comprobarlo".
+
+...Ya veo. El Marqués Zilbolt es el señor del territorio. Tomar solo a su esposa e hija como rehenes no era suficiente, así que tomaron también como rehenes a todo el territorio y a su gente.
+
+Pero una vez que jugaran la carta de la erupción, no habría vuelta atrás ni forma de detenerla. Al lanzar Magia de Maldición también sobre los dos miembros de la familia del Marqués, lo amenazaban con una destrucción gradual si se resistía.
+
+"Desde entonces, hemos sido perros. Nos han obligado a ensuciarnos las manos con diversas tareas según las órdenes..."
+
+"Supongo que el Marqués fue el objetivo porque mantenía una Unidad de Inteligencia como la nuestra".
+
+Los tres mostraban expresiones igualmente sombrías.
+
+"Ya veo... ¿Qué hay de la Magia de Maldición sobre el propio Marqués Zilbolt?"
+
+"No debería tener ningún hechizo activo sobre él. Cosas como Magia de Maldición, Magia de Sometimiento, Magia de Contrato..."
+
+Cierto. Al ser una figura pública, habría formas de comprobar si se habían utilizado tales cosas con él. Precisamente por eso optaron por el control indirecto.
+
+"...Ya veo. Entonces—" Eso significaba que contactar al propio Marqués Zilbolt era posible.
+
+"¿T-tienes algún método?", preguntó Lionel, tal vez detectando algo en mi reacción.
+
+"Primero, investigaremos cómo romper o contrarrestar la Magia de Maldición. Luego contactaremos al Marqués Zilbolt. Trabajaremos con él en la eliminación de la maldición. Estoy pensando en proponer este enfoque. Para eso... puede que también necesite tu cooperación".
+
+"Si eso es necesario... no tenemos otra opción al respecto".
+
+El Marqués Zilbolt vendría a Termwills... y durante ese tiempo, el Príncipe Heredero probablemente lo tendría bajo vigilancia. Podríamos hacer que estos tres dieran informes falsos de que todo procedía sin problemas... Bueno, tendría que discutirlo con el Rey Melvin y trazar un plan adecuado.
+
+"¿Aplastar sus corazones?"
+
+"Eso es lo que supuestamente hace la Magia de Maldición. Dicen que el Espíritu también ha sido maldecido".
+
+Después de informar al Rey Melvin, regresé a casa y me tomé un tiempo para consultar con todos. Acordamos con el Rey Melvin que la eliminación de la maldición debería ser nuestro enfoque.
+
+Si pudiéramos asegurar la cooperación del Marqués Zilbolt y Elmer después de resolver el problema... también beneficiaría a Verdgar. Sentados alrededor de la mesa baja en la habitación de estilo japonés, expliqué lo que habíamos aprendido.
+
+"Respecto a esa Magia de Maldición... creo que no debería ser un problema si podemos capturar al lanzador. La capacidad de activarla en cualquier momento desde cualquier lugar significa que es una Fórmula de Hechizo activada por la voluntad del lanzador. Tales métodos no pueden incorporarse a la Magia de Contrato, ¿verdad?", dijo Rosemary.
+
+Cierto. En efecto.
+
+Capturar al lanzador... era una estrategia que no estaba al alcance del Marqués Zilbolt y sus asociados.
+
+Pero como no teníamos una conexión aparente con el Marqués Zilbolt, podíamos adoptar el enfoque duro de aplastar a la bruja, la lanzadora, ignorando la situación de los rehenes y su autenticidad.
+
+En cuanto a neutralizar a la bruja, podría haber diferencias entre quitarle la vida o sellar su magia. Pero como movimiento inicial, dejarla inconsciente sin mediar palabra sería probablemente lo mejor.
+
+"Sin embargo, para hacer eso, primero debemos localizar a la propia bruja", dijo Grace.
+
+"Sí. Si podemos resolver ese problema, ese enfoque debería funcionar..."
+
+Sin embargo, ¿crear tal situación de forma proactiva podría ser algo difícil?
+
+La facción del Príncipe Heredero probablemente tampoco podría hacer pública la existencia de la bruja. Una vez resuelto el problema de los rehenes, habría una oportunidad allí.
+
+"¿Necesitamos la cooperación del Gremio de Ladrones?", preguntó Sheila.
+
+Ah, cierto. El Gremio de Ladrones tenía a alguien que podía dibujar retratos hablados a partir de descripciones.
+
+"Es verdad... También deberíamos conocer la apariencia de la bruja. ¿Puedes encargarte de eso?"
+
+"Déjalo en mis manos".
+
+Podríamos hacer que Elmer y los demás describieran su apariencia a esa persona más tarde... Pero también deberíamos considerar otras medidas.
+
+Marlene lucía una expresión seria, llevándose las manos al pecho.
+
+Sí, entendí lo que Marlene quería decir.
+
+"¿Qué tal si usamos Bendiciones para proteger a los que están bajo la Magia de Maldición?"
+
+Cuando dirigí mi mirada hacia Claudia, ella asintió.
+
+"Eso también es posible. Si la persona maldecida o el lanzador están cerca... podemos repeler o suprimir el Poder de la Maldición en sí. En ese caso, tendríamos que asegurarnos de que la Bendición no se rompa..."
+
+No necesitaríamos identificar la Fórmula de Hechizo específica ni el tipo de Magia de Maldición.
+
+Dado que la bruja poseía la autoridad de mando para activar la Fórmula de Hechizo, solo necesitábamos bloquear la fuente o los comandos mismos.
+
+"Respecto a los dos miembros de la familia del Marqués, ¿no podríamos organizar que los convoquen aquí?", dijo Ashley.
+
+Usando bailes u otros eventos como excusa, podríamos maniobrar para que el propio Marqués los trajera. Como vendrían aquí bajo el pretexto de profundizar el entendimiento o promover la amistad, no tendrían más remedio que aceptar las invitaciones.
+
+"Creo que eso es posible. Entonces... el mayor problema sería el Espíritu, ¿verdad?"
+
+"Si es un Espíritu capaz de controlar un volcán, conocemos su ubicación y origen. Creo que podríamos convocarlo usando Magia de Invocación. Sin embargo, dentro de Termwills, estaría confinado por la Barrera. En este caso, podríamos necesitar realizar el ritual fuera de las murallas exteriores".
+
+"...Espíritus y Magia de Invocación. Podríamos necesitar la cooperación de Auria-san para esto también".
+
+"¡Yo también ayudaré!", dijo Seraphina, apretando el puño y poniéndose de pie sobre la mesa. Cuando asentí, ella me devolvió el gesto. Quizás tenía sus propias ideas sobre la situación actual del señor del volcán. Probablemente sería de gran ayuda para comunicarse con el Espíritu también.
+
+Las Bendiciones también serían necesarias. Eso significaba que tendríamos que coordinarnos con Penélope y trabajar para cubrir tanto a la familia del Marqués como al Espíritu del volcán.
+
+De todos modos, la ventaja era que no necesitábamos salir a poner trampas. Idealmente, para cuando se dieran cuenta, los rehenes estarían libres y el retrato hablado de la bruja estaría preparado.
+
+Los rehenes protegidos. Para cuando la bruja se diera cuenta de que se habían implementado contramedidas contra su Magia de Maldición, ya habríamos emitido órdenes de arresto en todo el Marquesado de Zilbolt.
+
+El Marqués Zilbolt llegaría poco antes de que se abriera la puerta de la Veta de Agua de Luz Mágica. Eso significaba que podíamos seguir preparándonos para ambas situaciones en paralelo.
+
+Crear un sitio ritual para convocar y contener al Espíritu. Un lugar para que se queden las Doncellas del Santuario. También necesitaríamos barracones para los soldados y Caballeros que protegerían a las Doncellas.
+
+Podríamos estar algo ocupados, pero la carga antes de la llegada del Marqués Zilbolt no era realmente tan pesada. Más importante aún, deberíamos organizar meticulosamente los pasos para después de su llegada.
+
++++
+
+# **223 – Sitio del Ritual**
+
+"¡Ya vienen!"
+
+Junto con las palabras de Sheila, innumerables proyectiles retorcidos con forma de punta de lanza salieron disparados del agua, perforando hacia adelante a gran velocidad mientras giraban como taladros.
+
+Lance Shells. Monstruos con caparazón que habitan en la Veta de Agua de Luz Mágica. Independientemente de si están en el agua o en la superficie, estos monstruos se propulsan rociando agua desde sus cuerpos y empalan a sus objetivos con sus conchas.
+
+Sus caparazones son distintivos; esencialmente, son caracoles de turbante gigantes.
+
+Quedaron atrapados en la red pegajosa que lanzó Sheila y en los hilos mágicos de Rosemary. Cuando sus movimientos se detuvieron, Dullahan e Ignis cargaron desde un costado y los destrozaron con un destello de sus mandobles.
+
+Este era un entrenamiento de estilo de combate en la Veta de Agua de Luz Mágica. El plan consistía en luchar tanto en entornos submarinos como en vías fluviales para acostumbrarse al terreno y al combate aquí. El área en la que entramos era una cámara grande. Había una pequeña isla en el centro, rodeada de agua por todos lados. Era un terreno que obviamente parecía una trampa, pero eso es exactamente lo que lo convertía en un buen entrenamiento.
+
+Frente a los Gillmen que emergían uno tras otro del agua estaban Ashley y Lavigne, además del equipo de Irmhild y Seraphina.
+
+A diferencia de los Merfolk, que tienen la parte inferior del cuerpo como la de un pez, los Gillmen eran gente-pez bípeda. Esto significaba que también podían operar en tierra. Al igual que los Merfolk, empuñaban tridentes como armas y también podían disparar balas de agua, lo que los hacía capaces de combatir tanto a corta como a larga distancia.
+
+"¡Seraphina-chan!"
+
+—¡Mmh!
+
+Pero no íbamos a luchar contra ellos de forma convencional. Una flecha envuelta en una melodía maldita atravesó a los Gillmen con un sonido agudo, provocando que se confundieran y comenzaran a atacarse entre sí. Luego vino la tormenta de hielo de Ashley y Lavigne.
+
+Los Gillmen que escaparon del efecto de la flecha de Irmhild intentaron contraatacar lanzando sus tridentes o disparando balas de agua, pero o bien estaban atacando ilusiones creadas por Marlene, o sus ataques eran desviados por platillos cuando apuntaban a objetivos reales… Ninguno de sus ataques nos alcanzó.
+
+La defensa de nuestro lado era perfecta. Dullahan y Sheila, habiendo acabado con los Lance Shells, cargaron. Los dispersaron con su embestida, y Sheila rebanó a cualquier Gillman que escapara. A este ritmo… los Gillmen serían aniquilados pronto.
+
+Grace se enfrentaba a una galera gigante de aproximadamente la altura de un humano: una Grand Squilla. Se acercó a Grace mientras balanceaba su cuerpo de colores brillantes en rojos y azules intensos.
+
+A pesar de su tamaño, tenía una velocidad impresionante incluso en tierra. El llamado golpe de mantis seguía siendo efectivo a este tamaño. En los días de BFO, hubo escenas en las que los tanques que no lograban bloquearlo salían volando.
+
+Los gigantescos puños gemelos golpearon a Grace con la fuerza de una bala. Grace los recibió de frente. El puño y el hacha colisionaron, produciendo un sonido de impacto absurdamente fuerte.
+
+La parte superior del cuerpo de la galera fue lanzada hacia atrás, y Grace también salió volando hacia atrás. Ambos se recuperaron de inmediato. Chocaron de nuevo. La galera retorció su cuerpo, golpeando con el borde de su caparazón de la cola como si fuera una cuchilla.
+
+—¡Haa!
+
+Desplegó un escudo desde su herramienta mágica en la planta del pie. Pateó para detener la cola y luego avanzó. Con un destello de su hacha envuelta en espíritu de lucha, rebanó los ojos saltones de la galera, haciéndolos volar por los aires. La galera se retorció violentamente.
+
+"¡Ignis!"
+
+Al llamado de Rosemary, Grace se retiró saltando hacia atrás y, como si intercambiaran lugares, Ignis cargó con una sincronización perfecta. Se lanzó desde la dirección de los ojos cercenados —el punto ciego— y descargó su gran martillo, que tenía la apariencia de un tosco bloque de metal. El martillo aplastó el caparazón y destrozó casi la mitad del cuerpo antes de que la galera dejara de moverse.
+
+Ese gran martillo era un arma que funcionaba en conjunto con el martinete. El concepto era pulverizar hasta convertir en polvo cualquier cosa que fuera perforada a través de la armadura.
+
+En cuanto a mí, me encargaba del Kraken del Trueno mientras saltaba sobre la superficie del agua. Fiel a su nombre, era un calamar gigante que atacaba con descargas eléctricas.
+
+Esquivé los tentáculos que emergían uno tras otro del agua. Mientras bloqueaba con mi escudo los rayos que brotaban de los tentáculos, saltaba de izquierda a derecha como si me deslizara entre ellos.
+
+Los ataques de rayo parecían requerir carga. Identifiqué la apertura después de cada descarga y salté alto, sincronizándolo con la mordida de Nemea.
+
+Los tentáculos se tensaron, se enredaron y formaron nudos. Los congelé en su lugar con magia de agua, conectándolos a la pared. Al no poder esquivar ni escapar, levanté a Ouroboros y desplegué un círculo mágico.
+
+"Penetrar."
+
+Magia de tierra de sexto nivel, Lanza de Cristal. Un hechizo que lanza una lanza de cristal gigante. Disparé la lanza hacia la cabeza del Kraken que asomaba sobre el agua. Sin resistencia alguna, atravesó tanto los tentáculos que intentaron bloquearla como la cabeza del Kraken del Trueno. El Kraken luchó brevemente por escapar, pero pronto se quedó flácido y perdió sus fuerzas.
+
+"¿Estás herido?"
+
+Tras eliminar a los monstruos a grandes rasgos, preguntó Grace.
+
+"Estoy bien. ¿Y los demás?"
+
+"Estamos bien. Sin heridos", informó Ashley tras comprobar el estado de todos.
+
+"¿Qué hay de Ignis?"
+
+Al ser consultada, Rosemary revisó a Ignis haciéndole levantar los brazos y varias otras partes antes de responder. "Sin problemas por aquí también."
+
+Hmm. Sin pérdidas particulares, entonces. Eso es bueno. Todo lo que queda es la recolección... pero como de costumbre, lo que obtenemos de la Veta de Agua de Luz Mágica son principalmente ingredientes.
+
+Las Conchas de Lanza saben a caracoles de mar, y tanto la galera como el calamar son comestibles, por supuesto. He oído que los calamares gigantes no son muy aptos para el consumo, pero no hay problema con los Krakens.
+
+Bueno... los Hombres Pez no abren mucho el apetito... me limitaré a recoger sus piedras mágicas.
+
+"¿Se... puede comer esto?"
+
+"Ah, ¿la Gran Squilla? A pesar de su apariencia, es deliciosa... creo."
+
+Sheila parece tener más problemas con la galera que con los Hombres Pez. Puedo entenderlo.
+
+Aun así, es una cantidad de mariscos que definitivamente no podemos terminar de comer. Bueno, podemos vender el exceso en el Gremio, así que terminemos la cosecha rápido.
+
+—Hola.
+
+—Hola, Theodore-san.
+
+Nos dirigimos al Gremio para vender los ingredientes. La recepcionista Heather sonrió y procesó la compra de los ingredientes por nosotros.
+
+Tras recibir el pago, Heather dijo: —Theodore-san, tengo un mensaje para usted de parte de la Maestra del Gremio. Me pidió que le dijera que los preparativos en el lugar de construcción están completos.
+
+—... ¿Eso significa?
+
+—Sí. Parece que se han reunido todos los materiales. La Maestra del Gremio dijo que iba a contactar con Penelope-sama en el Templo e ir a ver el lugar de construcción, pero...
+
+El lugar de construcción se refería a la ubicación planeada para construir el sitio del ritual para invocar al espíritu del volcán.
+
+Habíamos estado recolectando los materiales necesarios. Planeaba encargarme de la edificación del sitio del ritual usando construcción mágica. Basándome en las opiniones de Claudia y Auria, también creé un modelo a escala usando magia de tierra.
+
+—Entonces iré a echar un vistazo.
+
+—¿Ah, sí? En ese caso, ¿podría decirle a la Maestra del Gremio que regrese pronto después de almorzar? Como hoy ha refrescado y hace una temperatura agradable, creo que solo está usando la inspección preliminar como excusa para salir y divertirse.
+
+Heather sonrió con ironía mientras decía eso. Me dio la impresión de que estaba bastante acostumbrada al comportamiento de Auria y a cómo lidiar con ella.
+
+—¿Es así?
+
+—Bueno, Auria-sama puede ser así, pero trabaja duro cuando realmente cuenta, así que está bien.
+
+Ya veo. Parece que goza de la confianza de Heather y los demás.
+
+Así que me dirigí fuera de la barrera de Termwills, hacia el lugar planeado para la construcción del sitio del ritual.
+
+—Hola.
+
+—Oh, Theodore.
+
+—Ah, Theo-kun.
+
+—Hola a todos.
+
+En el lugar previsto para la construcción, había una cabaña de descanso y un cenador que yo había hecho de antemano. Auria y Penelope estaban allí, junto con los miembros de Forestbird, a quienes probablemente se les había pedido que sirvieran de guardias. Cuando los saludé, me devolvieron el saludo con expresiones relajadas. Marlene corrió alegremente hacia Penelope. Penelope recibió a Marlene con una sonrisa.
+
+Los materiales necesarios estaban todos reunidos y apilados por tipo. Todo lo que quedaba era ensamblarlos según el plano en un sitio de ritual de invocación para dar la bienvenida al espíritu mediante construcción mágica.
+
+—Heather-san la estaba llamando. Dijo que le gustaría que regresara después de almorzar.
+
+—Hmm. Entendido.
+
+Cuando transmití el mensaje de Heather, Auria sonrió con ironía.
+
+—Pero sería una molestia volver ahora solo para almorzar, ¿no? Conseguimos varios ingredientes de la Veta de Agua de Luz Mágica, ¿qué les parece?
+
+—Oh, jo.
+
+Como era de esperar, Auria mostró interés.
+
+Hoy teníamos abundancia de mariscos: caracoles de turbante, calamares y galeras. Junto con otros ingredientes comprados en el mercado, empezamos a cocinar.
+
+Hice un fogón con magia de tierra, encendí un fuego con leña y magia de fuego, y coloqué los caracoles de turbante y los calamares en una rejilla comprada en el mercado para asarlos.
+
+En cuanto a la galera, hervimos los trozos cortados y luego los mezclamos con pasta y salsa, o los preparamos fritos. Grace se encargó de elaborar la salsa.
+
+El aroma sabroso de los caracoles de turbante y el calamar asándose en la parrilla flotaba en el aire. Hmm. Parece que vamos a tener un almuerzo bastante lujoso.
+
+"Mmm. Esta salsa es exquisita".
+
+Monica, de Forestbird, abrió mucho los ojos al probar la comida. La salsa a base de tomate espolvoreada con hierbas tenía un color vibrante que también resultaba agradable a la vista.
+
+"Gracias".
+
+Grace sonrió suavemente. Era la hora del almuerzo y todos estaban reunidos alrededor de la mesa circular en el cenador.
+
+"Las conchas de lanza también están ricas. Comer cosas así nos dan ganas de ir también a la Vena de Agua de Luz Mágica".
+
+"Si tienen preparadas las contramedidas, no sería mala idea intentarlo".
+
+Nosotros también usábamos herramientas mágicas con escudos mágicos integrados, y con los preparativos adecuados para el combate submarino, pensé que Forestbird probablemente podría manejarlo.
+
+"Quizás solo cuando Alfred-kun no esté ocupado".
+
+Lucian sonrió con ironía.
+
+Hmm... Alfred está bastante ocupado fabricando las herramientas mágicas para el equipo alrededor del lugar del ritual.
+
+"Theo-kun, vas a hacer construcción mágica de nuevo, ¿verdad?"
+
+"Ah. El lugar del ritual".
+
+"Me escapé porque quería ver eso. Como los materiales ya están reunidos, estará terminado en un abrir y cerrar de ojos".
+
+Dijo Auria con una expresión algo decepcionada. Ah. Así que por eso se escapó.
+
+"Entonces empezaré después del almuerzo. No creo que me lleve mucho tiempo tampoco".
+
+Como parecen estar esperándolo, lo trataré como un servicio de cortesía.
+
+No solo el lugar del ritual, sino que también planeaba construir instalaciones donde las doncellas del santuario pudieran quedarse para mantener contenido al espíritu.
+
+Sería un desperdicio simplemente abandonarlo después de que haya cumplido su propósito... Tal vez debería pensar en alguna forma de reutilizarlo.
+
++++
+
+# **224 – Visita**
+
+Bien, entonces. Primero, el lugar del ritual.
+
+Comprimo los cimientos con Magia de Tierra y luego los refuerzo solidificándolos con Magia de Petrificación. Tallo surcos en los cimientos, esparzo piedras mágicas finamente trituradas en ellos y dibujo un círculo mágico de invocación y barrera para contener al Espíritu.
+
+"Por favor, compruébenlo desde arriba por ahora".
+
+"Entendido".
+
+Claudia asiente y asciende a una altura desde donde puede supervisar toda el área junto con Rosemary. Auria hace lo mismo. Les pido que verifiquen el círculo mágico como precaución. Dado que esta es la parte central del lugar del ritual, los errores serían problemáticos de corregir, y cuando se trata de Magia de Invocación, ellas tres tienen más conocimientos.
+
+"Levántense".
+
+Hago que los Golems de Tierra se pongan en pie y les ordeno transportar los materiales uno tras otro.
+
+Coloco adoquines en un patrón circular, construyo un altar orientado hacia el volcán y levanto muros y pilares.
+
+Una vez completado eso, las tres descienden desde arriba.
+
+Lo siguiente es el techo. Creo un techo en forma de cúpula, tallo un mapa estelar en el interior e incrusto Piedras Mágicas en las posiciones correspondientes a las estrellas principales. Cambiar el tamaño de las Piedras Mágicas según la magnitud de las estrellas es sutilmente tedioso y complicado.
+
+Este es un mapa estelar del cielo nocturno de verano, ajustado a la estación para invocar al Espíritu del volcán.
+
+Es un refuerzo para crear un pseudociclo de las estrellas, mantener el efecto de la Magia de Invocación y retener al Espíritu dentro del lugar del ritual. Bueno... se parece un poco a un planetario.
+
+"¿Qué te parece este mapa estelar?"
+
+"Sí. Está muy bien hecho."
+
+Después de eso, añado decoraciones a las paredes y pilares para reforzar el poder del Espíritu y debilitar el Poder de la Maldición. Los Emblemas de los Cuatro Grandes Reyes Espíritu y el símbolo de la Diosa de la Luna.
+
+"¿Qué hay de la resistencia del edificio?"
+
+"Está bien. Hmm. De alguna manera... siento que el poder brota cuando estoy aquí."
+
+Seraphina asiente y vuela alegremente por el interior del lugar del ritual.
+
+"Me lo imagino. Creo que esto casi podría llamarse un Templo."
+
+"El Poder Mágico y el poder espiritual que se reúnen aquí están siendo Purificados."
+
+Dicen Penelope y Auria. Bueno... tendré que alterar el sistema del Laberinto más adelante, así que necesito ser capaz de al menos esto.
+
+"Supongo que eso cubre el lugar del ritual. A continuación, desarrollaré el área circundante."
+
+"¿Qué más vas a hacer?"
+
+Pregunta Penelope.
+
+"Recrearé una versión a escala del terreno alrededor del volcán en el territorio del Marqués Zilbolt. El lugar del ritual corresponde a la ubicación de la montaña misma... y después de eso, planeo crear algo parecido a un jardín que rodee el sitio del ritual."
+
+He comprendido el terreno circundante a través de entrevistas con Elmer y los demás. Esto también es solo cuestión de construir de acuerdo con el Plano. Estoy preparando mágicamente un entorno donde el Espíritu del volcán pueda residir a largo plazo sin estrés.
+
+Una vez hecho el jardín, planeo construir instalaciones donde puedan alojarse las Doncellas del Santuario y los Clérigos, así como instalaciones donde puedan residir sus escoltas: caballeros y soldados. Las cabañas temporales que hay actualmente están posicionadas de acuerdo con lugares en el territorio del Marqués, así que debería estar bien proceder renovando esas cabañas temporales.
+
+"Hmm... me hubiera gustado verlo terminado si fuera posible, pero ya he visto suficientes cosas interesantes. Dejaré el resto para cuando esté finalizado. Además, ya me han invitado a almorzar. Debo compensarte de alguna forma eventualmente."
+
+Auria parece bastante complacida.
+
+"Sí. He disfrutado plenamente de su hospitalidad."
+
+Penelope hace una profunda reverencia. Dado que las dos dan la impresión de que regresarán pronto a la ciudad, Forestbird y los demás también comienzan a prepararse para retirarse.
+
+"Sí. Theo-kun, Grace-san. Estaba delicioso, gracias."
+
+Los miembros de Forestbird también hacen una reverencia.
+
+Últimamente, han tenido trabajos como escoltar a Justia y Dominique, por lo que sus ingresos parecen estables. También han entablado relación con Auria y Penelope, y su negocio como aventureros parece ir viento en popa.
+
+—Bueno, entonces.
+
+—Sí. Por favor, tened cuidado en el camino.
+
+Con eso, nos despedimos de Auria y los demás. Bueno, aunque diga "en el camino", Termwills está a tiro de piedra.
+
+—¿Ese es el busto de la Bruja?
+
+—Bueno, sí. Lo modelé en 3D basándome en el retrato...
+
+Dado que las instalaciones alrededor del lugar del ritual que pueden hacerse con Construcción Mágica están terminadas, el resto es trabajo de Alfred.
+
+Mientras informo sobre el progreso del lugar del ritual tras pasar por el taller, estoy creando el busto de la Bruja a partir del retrato que me confió Sheila.
+
+Primero, hago una escultura prototipo en piedra, hago que Elmer —quien conoce el rostro de la Bruja— la revise y realizo ajustes. Luego creo un molde y, después de eso, solo es cuestión de producir bustos de yeso en masa.
+
+—Estás haciendo una cantidad considerable.
+
+Dice Viola.
+
+—Bueno... planeo desplegarlos por todas partes. Usar Magia de Maldición para amenazar... si nos pasara a nosotros, sería insoportable. Tendrá que esperar hasta que los rehenes estén protegidos, pero lo haré tan conocido dentro de Verdgar que moverse y comprar se volverá difícil.
+
+Dejando a un lado la conexión con el Príncipe Heredero de Silvatoria, lo haré público abiertamente para que ella nunca pueda volver a operar en las sombras.
+
+—Theo-kun es tan minucioso como siempre...
+
+—Planeo que el Marqués Zilbolt se lleve algunos con él después de que se resuelva también. Hasta el punto de que ni siquiera el Príncipe Heredero de Silvatoria pueda protegerla... o mejor dicho, pretendo hacerlo con la fuerza suficiente para socavar la posición del Príncipe Heredero.
+
+Cuando respondo, Alfred esboza una sonrisa algo forzada y dice:
+
+—Parece que también ha llegado una respuesta de ese Marqués Zilbolt. En una carta, dice que estaría encantado de aceptar la invitación.
+
+—Entonces supongo que podemos considerar completados los preparativos preliminares.
+
+—Aunque necesito preparar herramientas mágicas para el lugar del ritual.
+
+Diciendo eso, Alfred se estira. Cosas como dispositivos de alarma para instalar en las instalaciones de alojamiento y la configuración de campos de defensa en las salas de refugio subterráneas.
+
+También hay herramientas mágicas para calefacción, refrigeración y baños, pero en esas áreas no hace falta depender de Alfred.
+
+—¿No será bastante duro empezar ahora? También produjiste en masa los Amuletos de Repulsión del Mal, ¿verdad?
+
+Dado que el oponente es una Bruja que puede usar Magia de Maldición.
+
+Si bien el Amuleto de Repulsión del Mal podría no bloquear completamente una Magia de Maldición poderosa... hay aspectos donde la sinergia con la Bendición puede buscar una mejora.
+
+—En realidad no. Talcott y Cindy también están ayudando, y están las muñecas de Rosemary, así que es relativamente manejable.
+
+"Ya veo".
+
+—¿Qué hay de reutilizar el lugar del ritual? ¿Puede utilizarse como una instalación para rituales de invocación?
+
+—Aún no lo he decidido. Como está especializado para albergar al Espíritu del volcán, si queremos convertirlo en una instalación de invocación versátil, tendremos que renovarlo después de la resolución.
+
+En cualquier caso, la visita del Marqués Zilbolt se acerca.
+
+La liberación de la Puerta Sellada también está cerca según el calendario, y no debo descuidar preparativos como el entrenamiento.
+
+Y entonces, llegó el día de la visita del Marqués Zilbolt a Termwills.
+
+Se dice que el Marqués vendrá en barco, utilizando la ruta marítima. Espero en el puerto con Elmer, que lleva la capucha calada hasta los ojos. Mercedes, de la Orden de Caballeros, también nos acompaña como supervisora de Elmer.
+
+Si quisiéramos garantizar una seguridad absoluta, le daríamos a Elmer un Anillo de Disfraz o algo parecido... pero eso es originalmente para la familia real de Verdgar.
+
+Una vez resuelto el incidente, es probable que Elmer y los demás vuelvan a estar bajo la custodia del Marqués Zilbolt, así que no puedo revelar el Anillo. Prestármelo a mí es realmente una excepción.
+
+"Ya está aquí".
+
+Desde más allá del horizonte. Un barco que transporta al Marqués Zilbolt se aproxima, bañado por el sol poniente.
+
+...Hmm.
+
+Creo una lente y un tubo con Magia de Luz y Oscuridad, reproduciendo mágicamente un telescopio. Vamos a ampliar y explorar la cubierta. Está borroso, pero lo ajustaré... ¿así está bien?
+
+"¿Qu-qué es esa magia...?"
+
+"E-esto es..."
+
+Los ojos de Elmer se abren de par en par. Los de Mercedes también. Mercedes también pertenece a la Orden de Caballeros, y Elmer es de una unidad especial, así que sin duda comprenden su utilidad. Ciertamente sería útil para fines de exploración.
+
+"Hmm. Bueno, es improvisado. Más importante aún, ¿hay alguna cara conocida?"
+
+"Eh, bueno..."
+
+Elmer observa la imagen circular y flotante de la cubierta con una expresión ligeramente tensa.
+
+"...Es el Marqués".
+
+El hombre que subió del camarote a la cubierta era de complexión robusta. Un hombre de estatura y complexión media con canas en el pelo. La que sale de la mano del Marqués Zilbolt es la Marquesa. Al lado de la Marquesa está la hija del Marqués.
+
+La Marquesa y la hija se ven pálidas y no muy sanas. El sombrero de la hija está a punto de salir volando por el viento, pero el Marqués lo atrapa y, entrecerrando los ojos como si mirara algo molesto, se lo devuelve a la hija.
+
+La hija, al recibir el sombrero con una sonrisa tímida, se aferra a la Marquesa como si estuviera asustada de algo.
+
+Sigo la dirección de su mirada.
+
+"...Esa perra... esa perra es..."
+
+Elmer jadea y aprieta los dientes. Quién es... lo sé sin que lo diga. Yo también conozco esa cara. La produje en masa en el taller.
+
+Es la mujer joven vestida toda de negro que subió del camarote. Mirando fijamente a la familia del Marqués, con una sonrisa fría plasmada en su rostro.
+
+"Así que ella misma vino a bordo".
+
+Hago que Caduceus maneje el Dispositivo de Comunicación para notificar a todos los lugares la visita de la Bruja.
+
+Había supuesto que esto podría ser posible. Dado que trae a los dos rehenes con ella, es totalmente posible que ella misma —que puede activar la Magia de Maldición— viniera como supervisora.
+
+Los agentes enviados por el Marqués Zilbolt —Donovan y Lionel— tenían como objetivo asegurar una base.
+
+Parecía que se les había dicho que su propósito era alterar el orden público dentro de Verdgar, pero no puede ser solo eso. Teniendo en cuenta que la Bruja está detrás de esto y mirando el mapa... se sabe que hay un volcán inactivo cerca del pueblo donde vive Mihaela.
+
+Es muy probable que pretendan hacer lo mismo en Verdgar que en el territorio del Marqués, mientras vigilan al mismo tiempo al Marqués Zilbolt.
+
+No puedo permitirme ser descuidado aquí. Tendré que vigilar a la Bruja y actuar pronto, antes de que ella lo haga, para proteger a los rehenes.
+
+…Parece que la Bruja también tiene un compañero. Un hombre con una espada está a su lado como si la estuviera protegiendo. Debería ponerlo bajo vigilancia a él también.
+
++++
+
+# **225 – El Espíritu del Volcán**
+
+"Primero—el espíritu, supongo".
+
+"¿Qué hay de la bruja?"
+
+"Me he puesto en contacto con ellos y he dejado vigilancia".
+
+Tras responder, Elmer miró a su alrededor, pero Caduceus ya se había marchado.
+
+Los compañeros parecían estar custodiando los alrededores de la bruja… y en la ciudad, la Orden de Caballeros y el Gremio de Ladrones habían colocado carteles de búsqueda y captura y estaban vigilando. No dejaremos que escape.
+
+Primero, invocaremos al espíritu en el lugar del ritual. El espíritu tiene la máxima prioridad. Contactar con el Marqués Zilbolt y garantizar la seguridad de su esposa e hija sería la siguiente etapa.
+
+"Entonces, pongámonos en marcha. Elmer-san, necesitaremos tu ayuda para explicarle las cosas al Marqués Zilbolt".
+
+"Sí."
+
+Habíamos planeado que presentaran informes falsos y realizaran operaciones de manipulación de información… pero como la propia bruja vino, no dejaremos que escape de Termwills, así que no hay necesidad de hacerles creer que las cosas van sobre ruedas.
+
+Llevándolos a los dos con nosotros, subimos al carruaje y nos dirigimos al lugar del ritual.
+
+El Marqués Zilbolt, que había llegado a los muelles, también parecía dirigirse a una posada en carruaje con las brujas. Una posada de clase alta para nobles en el centro de Termwills. Bueno… esto también va según el plan.
+
+Originalmente, se suponía que visitarían Termwills al mismo tiempo, con Elmer y Donovan informando al Marqués Zilbolt, o al menos así era el acuerdo.
+
+Cruzamos la puerta y nos dirigimos al lugar del ritual. Todos los miembros del grupo estaban reunidos allí con Auria, Penelope y las Doncellas del Santuario. Dado que figuras importantes estaban reunidas en el lugar del ritual, hicimos que todos sirvieran de escolta asumiendo que podría convertirse en un objetivo de ataque.
+
+"¿Apareció la propia bruja?"
+
+Preguntó Grace con una expresión algo tensa.
+
+"Sí. La vi con mis propios ojos. Pero todo salió según el plan".
+
+"Entendido".
+
+Tenemos que ir a ver al Marqués Zilbolt directamente, llevando a Claudia y Marlene con nosotros. De esa forma podremos contrarrestar la Magia de Maldición de la bruja en el acto. Lo que significa que hay una alta posibilidad de combate. Hacer que Elmer y los demás organicen la reunión e irrumpir con los miembros del grupo sería probablemente la forma más rápida.
+
+"Primero, el espíritu del volcán—Tephra".
+
+El espíritu del volcán del territorio del Marqués Zilbolt se llama Tephra, como la montaña misma. Para la gente que vive en Silvatoria, al norte, parece ser un volcán que otorga bendiciones para superar los crudos inviernos.
+
+"Entonces— ¿comenzamos?"
+
+"Estoy lista".
+
+"Yo también".
+
+"Nosotras también estamos bien".
+
+Ante las palabras de Claudia, Rosemary, Auria y Penelope asintieron.
+
+"Oh, morador de las distantes tierras del norte, señor de la montaña de fuego. Espíritu Tephra. Responde a mi llamado. Por la guía de la luna y las estrellas, aparece ante mí".
+
+Alcé el Estoque Ritual hacia el Altar y comencé el encantamiento. Claudia, Rosemary y Auria se situaron un paso por detrás, entonando las mismas palabras. Marlene y Penelope se arrodillaron, ofreciendo plegarias al espíritu. Luego, las Doncellas del Santuario.
+
+El Círculo Mágico brillaba en el centro del lugar del ritual. Las estrellas en el mapa celestial centelleaban. En el centro del sitio del ritual, una llama vacilante. Al principio, una llama pequeña. Luego se convirtió en llamas infernales embravecidas, tomando forma mientras llovía ceniza a su alrededor al manifestarse.
+
+Era una mujer mitad humana, mitad bestia, con una cabellera de fuego ardiente. Aunque se mantenía sobre dos piernas, su parte inferior tenía pezuñas de cabra. El Monte Tephra tiene cabras montesas, y se dice que son las mensajeras del espíritu.
+
+Adoración a la montaña, supongo. Dado que es venerada por los lugareños, se notaba que era un espíritu de estatus considerable. Quizás sería mejor verla como algo más cercano a una diosa madre tierra o una deidad local que a un simple espíritu.
+
+A medida que Tephra se manifestaba, el cántico de Claudia y las demás cambió. Es decir, a palabras para lanzar una Barrera que mantuviera al espíritu en este lugar.
+
+"¿Quién… me convoca?"
+
+Tephra gimió, apretando su pecho junto con las llamas vacilantes.
+
+Algo parecido a una rosa negra se podía ver en su pecho. Se sentía ajeno y discordante con la forma del espíritu. —Eso era probablemente la Maldición misma.
+
+"Hijo… de humano. ¿No te basta con haberme clavado una estaca de maldición, que ahora buscas atarme… aún más?"
+
+Al verme sosteniendo el Estoque Ritual, Tephra frunció el ceño con dolor.
+
+Al ser un volcán, las bendiciones y las calamidades son dos caras de la misma moneda, y el miedo y la reverencia de la gente probablemente le otorgaron a Tephra tales cualidades.
+
+Por eso, Tephra, que había sido maldecida, no albergaría buenos sentimientos hacia los humanos incluso si era invocada mediante Magia de Invocación.
+
+Precisamente por eso, durante el Ritual de Invocación, me sitúo al frente de todo sosteniendo el Estoque Ritual. Porque quien sostiene el Estoque Ritual recibe la mayor atención del ser invocado.
+
+Si hacíamos enfurecer al espíritu del volcán, probablemente lanzaría bombas de lava o proyectiles volcánicos sin dudarlo. Como era de esperar, parecía estar volviéndose desconfiada de los humanos.
+
+"No es eso. Te he invocado aquí para destruir la estaca que atraviesa tu pecho y liberarte de la maldición".
+
+Las llamas se arremolinaron. Parecían nacer llamas ardientes en su palma, luego las lanzó con un movimiento de brazo. Pero antes de llegar al Altar, fueron bloqueadas por un muro invisible y se dispersaron.
+
+Las llamas en sí tampoco llevaban una trayectoria para golpearnos. Más que malicia, debía verse como una muestra de rechazo o intimidación. Margen para la negociación—hay de sobra.
+
+"Hablas con audacia desde un lugar seguro protegido por una barrera. ¿Esperas que crea en las palabras de un mago?"
+
+"¿Te molesta que esté fuera de la barrera de invocación?"
+
+Cuando entré en la barrera de invocación, Tephra pareció desconcertada, como si no lo hubiera esperado, mostrando una expresión de asombro. De todos modos, de esta forma no estoy protegido por la Fórmula del Hechizo ni en desventaja; estamos en igualdad de condiciones.
+
+Como ya ha sido traicionada una vez, yo también debo mostrar sinceridad. Especialmente en mi caso, ya que es difícil decir que actúo puramente por el bien de Tephra.
+
+Así que les dejo el papel de calmar al espíritu y aliviar su dolor a Marlene, Penélope y las demás.
+
+Mi papel como invocador es diferente al de Penélope y el resto. Consiste en declarar nuestra posición con confianza y ser reconocido por la otra parte como alguien digno de formar un contrato o algo similar como invocador.
+
+"¿Acaso... te burlas de mí?"
+
+"No. Hago esto para que sepas que solo digo la verdad. Quien te clavó la estaca de la maldición está usando la amenaza de erupción como un escudo para intimidar a otros. Si las cosas no salen a su manera, amenazan a los demás diciendo que usarán esa estaca para hacerte entrar en erupción con ese dolor y esa ira."
+
+"Los asuntos de los hijos de los hombres... no son de mi incumbencia."
+
+Calor abrasador. Aire ardiente tiñendo de carmesí el lugar del ritual. Sin prestarle atención, cuando di un paso adelante, Tephra dio un paso atrás. Eso—no parecía que estuviera intimidada por mí.
+
+"¿Aun cuando aquellos que te adoraban llorarán, y aquellos que se burlaron de ti reirán sin un solo rasguño? Incluso tu ira y tu dolor están en la palma de sus manos. ¿Aceptaría eso un espíritu con tal poder?"
+
+Aunque es un volcán, ella trae bendiciones. Por eso es temida y venerada. Entonces Tephra también debe albergar cualidades de compasión. Debido a que di un paso adelante, ella retrocedió para evitar quemarme. Así es como se vio su movimiento anterior.
+
+Para que creyera en mis palabras, no tuve más remedio que creer en Tephra. Nos enfrentamos, mirándonos fijamente por un rato, pero Tephra sacudió la cabeza y habló.
+
+"... ¿Qué... me pides?"
+
+Tephra miró detrás de mí por un momento. Allí estaba Seraphina, rezando junto a Marlene. Junto con las oraciones de las Doncellas del Santuario, los sentimientos de Seraphina también debían estar llegándole.
+
+"Quiero que te quedes en este lugar por un tiempo. Definitivamente romperé esa maldición. ¿No creerás en eso?"
+
+"Romper la maldición—"
+
+El calor se debilitó. Su cabello ardiente se calmó, ahora simplemente envuelto en una suave y cálida fosforescencia.
+
+"¿Tú... preparaste este lugar?"
+
+Tephra miró a su alrededor y preguntó.
+
+"Sí."
+
+"¿Para darme la bienvenida y mantenerme aquí? Bien hecho, de verdad. No es de extrañar que esa pequeña Hada te adore."
+
+Tephra entrecerró los ojos y se rió. Luego se puso seria y dijo:
+
+"¿Puedes jurar que no me engañarás? Si es así, tú y yo seremos aliados. Solo si es una petición de un aliado podría obedecer tus palabras."
+
+—Un contrato de alianza.
+
+"Por mi nombre, lo juro. Theodore Gartner convierte al Espíritu Tephra en su aliado y no te dirá ninguna falsedad."
+
+"—Muy bien. Entonces me quedaré en este lugar."
+
+Tephra asintió. El contrato se estableció, por lo que la barrera de Magia de Invocación fue liberada. Las oraciones de las Doncellas del Santuario envolvieron a Tephra en una Bendición. Un resplandor para contrarrestar la Magia de Maldición.
+
+"Una alianza con un Espíritu Superior, ¿eh? Entrar en la barrera durante el ritual... eso requiere un valor que hiela la sangre."
+
+Dijo Auria con una sonrisa irónica.
+
+"Bueno, ella no es un demonio, sino un espíritu venerado por los humanos."
+
+Si es venerada, debe tener la magnanimidad correspondiente. El monte Tephra también parece tener una naturaleza relativamente calmada en lugar de ser un volcán embravecido. Al parecer, las aguas termales son famosas en el territorio del marqués Zilbolt.
+
+—Entonces, nos turnaremos para ofrecer oraciones por la bendición.
+
+—Sí. Por un tiempo será problemático, pero por favor, encárguense de ello.
+
+Le devolví el asentimiento a Penélope.
+
+—Tephra, no hay problema si caminas por el jardín que rodea el lugar del ritual.
+
+"Entendido".
+
+El cenador exterior y demás se hicieron para que Tephra pudiera quedarse allí, y arreglamos el jardín para que pudiera sentirse a gusto. Mientras reciba la bendición aquí, debería estar bien por ahora.
+
+Pero esto no significa que hayamos terminado. Primero, el espíritu. Luego, los miembros de la casa Zilbolt. Si la bruja nos detecta, existe el riesgo de que active su Magia de Maldición. Sigue siendo una situación en la que no podemos bajar la guardia, una fase que requiere una acción rápida. Hice contacto visual con todos y asentimos mutuamente.
+
++++
+
+# **226 – Maldición**
+
+—He oído que la bruja ha aparecido.
+
+—Sí. También hemos garantizado la seguridad de los espíritus.
+
+Chester y otros vestidos de civil, junto con la Orden de Caballeros y el Cuerpo de Magos, aparecieron en el lugar del ritual. Era el momento del cambio de guardia. Tras transmitir la información necesaria, nos dirigimos hacia el distrito central.
+
+El hecho de que todos vistieran de civil tenía como objetivo evitar la detección de los movimientos de personal. Las armas y armaduras habían sido transportadas previamente a las instalaciones de alojamiento en el lugar del ritual. Aunque éramos pocos, seleccionamos cuidadosamente al personal experto en equipo de combate aéreo y nos esforzamos para que los movimientos de la ciudad no se volvieran notablemente agitados.
+
+—Así que nos dirigimos hacia allá ahora... La embajadora trabaja rápido como siempre.
+
+—No queremos darle tiempo al otro bando para recopilar información.
+
+Cuando respondí, Chester esbozó una sonrisa irónica.
+
+—¿Es ella ese espíritu?
+
+Mirando hacia Tephra, que charlaba con las doncellas del santuario en el cenador, preguntó Chester.
+
+—Sí. Su nombre es Tephra. Aunque tiene una personalidad amable, por favor no olviden que es un Espíritu Superior. Las doncellas del santuario tienen conocimientos sobre cómo interactuar con los espíritus, así que si tienen alguna duda, lo mejor sería preguntarles a ellas.
+
+"Entendido".
+
+Ante mis palabras, Chester y los demás asintieron con expresiones solemnes.
+
+Hacia la posada del distrito central donde se alojaba el marqués Zilbolt nos dirigíamos todos los miembros del grupo, incluyéndome a mí, a Elmer y a Donovan.
+
+Dado que Ignis y los demás destacarían de todos modos, viajaríamos en carruaje.
+
+Anticipábamos un posible combate. Grace estaba en su Forma Liberada. Cubrimos los objetos llamativos como las armas con tela y usamos la Linterna de Marlene para que parecieran equipaje de mano pequeño.
+
+—Bienvenidos. Bienvenidos a Kotosoutei. ¿Vienen a alojarse?
+
+Era una posada de grandes dimensiones. Fiel a su categoría de lujo, el personal se comportaba con la dignidad propia de los sirvientes de una casa aristocrática. Aunque presentaba el estilo arquitectónico de piedra típico del distrito central, el interior parecía haber sido modificado considerablemente, desprendiendo una atmósfera de mansión.
+
+—Deseamos ver al Marqués Zilbolt. Por favor, dígale que Elmer ha llegado.
+
+—Entendido. Por favor, espere un momento.
+
+Cuando Elmer comunicó esto, el empleado de la posada hizo una reverencia y se dirigió hacia las habitaciones de los huéspedes.
+
+Ahora. El verdadero problema comienza. Según la vigilancia de Caduceus, la casa del Marqués Zilbolt había tomado tres habitaciones en esta posada.
+
+Primero, la habitación para que la familia del marqués se alojara junta. Luego, la habitación para los sirvientes que probablemente trajeron para atender sus necesidades. Y finalmente, la habitación para la bruja y su escolta: tres habitaciones en total.
+
+La pregunta es cómo reaccionará el Marqués Zilbolt al enterarse de la visita de Elmer.
+
+Es decir, ¿dónde hablarán? ¿Y estará presente la bruja?
+
+We need to carefully investigate with Caduceus, closely watch the movements ==of== the marquis ==return== staff, ==return== time our actions to match their ==return== from the guest room to the front desk.
+
+Si la bruja va a estar presente, estamos preparados para tomar habitaciones como huéspedes en lugar de como acompañantes de Elmer. Dependiendo de la situación, incluso hemos considerado usar Magia de Teletransportación para llevarnos a la familia del marqués a altas horas de la noche cuando todos duerman, y luego explicar las circunstancias con calma. En ese caso, bueno, simplemente tendríamos que convencerlos de que era una emergencia.
+
+Desde las sombras del techo, Caduceus continuaba vigilando las habitaciones de los huéspedes.
+
+Un empleado salió de la habitación del Marqués Zilbolt. Caduceus continuó la vigilancia, pero el marqués no salió. Esto probablemente significa que seremos llamados a su habitación.
+
+Después de un rato, el empleado regresó de la habitación. Con una elegante reverencia, dijo:
+
+—El Marqués Zilbolt me ha dado instrucciones de escoltarlos a su habitación. Por favor, por aquí.
+
+Siguiendo la guía del empleado, todos nos dirigimos hacia la habitación del Marqués Zilbolt.
+
+—Marqués. He traído a Lord Elmer.
+
+—Adelante.
+
+Cuando el empleado llamó a la puerta y anunció la llegada, hubo una respuesta inmediata desde el interior. Pues bien.
+
+"Con permiso".
+
+Siguiendo a Elmer, entramos en la habitación.
+
+La habitación de invitados era bastante espaciosa. Además del dormitorio principal y la sala de estar, parecía haber varias otras estancias, pero solo el marqués parecía estar en la sala. Cuando notó nuestra presencia, puso cara de desconcierto.
+
+—He venido con mis subordinados.
+
+Mientras dejaba que Elmer continuara con las palabras apropiadas, usé Magia de Viento para bloquear el sonido y que no nos oyeran desde el lado de la habitación de la bruja.
+
+"Mis disculpas".
+
+—... ¿Oh? ¿Has silenciado el sonido?
+
+En el momento en que vio mi Círculo Mágico, el Marqués Zilbolt agarró el bastón que estaba junto a la mesa y adoptó una postura defensiva. Así que el propio marqués es un mago.
+
+Aunque no estaba usando ningún disfraz, ser capaz de discernir la naturaleza del hechizo a partir del Círculo Mágico demuestra que es verdaderamente digno de ser un noble de Silvatoria.
+
+—"Subordinados" es solo una explicación conveniente. No queremos que en la habitación de al lado escuchen nuestra conversación.
+
+Para demostrar que no teníamos malas intenciones, le entregué a Ouroboros a Grace e hice una reverencia.
+
+—¿Qué significa esto?
+
+El marqués se mantuvo en guardia. Mientras tanto, Elmer estaba fuera del rango de bloqueo de sonido, relatando logros inventados sobre el buen curso de la misión. Donovan dio un paso al frente para relevar a Elmer en el discurso.
+
+"Fuimos derrotados por Sir Theodore aquí presente y capturados por el Reino de Verdugal. Fracasamos en nuestra misión e incluso buscamos ayuda de un país vecino. Ciertamente aceptaremos el castigo por nuestro fracaso. Pero por favor, escuche lo que Sir Theodore tiene que decir".
+
+"...Muy bien".
+
+El marqués Zilbolt asintió, luego salió del rango de bloqueo de sonido antes de hablar.
+
+"Bien hecho, Elmer. No puedo ofrecerte una gran recompensa aquí, pero al menos déjame servirte un té. Por favor, relájate y tómate tu tiempo".
+
+"Gracias, marqués Zilbolt".
+
+Elmer hizo una reverencia.
+
+El marqués dejó temporalmente su bastón a un lado con una expresión de "por ahora", y luego nos hizo un gesto para que nos sentáramos a la mesa.
+
+Ahora, la persuasión debe ser rápida. Directa y concisa. Y si nos rechaza, recurriremos a la fuerza. Ya buscaremos su comprensión después.
+
+Si elige al príncipe heredero por encima de su esposa e hija, o rechaza nuestra propuesta por lealtad a Silvatoria, simplemente lo detendremos como a un enemigo.
+
+"Debido a la peligrosa situación, explicaré el proceso más tarde. Me enteré de la situación de los rehenes. Hemos tomado contramedidas usando la Bendición de la Diosa de la Luna para desviar la Magia de Maldición. El espíritu Tephra está protegido en el lugar del ritual".
+
+"¿Qu-qué?"
+
+Desconcertado por la repentina información, el marqués pareció conmocionado.
+
+"Nos gustaría proteger a su esposa y a la joven dama, que fueron tomadas como rehenes por la Magia de Maldición de la bruja, utilizando métodos similares".
+
+Ante mis palabras, el marqués Zilbolt dirigió su mirada hacia Elmer y los demás. Elmer y Donovan miraron directamente al marqués Zilbolt y asintieron.
+
+"Si quiero cambiar la situación actual, debería apostar por ustedes. ¿Es eso lo que significa?"
+
+"Sí."
+
+Ver para creer. Debería mostrar mis cartas.
+
+"Marlene, ¿puedes hacerlo?"
+
+Cuando la miré, ella asintió y realizó un gesto de oración. El efecto de la bendición alcanzó a todos en la habitación.
+
+"¿E-esta intensidad de bendición...? ¿M-Marlene? ¿Tercera Princesa, Su Alteza?"
+
+Parecía haberlo deducido, pero probablemente no podía creerlo. Mientras el marqués miraba con los ojos muy abiertos, Marlene sonrió y se levantó el dobladillo de la falda para hacer un gesto de saludo. Esta parte fue impresionante; realmente digna de la realeza. Para una chica de la edad de Marlene, este no era un gesto que se pudiera aprender de la noche a la mañana.
+
+Bueno, la fuerza de la bendición se debía en parte a las propias habilidades de Marlene como doncella del santuario, sumado a la plena cooperación de Claudia, pero no hay necesidad de revelar eso.
+
+El marqués parecía estupefacto, pero luego se presionó la frente con la mano como si soportara un dolor de cabeza, soltó una risa seca y se puso de pie. Para entonces la sonrisa había desaparecido, reemplazada por el rostro de un señor.
+
+"Las dos están en el dormitorio. Por favor, ayúdennos, ayuden a nuestra gente. Yo ya no tengo el poder para hacerlo".
+
+"Déjanoslo a nosotras".
+
+Asentí ante sus palabras.
+
+Cuando el conde llamó a la habitación contigua, su esposa y su hija asomaron la cabeza.
+
+Fue entonces cuando sucedió. El viento sopló hacia el interior de la habitación a través de una rendija de la ventana, haciendo que las cortinas se balancearan.
+
+Allí... la vi. Más allá de la terraza. Flotando en el aire, una mujer vestida de negro: la bruja. Nuestras miradas se cruzaron. Al vernos envueltos en la luz de la bendición, mostró una expresión de asombro.
+
+Aunque teníamos insonorización... el camuflaje tampoco es perfecto. Debió de haber sentido algo anormal en la habitación contigua.
+
+"¿Una bendición? ¡¿Está preparado para esto, marqués?!"
+
+La bruja abrió mucho los ojos, mostró los dientes y se echó a reír.
+
+"¡¿Qu-qué...?!"
+
+El marqués Zilbolt gritó mientras un círculo mágico brillaba en la mano de la bruja. Una fórmula de hechizo que nunca antes había visto. Probablemente se trataba de magia de maldición.
+
+Cuando hice brillar un círculo mágico en mi mano, la bruja pareció dudar por un momento entre esquivar o activar su maldición.
+
+Pero la bruja extendió la mano y cerró el puño. Probablemente eso tenía el efecto de aplastar el corazón del objetivo.
+
+Sin embargo, la bruja mostró entonces una expresión de estupefacción. No debió de sentir ninguna resistencia.
+
+"¡M-maldito seas!"
+
+Apretó los dientes como si los rechinara, fulminándome con la mirada.
+
+Sí. Una vez que Marlene activó su bendición, y una vez que conocimos directamente a la esposa y a la hija, nuestra victoria ya estaba asegurada.
+
+Las bendiciones llegan a través de la oración. Para fortalecerlas, es necesario conocer a la otra persona de forma más profunda y específica. Por ejemplo, conocer su rostro, sus circunstancias o los problemas a los que se enfrenta.
+
+Teníamos que contrarrestar la magia de maldición de la bruja. Por eso mismo necesitábamos vernos directamente.
+
+"No te has olvidado de la otra maldición..."
+
+"En lugar de preocuparte por el espíritu, ¿por qué no te preocupas por ti misma?"
+
+La bruja empezó a decir algo, pero la interrumpí. Aunque no la hubiera detenido a mitad de la frase, habría acabado de esa manera.
+
+Black mist began coiling around the witch. Curses come home to roost. The curses with nowhere to go – ==return== to the caster.
+
+"¡Guh!"
+
+Las maldiciones empezaron a erosionar varias partes del cuerpo de la bruja. Tiñendo sus vasos sanguíneos de negro, carcomiendo su cuerpo.
+
+Ya fuera por el dolor o no, la bruja dejó escapar un grito de angustia. Probablemente, eso habría llegado al corazón y lo habría aplastado...
+
+"¡Qué molesto!"
+
+Gritó la bruja con irritación e hizo un gesto como de sacudirse algo de encima.
+
+Expulsó por la fuerza dos maldiciones de su cuerpo y luego... las barrió.
+
+"...Demonio."
+
+La voz de Sheila. Tanto la expulsión de las maldiciones de su cuerpo como el barrerlas se hizo con miasma.
+
+No valía la pena sorprenderse. Salí aquí precisamente porque había considerado esta posibilidad, y por eso bendije a todos los presentes.
+
+El hombre que servía como escolta de la bruja también parecía haber seguido a su ama. Permaneciendo en el aire, nos miró. Inmutable ante el miasma de la bruja. Él también... debería ser considerado un demonio.
+
+"Claudia. ¿Preparativos?"
+
+"Necesito solo un poco más de tiempo. Estoy usando Detección de Vida para identificar a todos en esta área y así poder teletransportarlos simultáneamente tanto al lugar del ritual como al laberinto."
+
+"Entendido".
+
+En resumen, solo tenemos que retener a esos demonios para que no puedan hacer ningún movimiento innecesario hasta que la magia de Claudia esté completa.
+
+"Theo, ten cuidado."
+
+"Que la fortuna te acompañe".
+
+"Nosotros nos encargaremos del otro demonio."
+
+"Entendido. Tengan cuidado ustedes también."
+
+Nos asentimos mutuamente y luego dirigimos nuestra mirada hacia los demonios.
+
+—Ya veo, ya veo. ¿Así que habíais captado nuestros movimientos? Kukuku. Nos habéis dejado en ridículo.
+
+La bruja… no, el demonio esbozó una sonrisa desgarradora con ojos rebosantes de ira, mientras un miasma emanaba de todo su cuerpo al mirarnos desde arriba. En su espalda, brillaban unas enormes alas de mariposa iridiscentes.
+
+Parece que está motivada. Eso es exactamente lo que nosotros también queremos.
+
+—Venid. Os haré pedazos.
+
+Me reí en respuesta al demonio, tomando una postura con Ouroboros. Cuando elevé mi poder mágico y emití Spark Light, este también ensanchó su sonrisa con alegría.
+
++++
+
+# **227 – El Caballero de la Bestia de Arena**
+
+—Yo me encargaré de ese mago. Belzelius, no dejes que los demás se me acerquen. Puedes matarlos, pero mantén vivo al Marqués.
+
+"Entendido".
+
+El cuerpo de Belzelius, tras recibir instrucciones de la bruja, comenzó a transformarse en algo inhumano. Con cuernos macizos y piel dura, era una forma indistinguible de un crustáceo o de un caballero con armadura de cuerpo completo.
+
+—¿Arena…?
+
+La voz recelosa del Marqués Zilbolt.
+
+Sí. Era arena. De los huecos de la armadura, la arena fluía continuamente. La arena derramada se solidificaba en el aire una tras otra, tomando forma y creando manadas de bestias de arena que se asemejaban a lobos alados.
+
+El miasma que se filtraba por las rendijas de la armadura se convertía en arena y se derramaba. Este demonio debía poseer tales características. Estaba sellando espíritus subordinados menores, que se sincronizan fácilmente con las emociones negativas, en recipientes de arena.
+
+—Soy Belzelius del Colmillo de Polvo. Tomaré vuestras vidas.
+
+Tal como lo haría un caballero. Cuando Belzelius levantó su espada frente a su rostro, las manadas de bestias de arena comenzaron a moverse simultáneamente.
+
+Grace, Sheila e Ignis se enfrentaron a las bestias de arena de frente. Bocas absurdamente grandes revelaban dientes irregulares. Sin embargo, cualquier cosa que tocara a Grace era destruida de un solo golpe. Las bestias de arena, partidas limpiamente en dos por el impacto del hacha, volvían a convertirse en miasma, desvaneciéndose en el vacío como si se evaporaran. Era una escena que recordaba a la desaparición de un demonio al morir. Pero las bestias de arena poseían una ventaja numérica abrumadora.
+
+—¡A mi lado!
+
+Ashley y Marlene crearon posiciones defensivas alrededor de Claudia y la familia del Marqués Zilbolt. Campos de defensa y muros de hielo. Además, bloquearon a las bestias de arena que se aproximaban con Saucers. En medio de esto, Dullahan cargó y barrió con su gran espada.
+
+Los hilos mágicos de Rosemary rebanaban a las bestias de arena con un sonido sibilante.
+
+—¡Hay demasiados enemigos! ¡No llegaremos a ninguna parte solo defendiendo!
+
+Gritó Irmhild mientras disparaba flechas en rápida sucesión.
+
+—¡Voy a entrar!
+
+Grace saltó desde la terraza, adentrándose en medio de las manadas de bestias. Las bestias de arena eran destrozadas como si se repitiera la escena anterior, pero en el momento en que las bestias que deberían haber desaparecido tocaban el miasma de Belzelius, recuperaban sus formas originales y mostraban sus colmillos.
+
+La decisión fue instantánea. En lugar de cargar contra el propio Belzelius, ella trazó un gran arco mientras saltaba hacia atrás, lanzando su hacha.
+
+La cadena envuelta en espíritu de lucha se enredó en las bestias de arena como si fuera una criatura viva, lanzándolas lejos. Allí, las flechas de Irmhild las alcanzaron. Las flechas cargadas con Melodías Malditas hicieron añicos a las bestias de arena, convirtiéndolas en polvo.
+
+—¡Se regeneran al tocar el miasma!
+
+Incluso mientras decía esto, Sheila cargó hacia el centro del enemigo. Grace también cambió de dirección. Directo hacia las manadas de bestias, volando directamente hacia Belzelius.
+
+—Oh.
+
+Ante esta visión, Belzelius dejó escapar un sonido de impresión.
+
+Pensándolo de otra manera, esto significaba que dejar que Belzelius se acercara a las posiciones defensivas sería problemático. Tenían que contener al propio Belzelius en medio de las bestias que se regeneraban.
+
+—¡Avanzad!
+
+Ante la voz de Rosemary, Ignis también saltó a las líneas del frente. El gran martillo se balanceó como una tormenta, reduciendo a las bestias de arena a polvo. La propia Rosemary también dio un paso adelante. Tomando posición en la vanguardia, se enfrentó a las bestias de frente.
+
+—Si se regeneran... ¿qué tal esto?
+
+Los hilos de colores del arco iris de Rosemary enredaron a las bestias que se aproximaban. Mientras los dedos de Rosemary se movían de forma compleja, como si tocara un instrumento de cuerda con una leve sonrisa, secuestró los movimientos de las bestias de arena. Luego las hizo cargar contra el propio Belzelius.
+
+—¡Bastante entretenido!
+
+Belzelius, mostrando deleite, destrozó con su puño a la bestia de arena controlada.
+
+La arena se congregó alrededor de la espada en la mano de Belzelius, tomando una postura como para arremeter contra Rosemary.
+
+—¡Tu oponente no está por allí!
+
+En ese momento, Grace atravesó a las bestias de arena y cargó. La espada de Belzelius se balanceó mientras evitaba el hacha que se aproximaba rugiendo.
+
+Fue un tsunami de arena. La ola de arena liberada a lo largo de la trayectoria de la espada, sin embargo, falló su objetivo, segando por completo el techo de un edificio de piedra. Ante tal poder, Rosemary frunció el ceño.
+
+Una magia compuesta de tierra y viento, similar al Polvo Triturador. Una técnica que raspa todo con un torrente de arena dura. Además, parecía poseer propiedades que aplastan con la masa. El rango de ataque también era amplio, lo que dificultaba salir ileso incluso si se bloqueaba con un Escudo Mágico.
+
+Precisamente por eso Grace acortó la distancia. El golpe actual requería tiempo de carga; si seguía atacando a corta distancia, no habría oportunidad de lanzarlo hacia la retaguardia. El hachazo se liberó con un rugido de tormenta, pero fue desviado como si fuera parado con la espada.
+
+Grace no se resistió al impulso del desvío. Tal como en el entrenamiento con Theodore. Dejó que su cuerpo siguiera la corriente, deslizándose hacia la parte trasera. Como para evitar la persecución, Sheila cargó a cambio.
+
+Belzelius enfrentó las dos espadas de Sheila con la espada en su mano y un escudo de arena que se solidificó a partir del miasma. Tras varios choques metálicos, la arena estalló explosivamente desde sus pies.
+
+Habiendo sentido las señales de la explosión con sus cinco sentidos, Sheila había saltado hacia atrás momentos antes. Mientras Belzelius tomaba una postura con su espada mostrando intención de perseguirla, Grace cargó desde el flanco.
+
+Esta vez, no dejaría que se desviara. Presionó con su hacha como si lanzara todo su cuerpo a la carga. Espíritu de lucha y miasma. Sus armas chocaron, esparciendo chispas. Pero solo por un momento. Un torrente de arena surgió fuera de su campo de visión, el cual esquivó impulsándose con su escudo.
+
+El cielo y la tierra se invirtieron, la ofensiva y la defensa se intercambiaron; Grace y Sheila se turnaban para arremeter. Aplastando, estocando, barriendo, intercambiando tajos. Desviando, fluyendo, recibiendo, barriendo. La turbia corriente de arena surgía con ondulaciones.
+
+Una brillantez aterradora en las artes marciales. Movimientos que sugerían años de un entrenamiento considerable.
+
+No había manos suficientes. Mientras aplastaba a las bestias de arena circundantes con Ignis o las ataba y cortaba con hilos mágicos, Rosemary apretó los dientes ante la escena.
+
+Para evitar que las bestias de arena que se regeneraban atacaran a Grace o Sheila, Ignis y Rosemary, junto con Irmhild y Seraphina, se encargaban de destruirlas.
+
+Pero aún no era suficiente. No podían con todas. Las bestias de arena que se filtraban hacia la retaguardia estaban siendo enfrentadas por Ashley y Marlene en las posiciones defensivas, además de Elmer y Donovan, e incluso el Marqués lanzando magia, pero eso era todo.
+
+Teniendo en cuenta a quienes necesitaban protección, la retaguardia no podía avanzar. El Marqués y los demás podían luchar, pero no al nivel de combatir al demonio mismo.
+
+El equilibrio no podía romperse. Pero entonces... llegó.
+
+"¡Siento haberos hecho esperar!"
+
+Junto con la voz de Claudia, un enorme círculo mágico se extendió, envolviendo los alrededores. Magia de teletransportación múltiple de tipo identificación. Para enviar al grupo del Marqués al lugar del ritual. Magia para enviar al grupo de Theodore al campo de batalla.
+
+El grupo de Ashley alrededor de las posiciones defensivas. Grace y Sheila luchando contra Belzelius. E incluso Theodore y la bruja que estaban más lejos... fueron tragados por una luz blanca.
+
+El deslumbrante brillo duró solo un momento. Envueltos en luz, tras disiparse, se encontraban ante la Puerta Sellada en la Veta de Agua de Luz Mágica.
+
+Una zona poco profunda donde el agua les llegaba a los tobillos. El sonido del agua fluyendo. Un salón enorme ubicado más allá de la cueva sumergida. Este era, en efecto, lo más profundo de la Veta de Agua de Luz Mágica.
+
+"¡Vamos!"
+
+El grupo de Ashley, liberado de la defensa, también se puso en marcha.
+
+Ashley a lomos de Lavigne. Marlene montando el caballo del Dullahan. Irmhild también dio un paso al frente.
+
+"¡Magia de teletransportación, dices...!"
+
+Al ver esto, la respuesta de Belzelius fue reunir a las bestias de arena. Consolidando a la mayoría de ellas, les dio la forma de un ciempiés gigante y luego saltó sobre su cabeza para controlarlo directamente.
+
+Más que control, era una unificación. Extendiendo su propio torso desde la cabeza del ciempiés, poseyendo tanto un tamaño masivo como capacidad de regeneración, cargó contra el grupo de Ashley mientras se enfrentaba simultáneamente a Grace y Sheila.
+
+Mientras tanto, balas de arena se dispersaron desde el cuerpo del ciempiés. Dullahan, apartando las balas de una patada y cargando a través de las bestias de arena que bloqueaban su camino, golpeó el cuerpo del ciempiés con un tajo de su mandoble. Pero incluso tras recibir el impacto directo de la espada larga, el ciempiés no mostró reacción alguna. Como respuesta, innumerables lanzas de arena salieron disparadas de su espalda. Cortándolas con el mandoble y desviándolas con los Saucers, se retiró.
+
+Las heridas recibidas por el mandoble se cerraron al instante. Un ataque cortante que habría despedazado a criaturas ordinarias; eso es lo que debería haber sido.
+
+—¡Si es arena, entonces qué tal esto!—
+
+Ashley, galopando junto a Lavigne, hizo brillar su Círculo Mágico.
+
+Magia compuesta de agua y viento de sexta clase. Call Storm. Junto con vientos huracanados, cayó una lluvia feroz como si se hubieran volcado cubos de agua.
+
+El agua empapó la arena con una fuerza tremenda. Los movimientos de las bestias de arena se ralentizaron visiblemente. Quizás el efecto en el ciempiés gigante fue más lento, ya que sus movimientos permanecieron inalterados.
+
+Pero era solo cuestión de tiempo antes de que el engaño se volviera imposible. Ya fuera que Belzelius reconociera a Ashley como una enemiga poderosa con poca compatibilidad contra sí mismo, giró la cabeza del ciempiés hacia ella y cargó.
+
+—Ya veo. Compatibilidad—. Entonces daré un paso al frente.
+
+Al ver esto, Rosemary sonrió y se interpuso en su camino con Ignis. Luego, conectó sus hilos mágicos a las extremidades de Ignis.
+
+—Vamos...—
+
+Mientras sentía cómo su propio poder mágico era absorbido por Ignis, Rosemary avanzó con su muñeco. Esto mejoraba la velocidad de reacción mediante el control directo del muñeco y, al suministrar poder mágico de Rosemary, proporcionaba efectos adicionales de potencia y amplificación de fuerza. El as bajo la manga que Rosemary había imaginado desde que descubrió la magia de hilos de marioneta.
+
+Junto con Ignis, cargó hacia Belzelius con una fuerza tremenda.
+
+Incluso el enorme bulto de metal que se acercaba con un rugido fue desviado sin esfuerzo por Belzelius con un escudo de arena. El cuerpo de Ignis se deslizó hacia un lado, dejando el frente de Rosemary completamente expuesto.
+
+—¡¿Qué oportunidad tiene un caballero artificial?!—
+
+Rugió Belzelius.
+
+Sí. Incluso si la propia Rosemary cruzara espadas directamente con Belzelius, probablemente no duraría más de unos pocos intercambios. Incluso si Ignis estuviera al frente, controlarlo con hilos seguiría situando a Rosemary dentro del alcance de ataque de Belzelius.
+
+Mientras este reunía miasma en su mano para atacar con lanzas de arena e intentaba bloquear las rutas de escape con el cuerpo masivo del ciempiés, un impacto golpeó la cabeza de Belzelius.
+
+"¡¿Qué—?!"
+
+—Artificial... ¿qué dijiste?—
+
+Rosemary se rió burlonamente. Ignis, aún en la postura desviada, estaba posicionado como si diera la espalda diagonalmente detrás de Belzelius. Pero utilizando una movilidad articular no humana, balanceó el gran martillo desde una dirección que Belzelius nunca anticipó, golpeando su cabeza.
+
+Los ojos de Belzelius se abrieron de par en par e instantáneamente lanzó balas de miasma. Lo que las dispersó mientras volaban hacia Rosemary fueron las flechas de Irmhild y los Saucers de Marlene.
+
+Rosemary les dedicó una breve sonrisa a los dos y luego se posicionó como si se escondiera tras la espalda de Ignis. Como si esta vez no fuera a permitir ni siquiera un contraataque con balas de miasma, varios platillos orbitaban alrededor de su cuerpo.
+
+—Ciertamente. Comparada con Grace o Sheila, soy completamente incompetente en el combate cuerpo a cuerpo. Contra ti, que posees la habilidad marcial y la fuerza necesaria para enfrentarte a ellas dos... normalmente no debería tener ninguna oportunidad. Pero, mientras tenga suficiente potencia y velocidad para resistir, precisamente por ser una muñeca artificial, no puedes predecir sus movimientos.
+
+Es cuestión de compatibilidad. Rosemary se cubrió la boca con su abanico de plumas y soltó una risita.
+
+Ignis, con un suministro de poder mágico incrementado, se acercó a Belzelius mientras todo su cuerpo resplandecía. Blandió el enorme martillo como si fuera un simple trozo de madera, barriendo con su garra izquierda.
+
+Desviando, bloqueando con escudos de arena... pero no lograba abrirse paso. El martillo que pasaba de largo rotaba con la parte superior del cuerpo y volvía a acercarse por el flanco. Precisamente porque se parece un poco a la forma humana. Precisamente por el entrenamiento. La reacción inevitablemente se retrasaba.
+
+Golpeado en el costado, la parte superior de su cuerpo salió despedida. Fue superficial; apenas había logrado bloquear con un escudo de arena en el último momento. Pero su postura se rompió. Al ver la oportunidad, Rosemary disparó bolas de fuego hacia Belzelius mientras controlaba a Ignis para que lo persiguiera.
+
+Ignis atravesó la ráfaga de la explosión, acercándose con su garra izquierda pegada a la cadera.
+
+—¡Qué ingenuo!
+
+La estocada de la garra cortó inútilmente el aire. Era como una cáscara vacía hecha de arena.
+
+Belzelius esquivó a Ignis y se abalanzó sobre Rosemary.
+
+Hacia Rosemary, que miraba con los ojos muy abiertos, paralizada e incapaz de reaccionar, Belzelius blandió su espada. Debería haberle alcanzado el cuello.
+
+Un sonido metálico. En esa mano había un tosco gran martillo. La figura que debería haber sido Rosemary se desdibujó, e Ignis apareció tras la ilusión.
+
+La distancia, el ángulo de corte, todo se desajustó. Por lo tanto, Belzelius no pudo evitar el zarpazo disparado a quemarropa.
+
+La ráfaga de la bola de fuego. El flujo de esa distracción, todo era parte de la estrategia. Tanto Rosemary como Belzelius, y también Marlene. Practicantes que emplean algo externo para luchar. Precisamente porque el cuerpo principal se convierte en la debilidad por mucho que uno se esfuerce, Belzelius debía de haber entrenado extensamente, y por eso ambos comprendían las intenciones del otro.
+
+—¡Explota!
+
+Rosemary vertió todo el poder mágico que le quedaba, aumentando la potencia de la muñeca. En el momento en que se oyó un pequeño clic metálico de las garras cerradas, al instante siguiente, con un estruendo, el Pile Bunker detonó.
+
+La estaca de plata mithril perforó el pecho de Belzelius. Destrozando el caparazón del tórax, atravesando la carne y el hueso subyacente... y allí, donde quedó clavada, la propia estaca liberó una ráfaga explosiva.
+
+"¡¿Gah?!"
+
+Con la herida destruida desde el interior, el cuerpo de Belzelius cayó. El ciempiés de arena también perdió su fuerza y se desplomó.
+
+Rosemary, tras haber agotado la mayor parte de su poder mágico con ese único golpe, sintió un mareo similar a la falta de oxígeno, y su expresión se ensombreció.
+
+—Como era de esperar, la eficiencia... es deficiente.
+
+Debido a que estaba amplificando la potencia canalizando su poder mágico a través de magia intermedia, ya comprendía hasta cierto punto ese inconveniente.
+
+Cuando miró hacia el Belzelius que caía, pudo ver cómo el miasma se concentraba dentro de su cavidad bucal.
+
+—¡Aunque sea solo uno...!
+
+No podía moverse. Al haber gastado casi todo su poder mágico refinado en el único golpe de la muñeca, Rosemary no tenía reservas para esquivarlo. El cuerpo de Rosemary fue apartado de la línea de fuego en una dirección imprevista. Eran los hilos pegajosos de Sheila.
+
+—No es solo una persona, ¿verdad?
+
+Rosemary cerró los ojos y sonrió. Sus puntos débiles serían cubiertos por alguien. Por eso podía permitirse usar cartas de triunfo tan ineficientes.
+
+Y el destello de miasma liberado... Grace lo partió limpiamente con un tajo de hacha envuelto en espíritu de lucha, como quien raja bambú.
+
+—Oh—
+
+Un destello. Dejando una trayectoria de espíritu de lucha de color púrpura brillante en el gran salón de la Vena de Agua de Luz Mágica, Grace aterrizó en el agua. Momentos después, Belzelius, partido en dos tras recibir el hachazo en la herida del Pile Bunker, cayó al agua.
+
++++
+
+# **228 – La Princesa Devoradora Alvelinde**
+
+Una bruja. Su verdadera naturaleza como demonio se manifiesta en alas de mariposa que brillan con colores vibrantes, junto con decoraciones ovaladas resplandecientes, similares a gemas, incrustadas por todo su cuerpo.
+
+Fragmentos de luz parpadean alrededor de su figura... muy parecidos a las ilusiones de humo plateado creadas por aquel demonio Zarbash que encontramos antes.
+
+No puedo descartar la posibilidad de que las escamas de sus alas contengan veneno. Mientras despliego un campo de defensa de viento para cubrir mi cuerpo, ella ensancha su sonrisa con evidente deleite, solidificando el miasma en una espada envuelta en fosforescencia.
+
+—Lady Alvelinde. Yo me encargaré de ese—
+
+—...No.
+
+Aunque su escolta demoníaca se ofrece a luchar contra mí, la bruja —Alvelinde— niega con la cabeza y luego ríe mientras declara que ella misma será mi oponente.
+
+Parece que Alvelinde ha decidido que soy su enemigo. Se ríe mientras rebosa intención asesina y espíritu de lucha.
+
+La escolta demoníaca —Berzelius— luchará contra Grace y los demás, mientras que Alvelinde se encargará de mí. Las intenciones de ambos bandos coinciden perfectamente.
+
+Un combate uno contra uno también me viene bien. Nos elevamos para quedar a la altura de los ojos, mirándonos fijamente a la distancia.
+
+Caduceus se encargará del apoyo de emergencia para nuestros aliados y de las comunicaciones con las distintas posiciones.
+
+Y después de que Claudia active su Magia de Teletransportación, él asegurará nuestra ruta de retirada. Eso me tranquiliza.
+
+Cambio mis pensamientos al modo de combate y comienzo a refinar mi poder mágico.
+
+Alvelinde. Investigué un poco sobre los demonios... Si mal no recuerdo, es el demonio conocido por el epíteto de Princesa de la Corrosión. Dicen que corroyó y destruyó cierto reino desde dentro durante la era anterior a que se estableciera la magia de barrera. De ahí su título.
+
+Dado que solo ha trascendido su epíteto, no puedo calibrar sus habilidades ni su verdadera fuerza... Pero si se trata de la misma persona, debe de ser un demonio considerablemente antiguo.
+
+Damos un paso adelante simultáneamente. Ouroboros y su espada chocan, entrelazándose mientras dispersan destellos de luz.
+
+Al instante siguiente, capto un destello de luz en el borde de mi visión. Giro mi cuerpo por reflejo e inmediatamente algo parecido a una cinta de la parte inferior de sus alas de mariposa pasa ante mi nariz con una fuerza tremenda.
+
+Un ataque de tajo. Probablemente posee un filo considerable. Aprovechando el impulso de mi giro, arremeto con el extremo opuesto de Ouroboros. Al ver que lo bloquea con un Muro de Miasma, libero inmediatamente una Onda de Choque Mágica, apartando su brazo de un golpe. Ella pone una cara de sorpresa.
+
+Pero Alvelinde no se resistió al movimiento de ser repelida. Se arquea con gracia hacia atrás como si bailara, aprovechando el impulso. Simultáneamente, su espada barre hacia arriba como si fuera a ensartarme.
+
+Giro para evadir y pivoto, cerrando la distancia para barrer con Ouroboros, que las cintas de sus alas interceptan.
+
+Girándose para enfrentarme, Alvelinde muestra los dientes en una sonrisa y luego se mantiene firme para recibir mi ataque. Usando mi báculo y el Abrigo de Quimera, contrarresto su espada y sus alas. Nos enzarzamos en innumerables intercambios de golpes y ataques de tajo a corta distancia.
+
+Trazamos trayectorias de imágenes residuales a través del cielo nocturno, con el poder mágico y el miasma colisionando para dispersar chispas explosivas mientras ascendemos en espiral. Nuestros cuerpos chocan. Rebotamos el uno contra el otro y pivotamos. Intercambiando magia de bajo nivel y Balas de Miasma mientras nos acercamos, intercambiamos ataques al pasar uno al lado del otro.
+
+Sus alas son esencialmente miasma formado en alas de mariposa de alta densidad. Carecen de sustancia, o más precisamente, las alas mismas parecen carecer de receptores de dolor; incluso cuando asesto técnicas basadas en impactos, no veo ningún efecto.
+
+Se dé cuenta de esto o no, ha pasado a usar sus alas como su principal método de ataque. Usa su espada para bloquear los ataques de Nemea y Capella, o alternativamente, ha comenzado a emplear métodos en los que envuelve el miasma a su alrededor y luego lanza ataques de tajo o estocadas como Balas de Miasma al crear distancia.
+
+Justo cuando estábamos a punto de cargar directamente el uno contra el otro, llegó la Magia de Teletransportación de Claudia. Nuestro entorno se vio envuelto en una luz blanca y fuimos transportados a la Veta de Agua de Luz Mágica.
+
+Para nosotros, esto salió según lo planeado. Para ellos, fue un desarrollo inesperado. Pues bien, simplemente cargaré hacia adelante sin importar nada.
+
+Lanzo un golpe descendente desde una postura alta. En ese momento, ella mostró otro movimiento diferente. Mientras saltaba hacia atrás, sus alas de mariposa envolvieron su cuerpo y luego su forma desapareció como si se fundiera con el paisaje. El movimiento de un objeto, el flujo de aire. ¡Esto no es teletransportación!
+
+Balanceando a Ouroboros por instinto, resuena un sonido metálico. Ella también había estado blandiendo su espada intentando tomar mi cabeza.
+
+Mostrando los dientes en una sonrisa, me lanza una Bala de Miasma a quemarropa. Cuando la bloqueo con un Escudo, se produce una explosión y el retroceso crea distancia entre nosotros.
+
+"Nunca imaginé que me superarían en número de técnicas. Esas habilidades tan variadas... Y quien realizó la teletransportación fue el amo del Laberinto. Ya veo, así que fuiste tú..."
+
+A juzgar por su respuesta y sus palabras de antes, ella conoce la verdadera naturaleza y las propiedades de las técnicas que usó Gardinis.
+
+Sin duda hay una conexión con esos demonios, pero eso plantea la duda de cuánto sabe el Príncipe Heredero, o si el propio Príncipe es siquiera humano. Pero dudo que responda a tales preguntas con sinceridad si se lo pido.
+
+Alvelinde extiende ambos brazos. Las escamas que caen de sus alas se reúnen y se condensan. Formaciones cristalinas flotan aquí y allá.
+
+Los cristales no muestran movimiento. Simplemente flotan en el lugar. Probablemente sea la preparación para algo.
+
+Un miasma brillante se acumula sobre la cabeza de Alvelinde... ¡Aquí viene!
+
+Esquivo en el último momento posible. Un rayo resplandeciente de color verde azulado —o quizás sería mejor llamarlo rayo de calor—. Algo que desprende un calor intenso pasa justo al lado de mi cuerpo. Sí. Probablemente sea ese tipo de técnica.
+
+Cuando golpea un cristal, se refleja y viene disparado hacia mí. Despliego un Escudo siguiendo la trayectoria prevista para defenderme. Incluso tras generar niebla con Magia Oscura y Magia de Agua en el interior, solo atraviesa un calor abrasador.
+
+Es probable que la potencia se haya atenuado significativamente, pero ella también posee métodos de ataque que pueden ignorar los Escudos Mágicos. Crear niebla para intentar atenuar el daño sería imprudente; probablemente crearía un campo ventajoso para ella.
+
+Esa técnica de antes con la que desapareció también es similar. Probablemente tenga técnicas que transforman el miasma en propiedades similares a la luz, para luego reflejarlo o refractarlo. Con la niebla, aunque intente atenuar el ataque, no puedo neutralizar el poder por completo, y si ella lo usa en mi contra proyectando ilusiones como si fuera una pantalla, sería problemático.
+
+Levanto a Ouroboros en posición de guardia y comienzo a amplificar mi poder mágico. Envuelvo mi cuerpo con el exceso de energía. Dos, luego tres esferas de luz flotan sobre su cabeza.
+
+Es hora de arriesgarse. De cualquier forma, entablar una batalla de proyectiles me pondría en desventaja. Esos cristales de reflexión... probablemente pueda producirlos sin cesar, y destruirlos no tendría sentido. Entonces, es lo mismo que antes. Ella también debe evitar autodestruirse con los reflejos. El combate cuerpo a cuerpo con líneas de fuego limitadas es mi único camino a seguir.
+
+"¡Aquí voy!"
+
+Combinando mi fuerza con la del Manto de Quimera, cargo directamente, saltando de Escudo en Escudo para realizar movimientos de reflexión rápidos. Ella responde también a máxima velocidad.
+
+Intercambiamos magia y Balas de Miasma mientras volamos a gran velocidad. Intercambiamos golpes al cruzarnos. Hasta ahí, todo es igual que antes.
+
+En el paisaje que fluye a velocidades ridículas, capto cada posición. Ella y yo. Y las coordenadas de los cristales. En el momento en que detecto el precursor de las esferas de luz que flotan sobre Alvelinde a punto de ser disparadas, despliego Escudos a lo largo de las líneas de fuego. Independientemente de si me apuntan a mí o no.
+
+De cristal en cristal. Cada vez que una Lanza de luz destella, aparecen Escudos instantáneamente alrededor de mi cuerpo. De cristal en cristal. Reflejo tras reflejo. En esta ruleta de trayectorias de luz arremolinadas, un cristal en particular se convierte en la batería principal que me apunta.
+
+Un destello viene directo hacia mí. Calor en mi flanco. Podría quemarme, pero como está atenuado, no será una Herida Fatal. Mientras no tenga propiedades de retroceso, puedo ignorar el dolor. Intercambio la defensa perfecta por la amplificación del poder mágico.
+
+Cuando acorto la distancia y entro, sus alas se balancean. Uno, dos... me deslizo a través de sus Ataques de Tajo. La distancia y los ángulos eran únicos, así que estaba algo confundido, pero me estoy acostumbrando también a estos movimientos de las alas. Usando a Nemea y Capella no para el ataque y la defensa, sino sumándolas a mi movilidad para sumergirme de repente en el corto alcance, descargo un impacto a través del Escudo. Entonces, su rostro se contorsiona por un momento. Mientras su expresión se tuerce, Alvelinde sigue riendo.
+
+"¡Haces cosas increíbles!"
+
+Ella hace girar su cuerpo. Mientras desata numerosos Ataques de Tajo con sus alas, las esferas brillantes sobre su cabeza destellan: tres, cuatro. ¡A esta distancia, no puede disparar desde atrás!
+
+Vuelo hacia arriba para desengancharme. Un momento después, la luz reflejada de los cristales atraviesa el lugar donde yo estaba desde la izquierda y la derecha.
+
+"¡Ooooh!"
+
+Alvelinde genera un cristal masivo en su palma. Haciendo que la luz explote desde él, la luz se propaga radialmente hacia arriba. Un movimiento que anticipó mi vuelo ascendente.
+
+Pero aunque el rango es amplio, carece de convergencia. Despliego un Escudo hacia adelante y cargo directamente hacia la fuente de luz. Abriéndome paso, bajo a Ouroboros de un golpe. Un impacto directo. Mientras ella aprieta los dientes para aguantar, golpea no con su espada sino directamente con un Golpe de Palma. Bloqueo con un Escudo e intento contraatacar con un choque mágico, pero más rápido que eso, Alvelinde hace explotar la luz. Calor abrasador. Yo también descargo un choque mágico en su palma a pesar de todo.
+
+"¡Gah!"
+
+Ambos tomamos distancia. Yo también estoy algo chamuscado, pero he dañado adecuadamente su brazo izquierdo. Probablemente no sea utilizable en ataque y defensa por un tiempo. Aunque sus armas son sus alas más que sus extremidades.
+
+"¿Eres realmente humano? ¿Seguro que no eres uno de los nuestros?"
+
+"Guarda tus delirios para cuando estés dormida".
+
+Tras este breve intercambio, cargamos el uno contra el otro como por mutuo acuerdo. Las Lanzas de luz se reflejan repetidamente aquí y allá. Yo también vuelo de un lado a otro con reflejos de alta velocidad de Escudo en Escudo mientras cargo al ataque.
+
+Al dedicar a Nemea y Capella a la movilidad, supero su velocidad máxima. Leyendo la dirección de su movimiento, vuelo a su lado, forzándonos al combate cuerpo a cuerpo. Chocamos bastón y espada el uno contra el otro, y esquivo sus ataques de tajo con las alas por un pelo.
+
+Flanco. Espinilla. Mandíbula. Giro a Ouroboros y asesto tres ataques, provocando que un enorme miasma brote de su cuerpo.
+
+"¡Ooooooooh aaaaaaaah!"
+
+Un rugido y reflejos caóticos de luz. Lanzas de luz se entrecruzan arriba y abajo como una jaula. Extendiendo ambos brazos, ella desata ataques de tajo con las alas desde la izquierda y la derecha como para aplastarme. Cuando bloqueo los tajos con Nemea y Capella, las cintas de sus alas se envuelven alrededor de ellas como para capturarlas. Solo hay una intención detrás de esto. Si sus artes marciales y su velocidad superan las mías, entonces debo abandonar la defensa y desatar una técnica mayor.
+
+"¡Te tengo!"
+
+Partículas de luz convergen ante Alvelinde, que aprieta los dientes. Un ataque de nivel máximo. Yo también he desplegado ya un círculo mágico. Mi única opción es contraatacar con magia.
+
+Magia de Agua de 9º Nivel: Abyss Serpent. De un enorme círculo mágico, emerge la fauce de un dragón de agua de tamaño correspondiente. Y entonces, una luz blanca abrumadora choca contra ella.
+
+"¡Te evaporaré aquí mismo!"
+
+Alvelinde ruge. Incluso a través de la cabeza del dragón de agua, siento una sensación de ardor por el calor de la luz. El dragón de agua burbujea y se hincha desde dentro. Me cubro la cara con el brazo para proteger mis retinas de las quemaduras.
+
+Está bien. Estoy siguiendo claramente su forma a través de la visión de Caduceus. No dejaré que escape a ninguna parte.
+
+"¿Qué—?"
+
+Ante esa vista, los ojos de Alvelinde se agrandan y yo me río. Sí. La compatibilidad no es mala. El único defecto es que la finalización toma un poco de tiempo. Pero en este lugar, definitivamente puedo acabar con ella.
+
+Toda el agua de la Veta de Agua de Luz Mágica se reúne hacia la serpiente creada. Comprimiéndose y condensándose a alta densidad, la serpiente crece monstruosamente. Por supuesto. He vertido poder mágico equivalente a dos hechizos de magia de alto nivel.
+
+"¡Toma esto!"
+
+"¡O—oooooooh!"
+
+La serpiente abre su enorme fauce y avanza hacia Alvelinde, que todavía emite luz. Sus grandes mandíbulas la atrapan.
+
+Desgarra las alas de mariposa como trozos de papel, luego aplasta a Alvelinde con sus colmillos enormes. Ella despliega un muro de miasma alrededor de su cuerpo para resistir, pero eso también es inútil. La aplasta sin esfuerzo con la presión del agua, concentrando una inmensa fuerza hidráulica en un solo punto mientras carga directamente hacia la pared de la Veta de Agua de Luz Mágica.
+
+Una gran cascada con forma de dragón moviéndose lateralmente. Toda esa presión de agua converge únicamente sobre quien sea tragado.
+
+El cuerpo de la serpiente se contrae momentáneamente para aplicar la presión final, luego se expande. Siguiendo la finalización de la fórmula del hechizo, desencadena una explosión masiva de agua.
+
++++
 
