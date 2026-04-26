@@ -26,7 +26,7 @@ Aunque Vihera afirmaba haber huido del Imperio Bestir, eso no significaba que su
 
 De hecho, durante el tiempo en que el ejército de Mercurio todavía era llamado el ejército rebelde, mucha gente se había unido por admiración a ella.
 
-**Considering that, it wasn’t surprising for her to be entrusted with an important role during the return to the Imperial Capital.**
+> Considering that, it wasn’t surprising for her to be entrusted with an important role during the return to the Imperial Capital.
 
 Aunque Vihera se mostraba reacia, aceptó su papel tras la petición de Mercurio, Frizione y Shurus.
 
