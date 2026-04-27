@@ -6,7 +6,7 @@
     slug: "traducir-4"   
 ---
 
-## **167: Sumisión y la Batalla Decisiva de la Catástrofe**
+# **167: Sumisión y la Batalla Decisiva de la Catástrofe**
 
 **AN:** Actualizado el 30/2.
 
@@ -624,7 +624,7 @@ Próxima vez: "Tomando el control del gremio y el colapso del castillo celestial
 
 +++
 
-## **168: Tomando el control del gremio y la caída del castillo celestial**
+# **168: Tomando el control del gremio y la caída del castillo celestial**
 
 **Nota del autor:** Terminé de escribir la broma del Día de los Inocentes.
 
@@ -1266,7 +1266,7 @@ Gired sobrevivió por pura suerte, así que tendrá una oportunidad más de hace
 
 +++
 
-## **169: La liberación del Dragón del Desastre del Viento y el botín**
+# **169: La liberación del Dragón del Desastre del Viento y el botín**
 
 **Nota del autor:** Celoso de la popularidad del hechizo de destrucción.
 
@@ -1992,7 +1992,7 @@ ___
 
 +++
 
-## **169.5 – Leyenda Perdida, Episodio 3: El Dragón del Desastre del Viento**
+# **169.5 – Leyenda Perdida, Episodio 3: El Dragón del Desastre del Viento**
 
 **Nota del autor:** Escribí el calendario futuro y luego, de repente, hice una actualización sorpresa (ya estoy trabajando en la historia principal).
 
@@ -2182,7 +2182,7 @@ Además, no hay Leyendas Perdidas para los otros Dragones del Desastre.
 
 +++
 
-## **170: Interrogatorio y un fragmento de la verdad**
+# **170: Interrogatorio y un fragmento de la verdad**
 
 **Nota del autor:** Esto marca el final del Volumen 11. El número de capítulos por volumen ha ido disminuyendo gradualmente.
 
@@ -2848,7 +2848,7 @@ He cambiado 'Sacerdotisa Princesa' -> 'Princesa Doncella del Santuario'. Siento 
 
 +++
 
-## **170.1 Historia secundaria: Shindo Rin**
+# **170.1 Historia secundaria: Shindo Rin**
 
 **Nota del autor:** Esta es una historia hipotética: "¿Qué pasaría si Jin tuviera una hermana menor?"
 
@@ -3506,7 +3506,7 @@ Basándonos en las respuestas, hemos decidido optar por la opción A.
 
 +++
 
-## **170.5: Sobre el Alma**
+# **170.5: Sobre el Alma**
 
 **Nota del autor:** Este es el primero de dos capítulos publicados juntos.
 
@@ -3748,7 +3748,7 @@ Dado que las explicaciones pueden volverse tediosas, quiero mantenerlas lo más 
 
 +++
 
-## **Personajes del Volumen 11**
+# **Personajes del Volumen 11**
 
 **Nota del autor:** Segunda parte de una publicación de dos episodios.
 
@@ -3908,7 +3908,7 @@ Las publicaciones continuarán los días terminados en 0 como de costumbre. Se h
 
 +++
 
-## **171: Reconstrucción del Castillo del Cielo y planes futuros**
+# **171: Reconstrucción del Castillo del Cielo y planes futuros**
 
 **Nota del autor:** Por fin. Finalmente. Ya está aquí. El arco del Imperio Carmesí.
 
@@ -4568,7 +4568,7 @@ La próxima vez, comenzaremos directamente en la frontera.
 
 +++
 
-## **172: En camino y llegada a la primera ciudad**
+# **172: En camino y llegada a la primera ciudad**
 
 **Nota del autor:** Comenzamos aproximadamente desde el punto en que entramos en el Imperio Carmesí.
 
@@ -5224,7 +5224,7 @@ Ya es demasiado tarde, y ya no tengo ganas de arreglarlo.
 
 +++
 
-## **173: Haniwa y la prueba de fuerza**
+# **173: Haniwa y la prueba de fuerza**
 
 Después de comer, paseamos por «Pueblo Tokiwa» para bajar la comida.
 
@@ -5854,7 +5854,7 @@ Hacer que luche con un arma que normalmente no usa, con todas sus habilidades ú
 
 +++
 
-## **174: Viajando entre ciudades y la Primera Princesa**
+# **174: Viajando entre ciudades y la Primera Princesa**
 
 **Nota del autor:** Había planeado dividir el arco del Imperio Carmesí en una primera y segunda mitad porque parecía que no terminaba de escribirlo, pero parece que lograré concluirlo después de todo. Así que he decidido terminarlo solo dentro del Volumen 12.
 
@@ -6496,7 +6496,7 @@ Séptima Princesa: Ruby
 
 +++
 
-## **175: Exploración de la mina abandonada y el miasma**
+# **175: Exploración de la mina abandonada y el miasma**
 
 **Nota del autor:** Esta es una posdata al capítulo anterior, pero Jonathan es un tipo de manzana. Tiene hermanos de la misma madre.
 
@@ -7132,7 +7132,7 @@ ___
 
 +++
 
-## **176: El Espíritu del Miasma y la Ciudad del Segundo Nivel**
+# **176: El Espíritu del Miasma y la Ciudad del Segundo Nivel**
 
 **Nota del autor:** Por fin, he terminado de escribir el Volumen 12.
 
@@ -7746,7 +7746,7 @@ El Héroe es solo un saco de boxeo, la mayoría de los esclavos son mujeres, y C
 
 +++
 
-## **177: El Tercer Príncipe y la llegada a la Capital Imperial**
+# **177: El Tercer Príncipe y la llegada a la Capital Imperial**
 
 **Nota del autor:** Como dice el título, llegamos a la Capital Imperial. ¡Por fin se revela el nombre de la Capital Imperial!
 
@@ -8364,7 +8364,7 @@ ___
 
 +++
 
-## **178: Las circunstancias de la familia imperial y una petición**
+# **178: Las circunstancias de la familia imperial y una petición**
 
 **Nota del autor:** Las predicciones futuras para Ruby-chan en la sección de comentarios son demasiado crueles.
 
@@ -8934,7 +8934,7 @@ ___
 
 +++
 
-## **179: Disculpa fallida y evolución**
+# **179: Disculpa fallida y evolución**
 
 Después de pasar media tarde recorriendo el museo, cenamos fuera y regresamos a la posada.
 
@@ -9542,7 +9542,7 @@ Y además, ¿qué está haciendo Su Majestad el Emperador?
 
 +++
 
-## **180: Borrado de pruebas y la mente maestra**
+# **180: Borrado de pruebas y la mente maestra**
 
 **AN:** El título suena ominoso, pero Jin-kun no termina en un aprieto.
 
@@ -10198,7 +10198,7 @@ Aparece de repente y se marcha la próxima vez.
 
 +++
 
-## **181: Cae el telón y una invitación**
+# **181: Cae el telón y una invitación**
 
 **Nota del autor:** Últimamente, debido a diversas circunstancias mentales, mi escritura apenas ha progresado.
 
@@ -10832,7 +10832,7 @@ Jin es al menos mejor eligiendo a sus objetivos, pero lo que hace es bastante ex
 
 +++
 
-## **182: La niebla de la confusión y la aldea elfa**
+# **182: La niebla de la confusión y la aldea elfa**
 
 **Nota del autor:** Rose no está muerta. Su cuerpo está ileso. Su mente aún no se ha quebrado.
 
@@ -11492,7 +11492,7 @@ A partir de la próxima vez, habrá capítulos de revelaciones consecutivas. Se 
 
 +++
 
-## **183: El Narrador y el Emperador**
+# **183: El Narrador y el Emperador**
 
 **Nota del autor:** Parece que después de todo voy a tener que tomarme un descanso en cuanto al progreso. Apenas he podido escribir durante casi un mes.
 
@@ -12106,7 +12106,7 @@ Después de todo, debería haber decidido el contenido de este capítulo primero
 
 +++
 
-## **184: Recuerdos de una vida pasada y la verdad**
+# **184: Recuerdos de una vida pasada y la verdad**
 
 **Nota del autor:** Continúan los capítulos explicativos.
 
@@ -12784,7 +12784,7 @@ Juzgué que escribirlo en el formato de historia normal se acercaría a un volum
 
 +++
 
-## **184.5 – Tradición oral, Capítulo 4: Las circunstancias de Scarlet**
+# **184.5 – Tradición oral, Capítulo 4: Las circunstancias de Scarlet**
 
 **Nota del autor:** Como se anunció, esta es la tradición oral de Scarlet.
 
@@ -13496,7 +13496,7 @@ Y el equipo que tenía entonces, la "Espada del General Goblin (Rara)", habría 
 
 +++
 
-## **185: El Árbol del Mundo y el Dominio de la Diosa**
+# **185: El Árbol del Mundo y el Dominio de la Diosa**
 
 Tras escuchar la historia de la vida de Scarlet, comprendí que muchas de las preguntas e inquietudes que tenía, tanto antes como después de llegar al Imperio Carmesí, se habían resuelto.
 
@@ -14084,7 +14084,7 @@ Si piensas en el Árbol del Mundo científicamente, está diciendo cosas bastant
 
 +++
 
-## **186: Eligiendo el Árbol del Mundo y regresando a casa**
+# **186: Eligiendo el Árbol del Mundo y regresando a casa**
 
 Había declarado que encontraríamos a la última persona con la habilidad \<Héroe> en un mes, pero incluso si no lo lográbamos en ese tiempo, nadie perdería nada realmente. Así que no establecimos ninguna penalización ni nada parecido.
 
@@ -14674,7 +14674,7 @@ Las presentaciones de los personajes probablemente se publicarán dentro de poco
 
 +++
 
-## **186.5: La oficina de Scarlet**
+# **186.5: La oficina de Scarlet**
 
 **Nota del autor:** Este es material suplementario relacionado con Scarlet.
 
@@ -15056,7 +15056,7 @@ Y Ruby-chan no habla.
 
 +++
 
-## **12 Personajes**
+# **12 Personajes**
 
 **Nota del autor:** Publicado simultáneamente con una historia corta relacionada con Scarlet.
 
@@ -15190,7 +15190,7 @@ No hay planes para que aparezcan por el momento...
 
 +++
 
-## **187: Buscando al Héroe y la Ciudad del Agua**
+# **187: Buscando al Héroe y la Ciudad del Agua**
 
 **Nota del autor:** La serialización se ha reanudado.
 
