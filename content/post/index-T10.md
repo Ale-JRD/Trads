@@ -6,7 +6,7 @@
     slug: "traducir-10"
 ---
 
-## **¡Tras descifrar y utilizar desesperadamente un misterioso libro de magia, creé un harén de esclavas! Ídolos populares, compañeras de clase, colegialas... ¡todas estas hermosas chicas son mías!**
+# **¡Tras descifrar y utilizar desesperadamente un misterioso libro de magia, creé un harén de esclavas! Ídolos populares, compañeras de clase, colegialas... ¡todas estas hermosas chicas son mías!**
 
 **Episodio 01: Algo heredado de un pariente anciano**
 
