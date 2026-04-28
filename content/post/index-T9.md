@@ -6,7 +6,7 @@
     slug: "traducir-9"   
 ---
 
-## **Boy Saintess – Volumen 2, Capítulo 1**
+# **Boy Saintess – Volumen 2, Capítulo 1**
 
 Cuando dije: "¡Hasta que seas lo suficientemente fuerte como para derrotar al Rey Demonio, yo seré quien te proteja...!", Lian Qi puso una expresión de duda.
 
@@ -118,7 +118,7 @@ En ese momento, no solo estaba conmovido, sino que gritaba internamente. Hoy es 
 
 +++
 
-## **2**
+# **2**
 
 Qifeng me había tendido una trampa. Lian Qi me miraba con sospecha.
 
@@ -240,7 +240,7 @@ Entonces, con un vestido de Lolita nuevo frente a mí, ¿me lo pondré o no?
 
 +++
 
-## **3**
+# **3**
 
 "¿Qué es esto? ¿Pergaminos?" Lian Qi abrió la caja de regalo, dejando caer un montón de pergaminos enrollados.
 
@@ -360,7 +360,7 @@ De hecho, nos blandimos las coletas el uno al otro durante unos momentos. Despu�
 
 +++
 
-## **4**
+# **4**
 
 El hecho de que la identidad de Lian Qi como chica fuera descubierta por Qifeng me enseñó una valiosa lección. Incluso si puedo confiar en mi talento natural para usar un traje de baño de mujer sin que nadie descubra que soy un chico, no puedo bajar la guardia. Comparada con la Hermana Ejielia, la perspicaz Qifeng es mucho más peligrosa.
 
@@ -420,7 +420,7 @@ Levanté el dobladillo de la falda y di una vuelta frente al espejo, llena de en
 
 +++
 
-## **5**
+# **5**
 
 A diferencia de la vergüenza que sentía al usar un traje de baño, ponerme el pequeño vestido Lolita incluso me hizo olvidar que era un chico.
 
@@ -512,7 +512,7 @@ Lian Qi tomó un sorbo de té con una sonrisa significativa en los labios, lo qu
 
 +++
 
-## **6**
+# **6**
 
 Lian Qi bebía su té con total calma, sin sospechar que Qifeng ya había descubierto su identidad como chica.
 
@@ -628,7 +628,7 @@ La hermana Ejielia me miró, lo señaló y dijo: —Esta cosa se hizo amontonand
 
 +++
 
-## **7**
+# **7**
 
 Cuando la hermana Ejielia mencionó que fue forjado con fuego de dragón, me di cuenta de quién había enviado este trono dorado...
 
@@ -704,7 +704,7 @@ Además... fui un poco codiciosa y pedí dos deseos. ¡También deseé que Lian 
 
 +++
 
-## **8**
+# **8**
 
 Por fin pude comer el pastel de cumpleaños a mi antojo, y lo mejor fue que Qifeng lo hizo ella misma. Para ser sincera, nunca pensé que tuviera el atributo de 'doncella de cocina'. En todo el tiempo que la conozco, básicamente he sido yo quien ha cocinado para ella... espera, ¿no significa eso que yo tengo el atributo de 'doncella de cocina'...? Ejem, soy un chico.
 
@@ -806,7 +806,7 @@ La hermana Ejielia y yo hablamos al unísono, luego nos miramos.
 
 +++
 
-## **9**
+# **9**
 
 "¿Eh? ¿De verdad la gente cambia de género tras transmigrar en la vida real?" dijo Lian Qi sorprendida.
 
@@ -892,7 +892,7 @@ La mirada de mi hermana se dirigió a Qifeng, que estaba a mi lado. Cerró el pu
 
 +++
 
-## **10**
+# **10**
 
 ¿Llamaron a Qifeng? Vi cómo se señalaba la nariz, con cara de no entender nada.
 
@@ -1032,7 +1032,7 @@ Vi a Qifeng saltar frente a un árbol grande. Puso una mano en el árbol y activ
 
 +++
 
-## **11**
+# **11**
 
 "La diferencia fundamental entre la magia y el poder mágico, eso es correcto. Ya sea el Tejido Mágico o el Armamento Mágico, son solo lo más básico de lo básico. Dominar esto no significa que seas un verdadero mago. Por eso algunos estudiantes de la academia de magia que carecen de imaginación o fuerza de voluntad no pueden crear magia, y terminan con un certificado de finalización en lugar de un diploma de graduación", me explicó suavemente la hermana Ejielia.
 
@@ -1118,7 +1118,7 @@ Me puse en cuclillas al lado de Qifeng. Ella me miró de reojo y luego bajó la 
 
 +++
 
-## **12**
+# **12**
 
 Qifeng es una chica tan tonta. Dijo que nadie podría quitarme de su lado, pero ¿no fue sometida en el momento en que fue atada por las cadenas? Al verla ahora, arrodillada en la hierba humillada, atada por las cadenas, me siento avergonzado por ella. ¿Y me dice tímidamente que no la mire? Por favor, entonces haz que las cadenas desaparezcan. ¡Es tu magia! ¿Por qué te atas a ti misma?
 
@@ -1218,7 +1218,7 @@ Qifeng and I stood side by side, watching her silently.
 
 +++
 
-## **13**
+# **13**
 
 The Explosion Magic with the “BOOM—!” feeling…? I pictured it in my mind and roughly understood.
 
@@ -1308,7 +1308,7 @@ Lian Qi sonrió y se rascó la cabeza. Pensé que se sentiría decepcionada, per
 
 +++
 
-## **14**
+# **14**
 
 "¿¿¿Eh eh eh??? Hermana, ¿quieres que Lian Qi se inscriba en la Academia de Magia ahora? ¿Y que consiga el primer puesto en el próximo festival de graduación?"
 
@@ -1430,7 +1430,7 @@ Lian Qi hizo una pausa por un momento y luego dijo:
 
 +++
 
-## **15**
+# **15**
 
 —¿Ah...? ¿Podría ser incluso más aterrador que el entrenamiento diabólico?
 
@@ -1552,7 +1552,7 @@ Nunca hubiera pensado que podría ser tan ingenioso en un momento crítico.
 
 +++
 
-## **16**
+# **16**
 
 Pero... aunque me sentía aliviado de que mi identidad como chico no hubiera sido expuesta, empecé a preocuparme por los ojos de Lian Qi. Habían recibido el destello de la Luz Sagrada...
 
@@ -1676,7 +1676,7 @@ Hablando de eso, no pude evitar recordar cuando *esa persona* me enseñó a ju
 
 +++
 
-## **17**
+# **17**
 
 "¿Quién te hizo parecer que necesitas protección desde que naciste?", me dijo Lian Qi, con el rostro sonrojado por el vapor que se arremolinaba.
 
@@ -1780,7 +1780,7 @@ Después de un rato, la campana aún no dejaba de sonar. Vi a estudiantes de amb
 
 +++
 
-## **18**
+# **18**
 
 "¿Tu magia ya ha alcanzado el tercer nivel? Con razón. El nivel promedio de los estudiantes que acaban de ingresar a la División Superior es el segundo nivel".
 
@@ -1892,7 +1892,7 @@ Me tendió el uniforme femenino.
 
 +++
 
-## **19**
+# **19**
 
 Lian Qi sostuvo el uniforme frente a mí. —¿Por qué dudas? Date prisa y cámbiate.
 
@@ -2052,7 +2052,7 @@ Miré a Lian Qi con el rostro encendido, estiré la mano y le arreglé la corbat
 
 +++
 
-## **20**
+# **20**
 
 Lian Qi se quedó mirando fijamente, observándome en silencio.
 
@@ -2180,7 +2180,7 @@ Tenía el presentimiento de que Lian Qi había rechazado su invitación sin duda
 
 +++
 
-##  **21**
+#  **21**
 
 Aquella noche del Festival de Navidad, estaba mirando los pasteles de cumpleaños en el escaparate de una tienda cuando se me acercaron tres hombres borrachos con intención de ligar conmigo. En ese momento, fue Lian Qi quien se puso frente a mí y los ahuyentó.
 
@@ -2282,7 +2282,7 @@ Mientras hablaba, la pluma en mi mano no dejaba de garabatear sobre el papel.
 
 +++
 
-## **22**
+# **22**
 
 ¡Lian Qi es la peor...! ¡Respirándome abiertamente en el oído en clase! Solo estábamos susurrando, ¿realmente tenía que enviarme tantos soplos cosquilleantes al oído? ¡Uf...! Ni siquiera sé si lo hacía a propósito...
 
@@ -2394,7 +2394,7 @@ Ella soltó una risita y mantuvo su brazo sobre mi hombro.
 
 +++
 
-## **23**
+# **23**
 
 "E-Espera, después de cenar, no olvides estudiar cuando volvamos al dormitorio, ¿vale?", le dije.
 
@@ -2482,7 +2482,7 @@ Antes de que pudiera terminar, Lian Qi le estampó la cara contra los espaguetis
 
 +++
 
-## **24**
+# **24**
 
 Lian Qi se movió muy rápido. Para cuando giré la cabeza, ella ya había estrellado la cabeza del chico contra sus fideos.
 
@@ -2588,7 +2588,7 @@ Me pregunté si debería contarle esto a la hermana Ejielia.
 
 +++
 
-## **25**
+# **25**
 
 —Realmente no se puede juzgar a la gente por su apariencia —le dije a Lian Qi mientras caminábamos de regreso al dormitorio.
 
@@ -2704,7 +2704,7 @@ De todos modos... Lian Qi, lamento de verdad ocultar el hecho de que soy un chic
 
 +++
 
-##  **26**
+#  **26**
 
 —¡Fei'er—!
 
@@ -2820,7 +2820,7 @@ Si solo era lavarle el pelo, no debería haber problema. ¡Mientras no me pida q
 
 +++
 
-## **27**
+# **27**
 
 Cuando puse un poco de champú sobre la cabeza de Lian Qi, soltó un pequeño y tierno "¡Ah!", probablemente por la sensación fría del champú. Se estremeció ligeramente.
 
@@ -2926,7 +2926,7 @@ Incluso olvidé por completo cómo me "intimida" a mí.
 
 +++
 
-## **28**
+# **28**
 
 "No lo llamaría sentido de la justicia, simplemente no soporto verlo", dijo Lian Qi con una sonrisa.
 
@@ -3084,7 +3084,7 @@ Preguntó Lian Qi, desconcertada, al ver que solo echaba un vistazo y me marchab
 
 +++
 
-## **29**
+# **29**
 
 Me sentí muy renovada después de la ducha. Me puse un camisón blanco puro y salí del baño tarareando una melodía. Lo que más me alivió fue que la foto no revelaba ni el más mínimo indicio de que yo fuera un chico.
 
@@ -3212,7 +3212,7 @@ Esta mañana, aprendí algo nuevo...
 
 +++
 
-## **30**
+# **30**
 
 ¡Aprendí algo nuevo en la mañana del segundo día de clases, sí, sí...! Realmente aprendí una nueva postura: la postura para despertar a alguien.
 
@@ -3296,7 +3296,7 @@ Mientras seguía acariciando mi muslo, Lian Qi sopló suavemente una bocanada de
 
 +++
 
-## **31**
+# **31**
 
 ¡Vaya...!
 
@@ -3404,7 +3404,7 @@ Pasó a su lado de un empujón y me arrastró con ella. Ninguno de sus secuaces 
 
 +++
 
-## **32**
+# **32**
 
 Lian Qi me llevó de la mano mientras salíamos del castillo. Muchos estudiantes se giraban para mirarnos por el camino. ¿Sería porque nuestra pareja llamaba demasiado la atención?
 
