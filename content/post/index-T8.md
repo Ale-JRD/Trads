@@ -6,7 +6,7 @@
     slug: "traducir-8"   
 ---
 
-## **Boy Saintess – Volumen 1, Capítulo 1**
+# **Boy Saintess – Volumen 1, Capítulo 1**
 
 Era un día hermoso y soleado cuando el carruaje real se detuvo ante mi puerta y la Guardia Real rodeó toda la casa, sellándola por completo.
 
@@ -184,7 +184,7 @@ El caso es que…
 
 +++
 
-## **2**
+# **2**
 
 Lo siento, soy un chico. Siento haber engañado a todos los fieles seguidores. ¡Lo siento! No solo engañé a Tristine; engañé a todas mis hermanas.
 
@@ -318,7 +318,7 @@ Después de soportar finalmente esa corta caminata, escapé al carruaje y suspir
 
 +++
 
-## **3**
+# **3**
 
 —Hermanita Fei'er, pareces un poco nerviosa, ¿verdad? Tan nerviosa que tienes la cara toda roja.
 
@@ -452,7 +452,7 @@ Cuanto más lo pensaba, más horrorizado me sentía. ¿Podría ser—
 
 +++
 
-## **4**
+# **4**
 
 ¿Podría ser que el otro mundano no sea un chico?
 
@@ -598,7 +598,7 @@ I smiled and said to her, “Because I’ve seen something similar once before.�
 
 +++
 
-## **5**
+# **5**
 
 I really had seen one, but it was several years ago.
 
@@ -742,7 +742,7 @@ La mayor alegría de cocinar para alguien es ver cómo se come hasta el último 
 
 +++
 
-## **6**
+# **6**
 
 Después de la comida, lavé los platos y utensilios hasta que quedaron impecables. Al verlos colocados de nuevo en la alacena, exactamente en la misma posición que antes, solté un suspiro de alivio.
 
@@ -874,7 +874,7 @@ Involuntariamente apreté con más fuerza la bandeja redonda que sostenía. Ya q
 
 +++
 
-## **7**
+# **7**
 
 Después del desayuno, y tras obtener el permiso de la Heroína, partí en busca de mi hermana.
 
@@ -1006,7 +1006,7 @@ Se ajustó el ala del sombrero y esbozó una leve sonrisa.
 
 +++
 
-## **8**
+# **8**
 
 Le sonreí. —Lo sabía. Sabía que mi hermana mayor estaría interesada en el ser de otro mundo de la profecía que puede derrotar a *esa persona*.
 
@@ -1116,7 +1116,7 @@ No pude evitar dar un suspiro de alivio. Menos mal, solo fue una falsa alarma.
 
 +++
 
-## **9**
+# **9**
 
 Vi cómo Aijelia colocaba el sable largo conjurado sobre la mesa de centro de cristal. Mi corazón dio un vuelco: ¡cielos!, ¿la mesa no se derrumbó?
 
@@ -1274,7 +1274,7 @@ I thought for a moment, then decided to just lick my finger, apply a bit of Holy
 
 +++
 
-## **10**
+# **10**
 
 At lunchtime, the Hero looked at me while eating her goblin kidney beans. “What’s that in your hand?”
 
@@ -1358,7 +1358,7 @@ When I get back, I’ll put the swimsuit back without anyone noticing, making su
 
 +++
 
-## **11**
+# **11**
 
 I’m a boy, yet I was wearing such a revealing swimsuit. The subtle sense of transgression was suffocating.
 
@@ -1460,7 +1460,7 @@ Pero ahora que sé que soy un chico… ¿empezarán a gustarme las chicas?
 
 +++
 
-## **12**
+# **12**
 
 Al día siguiente, llegó el momento de mi viaje a las aguas termales con la hermana mayor Aijelia.
 
@@ -1552,7 +1552,7 @@ Ya me he puesto el traje de baño. Ahora me quedo mirando la puerta del baño. S
 
 +++
 
-## **13**
+# **13**
 
 Armándome de valor, quité el cerrojo de la puerta.
 
@@ -1684,7 +1684,7 @@ Ni siquiera yo puedo explicar por qué la Santa de la profecía de la Luz Sagrad
 
 +++
 
-## **14**
+# **14**
 
 Descubrí que usar un traje de baño en público no era tan difícil como me había imaginado.
 
@@ -1792,7 +1792,7 @@ Al segundo siguiente, me abrazó. Me rodeó con sus brazos. Me apretó fuerte en
 
 +++
 
-## **15**
+# **15**
 
 "Escúchame, te sentirás mejor si bebes más agua caliente", me dijo seriamente la Hermana Mayor Aijelia.
 
@@ -1880,7 +1880,7 @@ Incluso después de pasar toda una noche juntos, la hermana mayor Aijelia no des
 
 +++
 
-## **16**
+# **16**
 
 Que Aijelia no descubriera que yo era un chico no fue solo una casualidad.
 
@@ -1988,7 +1988,7 @@ Los observé con atención. Me pregunto qué se sentirá al montar a caballo. De
 
 +++
 
-## **17**
+# **17**
 
 La petición de Lian Qi me pilló completamente desprevenido. Después de la villa, la hermosa chica de pelo blanco y aprender magia, ¿su cuarta petición era realmente un unicornio...?
 
@@ -2088,7 +2088,7 @@ Ella es la "Santa de la Espada Inigualable" Li Wei, una de las tres únicas pers
 
 +++
 
-## **18**
+# **18**
 
 Con el brazo de la Santa Espada alrededor de mi cintura, fui empujada hacia adelante. Hablando de su rencor contra los dragones, recordé que la Hermana Mayor Li Wei también tenía otro título, el "Compendio de Matanza de Dragones". Pasó su vida estudiando varios métodos para matar dragones; claramente, era más que un simple rencor.
 
@@ -2204,7 +2204,7 @@ Es genial contar con la ayuda de mis hermanas mayores. Suspiré aliviada. Lian Q
 
 +++
 
-## **19**
+# **19**
 
 La última vez que me probé las medias negras frente al espejo, me parecieron demasiado transparentes. En ese momento, ¡me decidí a comprar un par con la tela más gruesa...!
 
@@ -2280,7 +2280,7 @@ En cualquier caso, no hay tiempo que perder. Debo darme prisa en volver. ¿Tal v
 
 +++
 
-## **20**
+# **20**
 
 Se estaba haciendo tarde; tuve que alquilar un carruaje para que me llevara de vuelta a la mansión. Caminando por la calle, no pude evitar acelerar el paso. Sin embargo, mientras caminaba, de repente me detuve en seco.
 
@@ -2360,7 +2360,7 @@ Después de eso, lo dejé ir. Parecía como si acabara de recuperar la vida. En 
 
 +++
 
-## **21**
+# **21**
 
 Inmediatamente pedí un carruaje para que me llevara de vuelta a la Mansión Fontainebleau. El viaje fue largo y, para cuando regresé, el cielo ya se había oscurecido.
 
@@ -2434,7 +2434,7 @@ Después de terminar de "burlarse" de mí, volvió a sentarse en el sofá con un
 
 +++
 
-## **22**
+# **22**
 
 Tras servirle la cena a Lian Qi, regresé a la sala para llevarme la tetera y las demás cosas para lavar. En ese momento, miré de reojo sin querer la esquina rota de la mesa de centro de cristal.
 
@@ -2548,7 +2548,7 @@ Mmm… Como sirvienta, también tengo que satisfacer todas las diversas peticion
 
 +++
 
-## **23**
+# **23**
 
 Un día después, me desperté por la mañana y, con el cepillo de dientes en la boca, descubrí que—vaya, el unicornio estaba realmente justo en la entrada de la mansión, alojado en una sencilla jaula de madera.
 
@@ -2630,7 +2630,7 @@ Temiendo que me mordiera, tímidamente no me atreví a dar un paso más. Lian Qi
 
 +++
 
-## **24**
+# **24**
 
 Solo hay dos posibilidades para ser rechazado por un unicornio: una es no ser una chica pura, y la otra es ser un chico. Lian Qi no sospechó que yo fuera un chico. Debería estar agradecido, así que ¿por qué no puedo sentirme feliz en absoluto?
 
@@ -2766,7 +2766,7 @@ Como era de esperar, la hermana Tristine comenzó a especular de nuevo sobre las
 
 +++
 
-## **25**
+# **25**
 
 Después del desayuno, preparé una tetera de té negro para Lian Qi. Aunque lo prefiere a temperatura ambiente, poco a poco estaba empezando a aceptar el té caliente.
 
@@ -2920,7 +2920,7 @@ Hasta que un día, pueda comprender que este mundo vale la pena ser salvado.
 
 +++
 
-## **26**
+# **26**
 
 Arrastré a Lian Qi a un viaje de pesca espontáneo. —¡Espera un minuto! ¿Por qué vamos a pescar de repente? —preguntó, luciendo completamente desconcertada mientras la sacaba por la puerta principal. Esta era una ocasión rara; podía contar con los dedos de una mano el número de veces que Lian Qi había salido desde que llegó a la Mansión Fontainebleau.
 
@@ -3042,7 +3042,7 @@ Dudó un momento, pero aun así me dio la mano. Vi cómo salía con cuidado del 
 
 +++
 
-## **27**
+# **27**
 
 —Oye, tú... lo has hecho a propósito otra vez, ¿verdad?
 
@@ -3146,7 +3146,7 @@ Se quedó en silencio un rato antes de lograr hablar de nuevo.
 
 +++
 
-## **28**
+# **28**
 
 "¿No… no abrocha? ¿Cómo puede ser?"
 
@@ -3274,7 +3274,7 @@ Sostuve el manual y la guié línea por línea. En ese momento, sentí una verda
 
 +++
 
-## **29**
+# **29**
 
 Aunque era Lian Qi quien había despertado su magia, yo estaba más nerviosa que ella. Me sentía muy avergonzada. Si tan solo la hermana Ajelia estuviera aquí, podría guiar a Lian Qi sobre qué hacer... Pero luego pensé, ¡no, no! Lian Qi lleva ropa de mujer ahora mismo. ¿No expondría eso el hecho de que en realidad es una chica? ¡Uwah...! Esto realmente me está poniendo ansiosa. ¡Me preocupa tanto que se desmaye por el agotamiento mágico!
 
@@ -3376,7 +3376,7 @@ Lian Qi asintió nerviosa. En este punto, yo era la única que podía encubrirla
 
 +++
 
-## **30**
+# **30**
 
 ¿Cómo podía ser tal coincidencia? Lian Qi acababa de cambiarse a ropa de mujer porque la suya estaba empapada, y Qifeng apareció justo después.
 
@@ -3528,7 +3528,7 @@ Su coleta era su debilidad. Este truco nunca fallaba. Suspiro, si tan solo *esa
 
 +++
 
-## **31**
+# **31**
 
 Qifeng mencionó un ataque sorpresa y no alertar al enemigo, pero yo seguía sin tener idea de para qué me quería.
 
@@ -3628,7 +3628,7 @@ Aunque estaba de espaldas y no podía ver su expresión, sentía que esa no era 
 
 +++
 
-## **32**
+# **32**
 
 Qifeng tenía los ojos vendados con mis medias negras. Por fin podía cambiarme de ropa en paz.
 
@@ -3764,7 +3764,7 @@ El cardenal Rodrigo apareció ante nosotros, hablando con una voz baja y calmada
 
 +++
 
-## **33**
+# **33**
 
 Para ser sincero, mi primera impresión del obispo Rodrigo fue que no podía estar vinculado a alguien que pervierte la justicia por sobornos. La corrupción de ese tipo de personas suele empezar por su cuerpo. Pero él era como un granjero viejo, robusto y de aspecto honesto. Y a pesar de su alto cargo, manejaba los asuntos con una compostura inquebrantable; su actitud calmada de hace un momento era un ejemplo perfecto.
 
@@ -3880,7 +3880,7 @@ Al mirar a los tres Caballeros Templarios, cada uno de ellos tenía una expresi�
 
 +++
 
-## **34**
+# **34**
 
 Las personas que me dejaron la impresión más profunda esta noche fueron probablemente... esos tres Caballeros Templarios. Fueron espectadores todo el tiempo. Al principio, se daban aires de todo tipo, como ser dominantemente geniales, lanzar amenazas severas, y demás...
 
@@ -3982,7 +3982,7 @@ Permanecí en silencio, sosteniendo mi taza de té y observándolo con calma.
 
 +++
 
-## **35**
+# **35**
 
 No me sorprendió en absoluto que Qifeng no hubiera encontrado nada; la otra parte realmente estaba ocultando las cosas muy profundamente.
 
@@ -4102,7 +4102,7 @@ Yo también me giré para mirar al obispo Rodrigo, para ver qué más tenía que
 
 +++
 
-## **36**
+# **36**
 
 El obispo Rodrigo se enfrentó a la pared hecha de oro y, de repente, se desplomó suavemente en el suelo.
 
@@ -4194,7 +4194,7 @@ Oí que Qifeng me decía con una sonrisa: —Fuiste tú quien derribó a este gr
 
 +++
 
-## **37**
+# **37**
 
 Después, abandoné aquel lugar.
 
@@ -4358,7 +4358,7 @@ Entonces, se acarició su propia mejilla con una expresión de felicidad: "Solo 
 
 +++
 
-## **38**
+# **38**
 
 Miré por la ventana del carruaje, pero estaba completamente oscuro y no podía ver nada.
 
@@ -4488,7 +4488,7 @@ No pude ver ni rastro de enojo en su rostro. En cambio, tenía una sonrisa triun
 
 +++
 
-## **39**
+# **39**
 
 ¿Cómo terminaron las cosas así?
 
@@ -4652,7 +4652,7 @@ La pinché con lo último que me quedaba de fuerzas y descubrí que ¿no reaccio
 
 +++
 
-## **40**
+# **40**
 
 Lian Qi y yo nos desplomamos en el sofá. Yo estaba exhausta de tanto resistirme. Ella acababa de despertar su magia esta mañana; incluso un genio se desmayaría por el sobreesfuerzo. Esta sensación… es como si ambas hubiéramos perecido juntas.
 
@@ -4792,7 +4792,7 @@ Hablando de eso, Lian Qi ni siquiera se atreve a entrar en una tienda de lencer�
 
 +++
 
-## **41**
+# **41**
 
 Lian Qi se puso de pie sobre el sofá y, justo frente a mí, levantó con aire de superioridad el dobladillo de su camisón. Vi un destello blanco, ¡estaba tan cerca! Rápidamente giré la cara hacia un lado; casi lo había visto todo.
 
@@ -4944,7 +4944,7 @@ Estaba hablando de nuevo en términos que yo no entendía.
 
 +++
 
-## **42 – Especial de Navidad (Parte 1)**
+# **42 – Especial de Navidad (Parte 1)**
 
 Tal vez porque me desperté al mediodía, sentí que el día pasó volando. En un abrir y cerrar de ojos, ya era de noche. Me llevé a Lian Qi en nuestro viaje a la Capital de la Llama Sagrada para ver el Festival de la Santa.
 
@@ -5042,7 +5042,7 @@ Pensar de esta manera, realmente no tengo remedio...
 
 +++
 
-## **43 – Especial de Navidad (Parte 2)**
+# **43 – Especial de Navidad (Parte 2)**
 
 Tomé la mano de Lian Qi y me metí en la tienda. Después de todo, habiendo fingido ser una chica durante quince años, ya estaba acostumbrado; ir de la mano con otra chica no me parecía para nada inapropiado.
 
@@ -5178,7 +5178,7 @@ Originalmente pensé que diría que no, pero en cambio dijo:
 
 +++
 
-## **44 – Especial de Navidad (Parte 3)**
+# **44 – Especial de Navidad (Parte 3)**
 
 Descubrí...
 
@@ -5294,7 +5294,7 @@ En realidad, hoy es mi cumpleaños...
 
 +++
 
-## **45 – Especial de Navidad (Parte 4)**
+# **45 – Especial de Navidad (Parte 4)**
 
 Realmente no importaba si no podía comer pastel. Después de todo, asistía al Festival de la Santa para ayudar a Lian Qi a integrarse en nuestro mundo, no para celebrar mi propio cumpleaños.
 
@@ -5438,7 +5438,7 @@ Sacó una mano del bolsillo de su abrigo; estaba pálida, sin rastro de sangre. 
 
 +++
 
-## **46 – Especial de Navidad (Parte 5)**
+# **46 – Especial de Navidad (Parte 5)**
 
 *Esa persona*—sonrió, ¡revelando un par de colmillos que parecían lo suficientemente afilados como para sacar sangre! Su simple "cuánto tiempo sin vernos" me provocó un escalofrío por la espalda.
 
@@ -5604,7 +5604,7 @@ Su "feliz cumpleaños" me provocó un escalofrío de puro terror por la columna 
 
 +++
 
-## **47 – Especial de Navidad (Parte 6)**
+# **47 – Especial de Navidad (Parte 6)**
 
 Nunca había visto a una persona tan malvada. ¿Por qué... por qué me sonreiría después de hacer algo tan monstruoso?
 
@@ -5720,7 +5720,7 @@ En serio... no tuve otra opción que ayudar a la hermana Ejielia y dejar que su 
 
 +++
 
-## **48 – Epílogo**
+# **48 – Epílogo**
 
 El martillo de mango largo y blanco puro giraba en mi mano con la misma facilidad que un bolígrafo. Después de unos cuantos giros, lo dejé descansar. Con ese golpe de hace un momento, el maestro de mi hermana finalmente estaba en paz.
 
