@@ -6,7 +6,7 @@
     slug: "traducir-7"   
 ---
 
-## **97 - Orgía en las aguas termales privadas**
+# **97 - Orgía en las aguas termales privadas**
 
  Tras habernos ganado por fin el derecho a entrar en las aguas termales, finalmente lo logramos.
 
@@ -222,7 +222,7 @@ Disfrutaré a fondo de este sexo en el harén de las termas y acumularé energí
 
 +++
 
-## **98 - La Semilla Codiciada**
+# **98 - La Semilla Codiciada**
 
 Mucho tiempo sin vernos. Soy yo.
 
@@ -406,7 +406,7 @@ Fue la noche en que aprendí que amar es también ser amado —y quedar completa
 
 +++
 
-## **99 - Un giro inesperado de los acontecimientos**
+# **99 - Un giro inesperado de los acontecimientos**
 
  "¡Siií!" 
 
@@ -590,7 +590,7 @@ Dicho esto, su cuerpo voluptuoso parecía a punto de reventar su recatado unifor
 
 +++
 
-## **100 - Entrenamiento de Humillación**
+# **100 - Entrenamiento de Humillación**
 
 El Reino de Niosebuk
 
@@ -780,7 +780,7 @@ Oh. Espera. ¿Me acordé de poner el **\[Interruptor de Fecundación\]** en OF
 
 +++
 
-## **101 - Hombres sin derecho a ver el mañana**
+# **101 - Hombres sin derecho a ver el mañana**
 
  Ya no podía molestarme con la logística, así que simplemente pasé mi tiempo disfrutando del sexo con Lapee, la recepcionista.
 
@@ -1016,7 +1016,7 @@ Justo cuando estaba pensando eso, los refuerzos de mi país de origen llegaron j
 
 +++
 
-## **102 - Caza a los Niosebuk**
+# **102 - Caza a los Niosebuk**
 
 "Soy Romphaia, Capitán de la Unidad de Refuerzo Fronterizo y miembro de la Cuarta Orden de Caballeros del Palacio Real de Reniosegra".
 
@@ -1136,7 +1136,7 @@ Normalmente, nunca confiaría en una científica loca, pero viniendo de ella, se
 
 +++
 
-## **103 - Política de Tierra Quemada y Guerra de Guerrillas**
+# **103 - Política de Tierra Quemada y Guerra de Guerrillas**
 
 Entonces, ¿qué era exactamente esta "Desecación de Mazmorras" que propuso la genio investigadora Beaker?
 
@@ -1314,7 +1314,7 @@ Cuando te lo piden así, un hombre tiene que responder. Soy del tipo que disfrut
 
 +++
 
-## **104 - Comienza el sabotaje**
+# **104 - Comienza el sabotaje**
 
 Así que me vi participando en una operación de sabotaje contra esos bastardos de Niosebuk. La recompensa era tentadora, pero incluso sin ella, esas pestes son una plaga que no se puede dejar en paz.
 
@@ -1492,7 +1492,7 @@ El rostro de Romphaia se puso pálido mientras miraba el papel. La orden escrita
 
 +++
 
-## **105 - El entretenimiento sexual también es el deber de una mujer caballero**
+# **105 - El entretenimiento sexual también es el deber de una mujer caballero**
 
  "¡¿Qué demonios significa esta orden?!"
 
@@ -1676,7 +1676,7 @@ Las vibraciones del caballo hicieron que Romphaia empezara a gemir de nuevo.
 
 +++
 
-## **106 - Un desvío voluptuoso**
+# **106 - Un desvío voluptuoso**
 
 En medio de mi misión para desestabilizar Niosebuk, me dejé llevar tanto teniendo sexo con mi compañera de viaje, la caballero Romphaia, que perdimos el rumbo. Típico de mí.
 
@@ -1866,7 +1866,7 @@ Mientras sacaba la lengua con una sonrisa pícara, vi un destello de algo... dep
 
 +++
 
-## **107 - La Posada Misteriosa**
+# **107 - La Posada Misteriosa**
 
  La chica que entró en la habitación tras ser llamada por su madre ya estaba completamente desnuda. Pechos suaves, pezones poco desarrollados y una vagina como un capullo.
 
@@ -2038,7 +2038,7 @@ Su brillante sonrisa era prácticamente cegadora. Se trataba de Corzette, la muj
 
 +++
 
-## **108 - El consentimiento de un mercader**
+# **108 - El consentimiento de un mercader**
 
 Mistress Corzette, la representante de la Coalición de Mercaderes de Selengren, era una mujer rebosante de una energía y un carisma que desafiaban la imagen típica de una "viuda desconsolada".
 
@@ -2258,7 +2258,7 @@ Escuchar a escondidas su conversación lo dejó claro: la situación no estaba p
 
 +++
 
-## **109 - Los capitalistas sonríen ante la guerra**
+# **109 - Los capitalistas sonríen ante la guerra**
 
  Seguía escuchando, con mi pene todavía enterrado dentro del canal de Romphaia mientras mantenía la conexión.
 
@@ -2468,7 +2468,7 @@ El servicio de la criada era impecable, pero…
 
 +++
 
-## **110 - Juego de Criada**
+# **110 - Juego de Criada**
 
  La estrella de la negociación aún no ha llegado.
 
@@ -2652,7 +2652,7 @@ Sí, eso suena como un gran plan. Si puedo seguir teniendo sexo con la sirvienta
 
 +++
 
-## **111 - Una Comerciante es una Mercancía Femenina**
+# **111 - Una Comerciante es una Mercancía Femenina**
 
 "¡¡Hyaaahhh!! ¡Oh, Dios! ¡Sí! ¡Este coño de sirvienta es increíble!! ❤️❤️❤️❤️"
 
@@ -2858,7 +2858,7 @@ Habíamos abandonado por completo la negociación en favor del sexo. O tal vez n
 
 +++
 
-## **112 - Servicio Doble y un Nuevo Destino**
+# **112 - Servicio Doble y un Nuevo Destino**
 
  Después de que el evento principal terminara…
 
@@ -3016,7 +3016,7 @@ Objetivo: La Nación de Herreros Enanos. Manos a la obra.
 
 +++
 
-## **113 - El Reino de los Enanos**
+# **113 - El Reino de los Enanos**
 
  Y así, aquí estoy.
 
@@ -3197,7 +3197,7 @@ Así que, un perro guardián. Tendría que tener cuidado de no ser atrapado espi
 
 +++
 
-## **114 - ¿Una noche con una enana?**
+# **114 - ¿Una noche con una enana?**
 
 Me encontré con bastante tiempo libre durante mi primera visita al Reino de los Enanos.
 
@@ -3415,7 +3415,7 @@ La noche en el Reino Enano apenas había comenzado…
 
 +++
 
-## **115 - Prueba de la Tierra**
+# **115 - Prueba de la Tierra**
 
  A la mañana siguiente.
 
@@ -3623,7 +3623,7 @@ Sexo antes de la prueba. Y estoy seguro de que también habrá sexo después de 
 
 +++
 
-## **116 - La verdadera forma del Guardián**
+# **116 - La verdadera forma del Guardián**
 
  Después de eso, Septekifa y I tuvimos sexo repetidamente. En lo profundo de la Gran Mina, lejos de cualquier minero rezagado, aprovechamos la soledad absoluta para entrelazar nuestros cuerpos una y otra vez.
 
@@ -3805,7 +3805,7 @@ Apunté a la entrepierna de Septekifa y empujé hacia adelante. La sensación fa
 
 +++
 
-## **117 - Ofrenda Sexual**
+# **117 - Ofrenda Sexual**
 
 Actualmente estoy en medio del sexo con Septekifa, la chica enana.
 
@@ -3985,7 +3985,7 @@ Y así, Septekifa y yo pasamos un largo rato más en la oscuridad, teniendo sexo
 
 +++
 
-## **118 - El secreto del Reino Enano**
+# **118 - El secreto del Reino Enano**
 
  Cuando regresé a la superficie y me presenté ante el Rey Enano una vez más, el salón fue engullido por una ola de conmoción y pánico. Era como si un muerto acabara de salir de su tumba.
 
@@ -4159,7 +4159,7 @@ Nota del autor:
 
 +++
 
-## **119 - Obteniendo un arma exclusiva**
+# **119 - Obteniendo un arma exclusiva**
 
 Muy bien, es hora de aplastar al Reino de Niosebuk.
 
@@ -4327,7 +4327,7 @@ Y hay una cosa más que hace especial a esta goblin. No solo es inteligente...
 
 +++
 
-## **120 - La Reina Goblin**
+# **120 - La Reina Goblin**
 
 La llamaré Goblina.
 
@@ -4511,7 +4511,7 @@ Así que, ya que los he encontrado, bien podría acabar con hasta el último de 
 
 +++
 
-## **121 - Cuanto más apesta, mejor**
+# **121 - Cuanto más apesta, mejor**
 
 Sucedió.
 
@@ -4669,7 +4669,7 @@ Seguía siendo una duende. Una raza que se niega a bañarse por pura malicia.
 
 +++
 
-## **122 - Aquellos que habitan en el páramo del infierno**
+# **122 - Aquellos que habitan en el páramo del infierno**
 
 Suspiro. Al final también tuve sexo con Goblina.
 
@@ -4817,7 +4817,7 @@ Cuanto más aprendía sobre esos bastardos, más crecía mi determinación.
 
 +++
 
-## **123 - Otra ración de esperanza**
+# **123 - Otra ración de esperanza**
 
 Fue algo bueno haber entrado en territorio de Niosebuk —o mejor dicho, el antiguo Reino de Ricella— y haberme encontrado con estos refugiados.
 
@@ -4993,7 +4993,7 @@ Así, reafirmé mi voluntad de destruir el Reino de Niosebuk. Mientras, por supu
 
 +++
 
-## **124 - La Mujer Misteriosa**
+# **124 - La Mujer Misteriosa**
 
 Estoy avanzando hacia el corazón de Niosebuk. Bueno, tal vez "avanzar" no sea la palabra adecuada.
 
@@ -5167,7 +5167,7 @@ La mujer de la capa… se había convertido en la mujer del coño.
 
 +++
 
-## **125 - Sexo sin conocer su verdadera identidad**
+# **125 - Sexo sin conocer su verdadera identidad**
 
 La misteriosa mujer, Tamagushi, apareció de la nada. Explicó los extraños fenómenos que asolan actualmente el Reino de Niosebuk y señaló al Tercer Príncipe, Gangastra, como la fuente.
 
@@ -5341,7 +5341,7 @@ Pero está bien. Seguiré su plan y me dejaré "controlar" por ahora. Mi objetiv
 
 +++
 
-## **126 - Entrando en la guarida del tigre**
+# **126 - Entrando en la guarida del tigre**
 
 Tener una relación de cooperación con la misteriosa mujer, Tamagushi, ha hecho que mi infiltración en Niosebuk sea significativamente más fluida.
 
@@ -5525,7 +5525,7 @@ Me di cuenta entonces: matar al viejo Rey no era suficiente. Toda la realeza de 
 
 +++
 
-## **127 - Derrotar al Tercer Príncipe**
+# **127 - Derrotar al Tercer Príncipe**
 
 "Mmm, así que si mato al Tercer Príncipe aquí y ahora, ¿misión cumplida?" 
 
@@ -5685,7 +5685,7 @@ La entidad sellada dentro de la cápsula parecía un ser vivo, pero era demasiad
 
 +++
 
-## **128 - El Sílfide Cautivo**
+# **128 - El Sílfide Cautivo**
 
 "¿El Espíritu del Viento, Harp…?"
 
@@ -5889,7 +5889,7 @@ Ciertamente, el Tercer Príncipe carecía de la más mínima pizca de reverencia
 
 +++
 
-## **129 - El Tercer Estigma**
+# **129 - El Tercer Estigma**
 
 "Pero, específicamente, ¿cómo te libero?"
 
@@ -6099,7 +6099,7 @@ Me viera genial o no, mi decisión de matar a este pedazo de basura permanecía 
 
 +++
 
-## **130 - Prueba de Realeza**
+# **130 - Prueba de Realeza**
 
  "¡¿Señor Sao...?! ¡Esos emblemas en su pecho...!"
 
@@ -6295,7 +6295,7 @@ Anyone who thinks they can survive alone without realizing that is a fool. Just 
 
 +++
 
-## **131 - Without Mercy**
+# **131 - Without Mercy**
 
  “Allowed to live by the earth…?! Don’t make me laugh!”
 
@@ -6483,7 +6483,7 @@ La que me agarró el brazo... fue Tamagushi. ¡¿Una traición precisamente en e
 
 +++
 
-## **132 - La verdadera identidad de Sao, las verdaderas intenciones de Tamagushi**
+# **132 - La verdadera identidad de Sao, las verdaderas intenciones de Tamagushi**
 
 ¡¿Tamagushi?! ¡¿Me tendiste una trampa, Tamagushi?!
 
@@ -6661,7 +6661,7 @@ Con el rugido del Príncipe, una oleada de sed de sangre surgió de los alrededo
 
 +++
 
-## **133 - El fin de los débiles**
+# **133 - El fin de los débiles**
 
  El estruendoso rugido de miles de pasos se acercaba —¡pum-pum-pum-pum!— cerrándose desde todas las direcciones. La vibración colectiva de cientos... no, miles de hombres corriendo al unísono sacudía el aire mismo.
 
@@ -6885,7 +6885,7 @@ Tal vez murió satisfecho. Después de todo, según la ley absoluta de la superv
 
 +++
 
-## **134 - Enterrado vivo**
+# **134 - Enterrado vivo**
 
 "¡Sir Sao! ¡Aquí está el cadáver del rebelde Gangastra! ¡Por favor, inspeccione los restos!"
 
@@ -7083,7 +7083,7 @@ Le seguiré la corriente en eso. A través del páramo solitario donde más de c
 
 +++
 
-## **135 – El Próximo Enemigo**
+# **135 – El Próximo Enemigo**
 
 Todavía en medio del sexo con Tamagushi.
 
@@ -7261,7 +7261,7 @@ Es probable que haya otros encargados y "clientes" dentro. Parece que tendré qu
 
 +++
 
-## **136 – El establo de esclavos**
+# **136 – El establo de esclavos**
 
 Al entrar en el campo de prisioneros de guerra, la atmósfera se vuelve aún más extraña.
 
@@ -7429,7 +7429,7 @@ Ella ha soportado días difíciles después de ser capturada por bestias, así q
 
 +++
 
-## **137 – Salvación a Través del Sexo**
+# **137 – Salvación a Través del Sexo**
 
 El último trasero está gritando con un sonido delicioso.
 
@@ -7611,7 +7611,7 @@ Como atraídas por el aura espeluznante que emanaba de mi "obra maestra", las mu
 
 +++
 
-## **138 – El harén realmente existió**
+# **138 – El harén realmente existió**
 
 Nota del traductor: Este capítulo se publica después de un largo descanso del autor.
 
@@ -7806,7 +7806,7 @@ Había vislumbrado las habilidades de Tamagushi durante la pelea con Gangastra. 
 
 +++
 
-## **139 – La Princesa Doncella del Santuario y la Consorte Doncella del Santuario**
+# **139 – La Princesa Doncella del Santuario y la Consorte Doncella del Santuario**
 
 Fui guiado a lo profundo del Palacio Interior de Niosebuk. En una cámara privada en sus confines más remotos, me encontré cara a cara con la mujer que era la madre de Tamagushi.
 
@@ -7972,7 +7972,7 @@ Próxima vez: ¡el sexo comienza en serio!
 
 +++
 
-## **140 – Conquista del Harén**
+# **140 – Conquista del Harén**
 
 La Sexta Reina de Niosebuk, Azusayumi.
 
@@ -8178,7 +8178,7 @@ De las entrepiernas de las bellezas reunidas de todo el Palacio Interior, las br
 
 +++
 
-## **141 – En busca de la Madre Enana**
+# **141 – En busca de la Madre Enana**
 
 Parece que cada residente del Palacio Interior de Niosebuk ha decidido someterse a mí.
 
@@ -8362,7 +8362,7 @@ Las concubinas del Palacio Interior son impresionantes. Si pregunto, responden a
 
 +++
 
-## **142 – El enano en el fondo de las aguas tenues**
+# **142 – El enano en el fondo de las aguas tenues**
 
 Cuevas de Agua Subterráneas de Baldaria.
 
@@ -8552,7 +8552,7 @@ Mientras hablaba, la mujer enana exhibía sin pudor sus pezones y su entrepierna
 
 +++
 
-## **143 – Hay cosas más importantes que una charla seria**
+# **143 – Hay cosas más importantes que una charla seria**
 
 Lo primero que hice fue doblar las rodillas, encorvar la espalda y bajar la cabeza. De esa forma, mi nivel visual quedaría perfectamente alineado con la parte más importante de la persona que tenía delante.
 
@@ -8752,7 +8752,7 @@ Ahora que he eyaculado dentro de ella a mi antojo… realmente me gustaría ir a
 
 +++
 
-## **144 – Persuadiendo a la madre enana**
+# **144 – Persuadiendo a la madre enana**
 
 A decir verdad, debería haber hecho esto primero.
 
@@ -8952,7 +8952,7 @@ Muy bien, un empujón más debería bastar. Añadí más palabras para conmover 
 
 +++
 
-## **145 - El Estigma de Agua**
+# **145 - El Estigma de Agua**
 
 "Contempla el **\[Estigma de Agua\]**". 
 
@@ -9150,7 +9150,7 @@ Incliné la cabeza ante la expresión ansiosa de Tamagushi. La Cuarta Princesa, 
 
 +++
 
-## **146 - La Hija de la Conspiración**
+# **146 - La Hija de la Conspiración**
 
  Finalmente estoy cara a cara con la mujer en persona.
 
@@ -9350,7 +9350,7 @@ Quiero decir, no es para tanto. De todos modos, la solución llega en la siguien
 
 +++
 
-## **147 - Destrozando el argumento**
+# **147 - Destrozando el argumento**
 
 Solo soy un estudiante del Reino de Reniosegra. Un plebeyo, esencialmente.
 
@@ -9552,7 +9552,7 @@ Se quitó la ropa, quedando completamente desnuda…
 
 +++
 
-## **148 - El colapso de la mujer sabia**
+# **148 - El colapso de la mujer sabia**
 
 "¡Ahih! ❤️❤️ ¡Ahi-ahi-ahi-ahi! ❤️❤️ ¡Hnh! ❤️❤️ ¡Ahiieeeeeeeee!! ❤️❤️❤️❤️"
 
@@ -9760,7 +9760,7 @@ Aún desnuda, Shinseniza levantó la mano en alto y chasqueó los dedos. ¡Esper
 
 +++
 
-## **149 - El Último Príncipe**
+# **149 - El Último Príncipe**
 
 La Cuarta Princesa, de pie desnuda con el semen goteando de sus muslos, habló.
 
@@ -9952,7 +9952,7 @@ Era casi omnipotente. Esta era el arma final más preciada de Niosebuk. ¡El pod
 
 +++
 
-## **150 - Combate de Médium**
+# **150 - Combate de Médium**
 
 El Sexto Príncipe de Niosebuk, Teracoas.
 
@@ -10124,7 +10124,7 @@ Espera. ¿Quién? ¿Otro personaje nuevo apareciendo a estas alturas de la histo
 
 +++
 
-## **151 - Para llegar al Jefe Final**
+# **151 - Para llegar al Jefe Final**
 
 —¿Padre? ¡No querrás decir...!—
 
@@ -10344,7 +10344,7 @@ El alma del Rey de Niosebuk, atrapada dentro de la lámpara, no podía hacer má
 
 +++
 
-## **152 - Al final del más fuerte**
+# **152 - Al final del más fuerte**
 
 "¿¡Gwoaaaaaaaaah!? ¡¡Kibaba!! ¡¿Pipepepepepepep?!"
 
@@ -10564,7 +10564,7 @@ Voy a mostrarle a este bastardo exactamente cómo se siente su "Ley de la Selva"
 
 +++
 
-## **153 - Siguiendo tus principios**
+# **153 - Siguiendo tus principios**
 
 Nos vestimos y empezamos a movernos. La realidad impactante era que, desde el trío en el harén con Shinseniza y Tamagushi, pasando por las batallas con Teracoas y el resucitado Rey de Niosebuk, habíamos estado completamente desnudos todo el tiempo.
 
@@ -10770,7 +10770,7 @@ Como Rey, deberías regocijarte. Vamos. Regocíjate.
 
 +++
 
-## **154 - Sálvalo**
+# **154 - Sálvalo**
 
 "Vaya, ¿qué le ha pasado a mi padre?"
 
@@ -10966,7 +10966,7 @@ Vaya, la hice enfadar. Ese era un tema demasiado sensible para una conversación
 
 +++
 
-## **155 - Los límites del cuerpo**
+# **155 - Los límites del cuerpo**
 
 "Sir Sao, escuche bien". 
 
@@ -11138,7 +11138,7 @@ De vuelta al país donde las mujeres que amo me están esperando...
 
 +++
 
-## **156 - Verdadera Democracia**
+# **156 - Verdadera Democracia**
 
  "Siento como si hubiera pasado una eternidad desde la última vez que nos vimos..."
 
@@ -11328,7 +11328,7 @@ En este mundo de fantasía medieval, los pasos de la era moderna se están acerc
 
 +++
 
-## **157 - Vida de Harén**
+# **157 - Vida de Harén**
 
 Han pasado diez años desde entonces…
 
@@ -11564,7 +11564,7 @@ Llevo diez años viviendo así.
 
 +++
 
-## **158 - Diez años después**
+# **158 - Diez años después**
 
  Después de terminar el desayuno junto con algo de intimidad entre padres e hijos, no pasé el resto de la mañana solo teniendo sexo, créanlo o no. De hecho, me dirigí a mi oficina para realizar algunas de las tareas propias de un Rey.
 
@@ -11694,7 +11694,7 @@ Supongo que incluso en una fantasía Isekai, el jefe final siempre es la Religi�
 
 +++
 
-## **159 - El Culto de la Luz**
+# **159 - El Culto de la Luz**
 
 Finalmente decidí reunirme con el enviado del Culto del Fotón. Rechazarlos continuamente no me llevaría a ninguna parte, y supuse que no aceptarían un "no" por respuesta sin una confrontación cara a cara.
 
@@ -11914,7 +11914,7 @@ Parecía que necesitaba una nueva forma de manejar esto.
 
 +++
 
-## **160 - Fe vs. Libido**
+# **160 - Fe vs. Libido**
 
 Actualmente estoy en medio de una audiencia con unos locos de remate. El Culto del Fotón.
 
@@ -12082,7 +12082,7 @@ Y aun así, solo me enviaron mujeres. Olía a algo intencionado. Una investigaci
 
 +++
 
-## **161 - El Espíritu de la Luz**
+# **161 - El Espíritu de la Luz**
 
  ¿El Espíritu de la Luz? ¿Significa eso que está relacionado con *esas* personas que conozco?
 
@@ -12280,7 +12280,7 @@ El Espíritu de la Luz salió volando hacia lo alto del cielo por una ráfaga de
 
 +++
 
-## **162 - El Elemento Final**
+# **162 - El Elemento Final**
 
 "¡¡Tierra-Agua-Fuego-Viento-Tierra-Agua-Fuego-Viento-Tierra-Agua-Fuego-Viento-Tierra-Agua-Fuego-Viento-Tierra-Agua-Fuego-Viento-Tierra-Agua-Fuego-Viento!!"
 
@@ -12480,7 +12480,7 @@ Bueno, para ser más exactos… un mundo donde todos puedan tener sexo con una s
 
 +++
 
-## **Epílogo**
+# **Epílogo**
 
 En conclusión…
 
@@ -12506,7 +12506,7 @@ Usaré la sabiduría y el poder de mi reencarnación en este mundo paralelo para
 
 +++
 
-## **Epílogo**
+# **Epílogo**
 
 "Usaré la sabiduría y el poder de mi reencarnación en este mundo paralelo para una sola cosa: seguir teniendo sexo".
 
